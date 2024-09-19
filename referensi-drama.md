@@ -7,6 +7,20 @@ terakhir, tetapi merombak bagian akhir cerita dengan membuat Zhang Wuji meningga
 setelah menyelesaikan tugasnya, lalu pergi mencari Zhao Min di Mongolia. Tidak diceritakan secara mendetil apa 
 yang terjadi dengan Ming Jiao selanjutnya.
 
+Rata-rata drama televisi menceritakan Xu Da dan Chang Yuchun jauh lebih tua ketimbang Zhang Wuji. Hal ini terasa 
+tidak sinkron dan cukup mengganggu jika kita membaca dengan teliti sejarah aslinya, lalu mencocokkan berbagai 
+_event_ yang terjadi ketika Zhang Cuishan bertemu dengan Yin Susu, sampai akhirnya Zhang Wuji dilahirkan di Pulau Es dan Api.
+
+Zhu Yuanzhang, Chang Yuchun Tang he, dan juga Xu Da memang lebih muda ketimbang Zhu Yuanzhang, tetapi usia mereka 
+tidak terpaut terlalu jauh. Dengan demikian usia Zhang Wuji juga tidak terpaut terlalu jauh dengan Xu Da dan Chang Yuchun.
+Membuat Chang Yuchun berusia dua puluhan ketika untuk pertama kalinya bertemu dengan Zhang Wuji adalah sangat tidak 
+masuk akal, karena akan membuat rangkaian peristiwa itu terjadi di sekitar tahun 1355, di mana pada saat itu 
+Peng Yingyu sudah meninggal. Chen Youliang dalam sejarah memproklamirkan diri sebagai Raja Han di Jiangzhou pada 
+tahun 1357, yaitu setelah Xu Shouhui tewas. Ini akan membuat alur cerita menjadi kacau jika kita memakai _setting_ 
+Jin Yong[^chen-youliang]. 
+
+[^chen-youliang]: Bandingkan dengan [artikel mengenai Chen Youliang](https://en.wikipedia.org/wiki/Chen_Youliang#Biography) yang membahas hal ini.
+
 Beberapa drama berikut bisa ditonton sebagai referensi mengenai Zhang Sanfeng, Perguruan Wudang, atau 
 Dinasti Ming dan pendirinya, Zhu Yuanzhang.
 
