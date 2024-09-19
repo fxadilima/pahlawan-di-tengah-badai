@@ -116,7 +116,8 @@ orang yang memakainya memang masih muda.
 ## Pindao
 
 Pin Dao (贫道) adalah cara seorang pendeta Tao memanggil diri sendiri. Secara literal artinya adalah 
-'Pengikut ajaran Tao yang malang ini', atau 'Taois yang malang ini'.
+'Pengikut ajaran Tao yang malang ini', atau 'Taois yang malang ini'. Umumnya cerita silat karya orang Indonesia 
+yang dipengaruhi dialek Hokkian akan memakai istilah 'Pinto', yang artinya sama.
 
 ## Shao Bing
 
