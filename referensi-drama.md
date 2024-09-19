@@ -11,7 +11,7 @@ Rata-rata drama televisi menceritakan Xu Da dan Chang Yuchun jauh lebih tua keti
 tidak sinkron dan cukup mengganggu jika kita membaca dengan teliti sejarah aslinya, lalu mencocokkan berbagai 
 _event_ yang terjadi ketika Zhang Cuishan bertemu dengan Yin Susu, sampai akhirnya Zhang Wuji dilahirkan di Pulau Es dan Api.
 
-Zhu Yuanzhang, Chang Yuchun Tang he, dan juga Xu Da memang lebih muda ketimbang Zhu Yuanzhang, tetapi usia mereka 
+Zhu Yuanzhang, Chang Yuchun, Tang he, dan juga Xu Da memang lebih muda ketimbang Zhu Yuanzhang, tetapi usia mereka 
 tidak terpaut terlalu jauh. Dengan demikian usia Zhang Wuji juga tidak terpaut terlalu jauh dengan Xu Da dan Chang Yuchun.
 Membuat Chang Yuchun berusia dua puluhan ketika untuk pertama kalinya bertemu dengan Zhang Wuji adalah sangat tidak 
 masuk akal, karena akan membuat rangkaian peristiwa itu terjadi di sekitar tahun 1355, di mana pada saat itu 
