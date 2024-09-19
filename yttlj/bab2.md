@@ -55,7 +55,7 @@ Berpikir sampai di sini, ia kemudian menahan diri, dan menandatangani usulan yan
 masalah besar ini dalam hati. Ia harus mencari cara untuk secepatnya menyingkirkan El Temur untuk memulihkan keadaan.
 
 Di luar sepengetahuannya, El Temur juga melaporkan kedatangan keluarga Kusala ke Shangdu kepada permaisurinya, 
-[Budashiri](/parts/people/historical/budashiri "Permaisuri Tugh Temur, Budashiri. Baca selengkapnya..."),
+[Budashiri](/parts/people/historical/budashiri.md "Permaisuri Tugh Temur, Budashiri. Baca selengkapnya..."),
 yang belum lama ini telah resmi menerima stempel resminya.
 
 Budashiri memandang Toghon Temur, putra sulung Kusala dari istri pertamanya, Meilaiti, adalah ancaman bagi rencananya
@@ -64,7 +64,7 @@ Toghon Temur pernah menggantikan dirinya sebagai permaisuri, meskipun hanya sebe
 
 Budashiri kemudian mengungkit cerita rakyat yang beredar saat itu, yaitu bahwa Toghon Temur sebenarnya bukan anak Kusala, 
 karena ibunya, yang saat ini sudah meninggal, Meilaiti, telah melakukan perselingkuhan dengan mantan Kaisar Song Selatan, 
-[Zhao Xian](/parts/people/historical/zhao-xian "Kaisar terakhir Dinasti Song, Zhao Xian, diisukan memiliki hubungan gelap dengan Meilaiti, istri Kusala"), 
+[Zhao Xian](/parts/people/historical/zhao-xian.md "Kaisar terakhir Dinasti Song, Zhao Xian, diisukan memiliki hubungan gelap dengan Meilaiti, istri Kusala"), 
 di luar sepengetahuan Kusala. Tanpa membuang waktu, ia segera memerintahkan supaya Toghon Temur, yang baru 
 berusia sepuluh tahun, diasingkan ke Goryeo.
 
@@ -97,7 +97,7 @@ Setelah membolak-balik beberapa halaman dari dokumen yang disodorkan oleh Tajkis
 karakter pun, Yang Dingtian berkata, "Bagus, bagus! Ini memang penemuan yang tak ternilai harganya. Tapi kau harus
 menerjemahkan dokumen ini supaya bisa dibaca oleh semua orang."
 
-"[Dizi](/daftar-istilah#dizi "Di Zi () = Muridmu ini") memang merencanakan begitu," jawab Tajkis. Tidak seperti
+"[Dizi](/daftar-istilah.md#dizi "Di Zi () = Muridmu ini") memang merencanakan begitu," jawab Tajkis. Tidak seperti
 yang lain, Tajkis memanggil diri sendiri 'Dizi' di hadapan Yang Dingtian, karena kungfunya memang diajarkan 
 langsung oleh Yang Dingtian. "Dan bukan hanya diterjemahkan ke dalam bahasa Han, kita juga akan menerjemahkannya 
 ke dalam bahasa Goryeo."
@@ -109,7 +109,7 @@ Yang Xiao tersenyum sambil berkata, "Jiaozhu, kali ini kami pulang membawa seora
 Di sepanjang perjalanan kami selalu memanggilnya 'Qi Shimei', tapi sebenarnya dia sudah menjadi murid Tajkis." Ia lalu
 memberi isyarat supaya Ki Seung Nyang maju dan mengenalkan diri, sambil melanjutkan, "Adik kecil ini datang dari Goryeo."
 
-"[Shouxia](/daftar-istilah#shou-xia "Anak buahmu"), Ki Seung Nyang, memberi salam kepada Jiaozhu," kata Ki Seung Nyang.
+"[Shouxia](/daftar-istilah.md#shou-xia "Anak buahmu"), Ki Seung Nyang, memberi salam kepada Jiaozhu," kata Ki Seung Nyang.
 
 Melihat ini, Yang Dingtian tertawa gembira. "Ini sungguh luar biasa!" katanya memuji. "Pertama kalinya kalian turun
 gunung, sudah menghasilkan begitu banyak prestasi!" Ia berpaling kepada Tajkis dan berkata, "Kau masih sangat muda, dan
@@ -180,7 +180,7 @@ kuno, meskipun jauh lebih baru jika dibandingkan dengan ajaran Tao, Buddha, Hind
 jaman Nabi Muhammad yang menyebarkan ajaran Islam, tentunya di tanah kelahiran Mani sendiri, yaitu Kekaisaran Sassania,
 Persia."
 
-[^manikeisme]: [Manikeisme](/parts/sects/ming-jiao "Baca selengkapnya..."), atau dalam bahasa mandarin adalah Moni Jiao (摩尼教), adalah nama awal Ming Jiao di Zhong Yuan.
+[^manikeisme]: [Manikeisme](/parts/sects/ming-jiao.md "Baca selengkapnya..."), atau dalam bahasa mandarin adalah Moni Jiao (摩尼教), adalah nama awal Ming Jiao di Zhong Yuan.
 
 "Shifu, berarti Ming Jiao adalah ajaran agama?" tanya Ah Luo.
 
