@@ -35,8 +35,8 @@ tanpa menyinggung sedikit pun mengenai Ki Seung Nyang, seorang wanita asal Gorye
 Permaisuri Qi — atau Empress Ki, dalam bahasa Inggris — mengingat pengaruhnya yang sangat besar di era itu.
 
 Jin Yong juga menceritakan sedikit mengenai Pangeran Ayushiridara yang menjadi Putra Mahkota saat itu dengan cara 
-yang akan membuat para pemirsa televisi atau pembaca novelnya menjadi salah kaprah. Untuk membuat cerita ini menjadi lebih 
-seimbang, kita menceritakannya dengan lebih lengkap dan dari beberapa sisi.
+yang akan membuat para pemirsa televisi atau pembaca novelnya menjadi salah kaprah, dan bukan tidak mungkin akan memicu 
+kebencian etnis. Untuk membuat cerita ini menjadi lebih seimbang, kita menceritakannya dengan lebih lengkap dan dari beberapa sisi.
 
 ## Mengenai Wudang Shan dan Zhang Sanfeng
 
