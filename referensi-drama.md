@@ -1,21 +1,12 @@
----
-layout: page
-title: Referensi Drama
-author: FX. Adi Lima
-description: Referensi Drama Kisah Pedang Langit dan Golok Pembunuh Naga
----
 
 # Referensi Drama
 
-<div class="w3-bar">
-    <a class="w3-btn w3-bar-item w3-hover-black w3-left" href="/"><i class="fa fa-home"></i> HOME</a>
-    <a class="w3-btn w3-bar-item w3-hover-black w3-right" href="yttlj/bab40">Golok Pembunuh Naga</a>
-</div>
 
 Dalam legenda, Zhang Junbao atau Zhang Sanfeng diceritakan memiliki hubungan romantis dengan Tao Cai Yi 
 (mandarin: 陶綵衣, Cantonese: To Choi Yi), sedangkan rivalnya adalah Pangeran Huo Du (Huo Du Wang Zi 霍都王子 atau Fok Dou) 
 dan Ha Yi'er (哈赤兒) yang dimainkan Lo Lieh. Michele Yim dalam serial ini memainkan peran ganda, sebagai saudara
-kembar, Tao Cai Yi adalah seorang Putri Mongolia, sedangkan kakaknya perempuan dari adalah suku Han.
+kembar, Tao Cai Yi adalah seorang Putri Mongolia (atau barangkali sisa-sisa Dinasti Jin), sedangkan kakak 
+perempuannya diceritakan berasal dari adalah suku Han.
 
 ## Mengenai Wudang Shan dan Zhang Sanfeng
 
