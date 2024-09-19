@@ -134,7 +134,7 @@ untuk menyelamatkan pengungsi?"
 Zhang Cuishan merendahkan suaranya dan berkata, "Kenapa tidak kau ambil saja dua ribu tail emas itu, dan menyumbangkannya
 kepada orang miskin?"
 
-Du Dajin menghunus goloknya dan berkata, "Kau sengaja ingin cara masalah ya?"
+Du Dajin menghunus goloknya dan berkata, "Kau sengaja ingin cari masalah ya?"
 
 Zhang Cuishan berkata, "Ya. Pendeknya, dengan satu atau lain cara, aku pasti akan mendapatkan uang itu hari ini."
 
