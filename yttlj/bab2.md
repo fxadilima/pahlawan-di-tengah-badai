@@ -3,7 +3,7 @@
 
 [![Kusala](/assets/images/Khutughtu_Khan_Kusala.jpg "Khutughtu Khan, Kusala")](/parts/people/historical/kusala.md)
 
-[![Babusha](/assets/images/Khutughtu_Khan_Kusala.jpg "Ibu Tiri Toghon Temur, Babusha")](/parts/people/historical/babusha.md)
+[![Babusha](/assets/images/babusha.jpg "Ibu Tiri Toghon Temur, Babusha")](/parts/people/historical/babusha.md)
 
 
 Tugh Temur yang menduduki tahta dengan aman setelah Jendral El Temur berhasil menyingkirkan sebagian besar loyalis
