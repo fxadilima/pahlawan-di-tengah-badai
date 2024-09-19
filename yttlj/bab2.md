@@ -1,33 +1,10 @@
----
-layout: page
-title: Bab 2
-author: FX. Adi Lima
-description: Ringkasan Bab 2 Golok Pembunuh Naga
----
 
 ## Mencari Sang Naga
 
-<div class="w3-bar">
-    <a class="w3-btn w3-bar-item w3-hover-black w3-left" href="/"><i class="fa fa-home"></i> HOME</a>
-    <a class="w3-btn w3-bar-item w3-hover-black w3-left" href="/parts/people">Daftar Karakter Utama</a>
-    <a class="w3-btn w3-bar-item w3-hover-black w3-left" href="bab1">Bab 1</a>
-    <a class="w3-btn w3-bar-item w3-hover-black w3-right" href="bab3">Bab 3</a>
-</div>
+[![Kusala](/assets/images/Khutughtu_Khan_Kusala.jpg "Khutughtu Khan, Kusala")](/parts/people/historical/kusala.md)
 
-<div class="w3-row-padding w3-padding-16 w3-center" id="one-two">
-    <div class="w3-half">
-        <a href="/parts/people/historical/kusala">
-            <img src="/assets/images/Khutughtu_Khan_Kusala.jpg" alt="Kusala" style="width:100%"/>
-        </a>
-        <h3>Khutughtu Khan, Kusala</h3>
-    </div>
-    <div class="w3-half">
-        <a href="/parts/people/historical/babusha">
-            <img src="/assets/images/babusha.jpg" alt="Babusha" style="width:100%"/>
-        </a>
-        <h3>Babusha, Istri Kedua Kusala</h3>
-    </div>
-</div>
+[![Babusha](/assets/images/Khutughtu_Khan_Kusala.jpg "Ibu Tiri Toghon Temur, Babusha")](/parts/people/historical/babusha.md)
+
 
 Tugh Temur yang menduduki tahta dengan aman setelah Jendral El Temur berhasil menyingkirkan sebagian besar loyalis
 Yesun Temur di Shangdu, terutama sekali Dawlat Shah dan jajarannya, hanya sempat mengalami masa tenang tak lebih dari
@@ -1647,11 +1624,4 @@ memerintah dunia, tak seorangpun berani membantahnya!
 Jika tidak mengandalkan Surga, siapa yang berani melawan?
 ```
 
-***
 
-<div class="w3-bar">
-    <a class="w3-btn w3-bar-item w3-hover-black w3-left" href="/"><i class="fa fa-home"></i> HOME</a>
-    <a class="w3-btn w3-bar-item w3-hover-black w3-left" href="/parts/people">Daftar Karakter Utama</a>
-    <a class="w3-btn w3-bar-item w3-hover-black w3-left" href="bab1">Bab 1</a>
-    <a class="w3-btn w3-bar-item w3-hover-black w3-right" href="bab3">Bab 3</a>
-</div>

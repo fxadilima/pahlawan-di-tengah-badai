@@ -1,18 +1,6 @@
----
-layout: page
-title: Bab 1
-author: FX. Adi Lima
-description: Ringkasan Bab 1 Golok Pembunuh Naga
----
 
 ## Tujuh Pendekar Ming Jiao
 
-<div class="w3-bar">
-    <a class="w3-btn w3-bar-item w3-hover-black w3-left" href="/"><i class="fa fa-home"></i> HOME</a>
-    <a class="w3-btn w3-bar-item w3-hover-black w3-left" href="/parts/people">Daftar Karakter Utama</a>
-    <a class="w3-btn w3-bar-item w3-hover-black w3-left" href="bab40">Bab 40</a>
-    <a class="w3-btn w3-bar-item w3-hover-black w3-right" href="bab2">Bab 2</a>
-</div>
 
 ![Ilustrasi Bab 1](/assets/images/empress-ki.jpg)
 
@@ -1533,9 +1521,3 @@ Huí chéng xiān jià yù cāng lóng.
 [^puisi-1]: Puisi ini di dapat dari [artikel Wikipedia](https://en.wikipedia.org/wiki/Kublai_Khan#Poetry) tentang Kubilai Khan.
 
 
-<div class="w3-bar">
-    <a class="w3-btn w3-bar-item w3-hover-black w3-left" href="/"><i class="fa fa-home"></i> HOME</a>
-    <a class="w3-btn w3-bar-item w3-hover-black w3-left" href="/parts/people">Daftar Karakter Utama</a>
-    <a class="w3-btn w3-bar-item w3-hover-black w3-left" href="bab40">Bab 40</a>
-    <a class="w3-btn w3-bar-item w3-hover-black w3-right" href="bab2">Next <i class="fa fa-arrow-right"></i></a>
-</div>
