@@ -17,7 +17,9 @@ Membuat Chang Yuchun berusia dua puluhan ketika untuk pertama kalinya bertemu de
 masuk akal, karena akan membuat rangkaian peristiwa itu terjadi di sekitar tahun 1355, di mana pada saat itu 
 Peng Yingyu sudah meninggal. Chen Youliang dalam sejarah memproklamirkan diri sebagai Raja Han di Jiangzhou pada 
 tahun 1357, yaitu setelah Xu Shouhui tewas. Ini akan membuat alur cerita menjadi kacau jika kita memakai _setting_ 
-Jin Yong[^chen-youliang]. 
+Jin Yong[^chen-youliang]. Jika Chen Youliang sudah menjadi Raja Han pada tahun 1357 (ketika Zhang Wuji masih berusia 
+sekitar 14 tahun), mana mungkin kita punya ruang untuk menceritakan kehidupannya sebagai murid Biksu Yuan Zhen dari 
+Shaolin, dan juga segal peristiwa penting yang terkait hal ini?
 
 [^chen-youliang]: Bandingkan dengan [artikel mengenai Chen Youliang](https://en.wikipedia.org/wiki/Chen_Youliang#Biography) yang membahas hal ini.
 
