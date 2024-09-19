@@ -382,11 +382,15 @@ untuk membuat sebuah kereta mewah bagi Zhang Wuji dan kedua istrinya. Para murid
 pekerjaan itu mereka selesaikan dengan sangat cepat. Murid-murid Yin Liting dan Yu Daiyuan bekerja sama membantu 
 Zhao Min dan Zhou Zhiruo berkemas. 
 
-Meskipun perbekalan yang mereka bawa sebenarnya tidak banyak, tetapi Ki Seung Nyang dan Yang Buhui mendandani 
-kedua wanita itu dengan sebaik-baiknya sehingga penampilan mereka terlihat mirip istri seorang jendral besar. 
-Zhou Zhiruo mengenakan jubah berwarna hijau terang yang menonjolkan kecantikannya. Warna ini menampilkan segala 
-kelembutannya, dan menyembunyikan sifat aslinya yang sangat keras. Zhao Min mengikuti anjuran Ki Seung Nyang, 
-dan mengenakan pakaian tradisional suku Naiman yang selama ini jarang dipakainya, dengan paduan warna biru cerah 
+Meskipun perbekalan yang mereka bawa sebenarnya tidak banyak, tetapi Ki Seung Nyang menganjurkan untuk membuat banyak 
+makanan untuk semua orang, yang bisa dimakan di perjalanan. Hal ini dianggap tepat oleh Yang Xiao, mengingat mereka 
+harus berangkat pagi-pagi sekali, dan saat itu tentunya tidak ada kedai atau penjual makanan yang buka. Para murid Wudang 
+dibantu oleh Zhou Zhiruo dan Zhao Min secara kilat menyiapkan banyak bakpao.
+
+Ki Seung Nyang dan Yang Buhui juga mendandani kedua wanita itu dengan sebaik-baiknya sehingga penampilan mereka terlihat 
+mirip istri seorang jendral besar. Zhou Zhiruo mengenakan jubah berwarna hijau terang yang menonjolkan kecantikannya yang alamiah. 
+Warna ini menampilkan segala kelembutannya, dan menyembunyikan sifat aslinya yang sangat keras. Zhao Min mengikuti anjuran 
+Ki Seung Nyang untuk mengenakan pakaian adat tradisional suku Naiman yang selama ini jarang dipakainya, dengan paduan warna biru cerah 
 dan merah menyala. Dalam keseharian Zhao Min tampak seperti anak dari keluarga bangsawan yang anggun dan berbicara 
 dengan gaya bahasa yang sangat tinggi. Ki Seung Nyang dengan sengaja ingin menyamarkan kesan ini, dan membuatnya 
 sedikit 'liar', menonjolkan kesan periang yang adalah sifat alamiah Zhao Min. Keduanya tampak sangat mengesankan 
@@ -529,7 +533,26 @@ yang dimilikinya saat ini. Kecemburuannya kepada Xiao Zhao lenyap. Ia sekarang m
 Ia berkata sambil menghapus air matanya, "Bibi, Zhiruo hanya bisa berusaha."
 
 Ki Seung Nyang memeluknya dengan lembut sambil mengusap rambutnya. "Hanya itu yang ingin Bibi dengar," katanya. 
-"Memang hanya itu yang bisa kau lakukan."
+"Memang hanya itu yang bisa kau lakukan." Ia berbisik pelan, "Zhiruo, mulai saat ini Bibi menitipkan masa depan 
+negeri ini dan juga keluarga Bibi kepadamu. Aku tadi mengatakan kepada semua orang bahwa Zhang Wuji seolah-olah _harus_ 
+menjadi kaisar, tetapi yang sebenarnya hal itu tergantung pada keputusan Wuji sendiri, kita tidak bisa memaksanya. 
+Sebelum keputusan itu sendiri kau dengar dengan tegas, kalian _harus_ bersikap seolah-olah hal itu memang akan terjadi, 
+ini adalah bagian dari rencana Bibi."
+
+Zhou Zhiruo menatapnya dengan pandangan bertanya. "Bibi, aku tidak mengerti..."
+
+"Untuk saat ini kau memang belum sepenuhnya mengerti," kata Ki Seung Nyang sambil tersenyum tipis. "Tidak apa-apa. 
+Kau hanya perlu yakin bahwa apapun yang terjadi nantinya, kau memang akan menjadi seorang ratu, karena Bibi punya 
+rencana kedua, jika yang pertama tidak berhasil. Karena itu mulai sekarang kau harus belajar baik-baik, bagaimana 
+menjalankan perananmu. Kalau ada sesuatu yang ingin kau tanyakan, kau bisa menulis surat, dan kirimkan melalui merpati itu. 
+Bibi pasti segera membalasnya."
+
+Zhou Zhiruo tidak bisa memahami apa maksud Ki Seung Nyang, tetapi melihat ekspresi muka bibinya, ia tidak berani 
+bertanya lebih jauh. Ia hanya menyimpan semua itu di dalam hati.
+
+Setelah itu mereka berkumpul dengan Zhang Sanfeng dan murid-muridnya dari generasi pertama, Yang Xiao, Fan Yao, 
+dan para pejabat tinggi Ming Jiao lainnya, dan merencanakan detil-detil perjalanan ke Xiangyang itu dengan cermat.
+Semua orang tidak tidur malam itu. Mereka hanya sempat beristirahat sejenak sebelum berangkat.
 
 
 ***
@@ -548,8 +571,8 @@ matahari semakin naik, jumlah itu menjadi jauh lebih banyak lagi, dan rata-rata 
 pemuda dari kalangan petani.
 
 Ki Seung Nyang telah menginstruksikan Zhou Zhiruo dan Zhao Min untuk bersikap ramah kepada siapa saja yang 
-mereka jumpai di jalan, karenanya mereka sesekali membuka jendela kereta untuk menyapa para penduduk desa dengan 
-ramah. Reaksi ini memang sudah diperkirakan sejak awal oleh semua pendukung Zhang Wuji, dan mereka menerima 
+mereka jumpai di jalan, karenanya mereka sesekali membuka jendela kereta untuk menyapa para penduduk desa. 
+Reaksi ini memang sudah diperkirakan sejak awal oleh semua pendukung Zhang Wuji, mereka menerima 
 setiap orang yang ingin ikut bergabung dalam arak-arakan itu dengan tangan terbuka. Setiap kali mereka berhenti 
 di suatu tempat untuk beristirahat, jumlah orang yang bergabung pasti bertambah. Awalnya mereka membagi-bagikan 
 perbekalan kepada semua orang yang mengikuti rombongan mereka, tetapi sebelum tengah hari perbekalan yang 
