@@ -180,7 +180,7 @@ kuno, meskipun jauh lebih baru jika dibandingkan dengan ajaran Tao, Buddha, Hind
 jaman Nabi Muhammad yang menyebarkan ajaran Islam, tentunya di tanah kelahiran Mani sendiri, yaitu Kekaisaran Sassania,
 Persia."
 
-[^manikeisme]: [Manikeisme](/parts/sects/ming-jiao.md "Baca selengkapnya..."), atau dalam bahasa mandarin adalah Moni Jiao (摩尼教), adalah nama awal Ming Jiao di Zhong Yuan.
+[^manikeisme]: [Manikeisme](../parts/sects/ming-jiao.md "Baca selengkapnya..."), atau dalam bahasa mandarin adalah Moni Jiao (摩尼教), adalah nama awal Ming Jiao di Zhong Yuan.
 
 "Shifu, berarti Ming Jiao adalah ajaran agama?" tanya Ah Luo.
 
