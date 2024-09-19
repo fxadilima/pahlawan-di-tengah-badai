@@ -1,18 +1,4 @@
----
-layout: page
-title: Golok Pembunuh Naga - Bab 40 B
-author: FX. Adi Lima
-description: Ringkasan Bab 40 Golok Pembunuh Naga, Antara Politik dan Keluarga, kembali ke Wudang Shan
----
-
 ## Antara Politik dan Keluarga
-
-<div class="w3-bar">
-    <a class="w3-btn w3-bar-item w3-hover-black w3-left" href="/"><i class="fa fa-home"></i> HOME</a>
-    <a class="w3-btn w3-bar-item w3-hover-black w3-left" href="/parts/people">Daftar Karakter Utama</a>
-    <a class="w3-btn w3-bar-item w3-hover-black w3-left" href="bab40-A"><i class="fa fa-arrow-left"></i> Prev</a>
-    <a class="w3-btn w3-bar-item w3-hover-black w3-right" href="bab40-C">Next <i class="fa fa-arrow-right"></i></a>
-</div>
 
 ![Ilustrasi Bab 40](/assets/images/taois-wudang2.jpg "Kembali ke Wudang Shan")
 
@@ -1660,16 +1646,6 @@ Ki Seung Nyang berkata dengan muka serius, "Wuji, malam ini juga Bibi Qi bisa me
 kalian untuk menumbangkan Dinasti Yuan akan segera berakhir dengan kemenangan. Syaratnya hanya satu, yaitu 
 _kau_ harus bersedia memimpin dinasti yang baru sebagai kaisar. Tidak perlu terjadi peperangan lagi."
 
-
-
-
-
-<div class="w3-bar">
-    <a class="w3-btn w3-bar-item w3-hover-black w3-left" href="/"><i class="fa fa-home"></i> HOME</a>
-    <a class="w3-btn w3-bar-item w3-hover-black w3-left" href="/parts/people">Daftar Karakter Utama</a>
-    <a class="w3-btn w3-bar-item w3-hover-black w3-left" href="bab40-A"><i class="fa fa-arrow-left"></i> Prev</a>
-    <a class="w3-btn w3-bar-item w3-hover-black w3-right" href="bab40-C">Next <i class="fa fa-arrow-right"></i></a>
-</div>
-
+[Bab selanjutnya →](bab40-C.md "Baca bab berikutnya")
 
 
