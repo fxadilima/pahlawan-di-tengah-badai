@@ -1,6 +1,20 @@
 
 # Referensi Drama
 
+Drama televisi [versi 2019](https://en.wikipedia.org/wiki/Heavenly_Sword_and_Dragon_Slaying_Sabre) untuk 
+sementara ini adalah versi terbaru yang secara garis besar memakai hasil revisi Jin Yong yang kedua, atau 
+terakhir, tetapi merombak bagian akhir cerita dengan membuat Zhang Wuji meninggalkan Ming Jiao dengan sukarela 
+setelah menyelesaikan tugasnya, lalu pergi mencari Zhao Min di Mongolia. Tidak diceritakan secara mendetil apa 
+yang terjadi dengan Ming Jiao selanjutnya.
+
+Beberapa drama berikut bisa ditonton sebagai referensi mengenai Zhang Sanfeng, Perguruan Wudang, atau 
+Dinasti Ming dan pendirinya, Zhu Yuanzhang.
+
+Dalam cerita kita, beberapa karakter memakai landasan sejarah Dinasti Han atau dinasti lain yang dianggap 
+penting saat itu di dalam dialog. Drama yang tercantum di sini barangkali bisa memberikan gambaran singkat 
+mengenai apa yang mereka bicarakan.
+
+## Mengenai Wudang Shan dan Zhang Sanfeng
 
 Dalam legenda, Zhang Junbao atau Zhang Sanfeng diceritakan memiliki hubungan romantis dengan Tao Cai Yi 
 (mandarin: 陶綵衣, Cantonese: To Choi Yi), sedangkan rivalnya adalah Pangeran Huo Du (Huo Du Wang Zi 霍都王子 atau Fok Dou) 
@@ -8,14 +22,14 @@ dan Ha Yi'er (哈赤兒) yang dimainkan Lo Lieh. Michele Yim dalam serial ini me
 kembar, Tao Cai Yi adalah seorang Putri Mongolia (atau barangkali sisa-sisa Dinasti Jin), sedangkan kakak 
 perempuannya diceritakan berasal dari adalah suku Han.
 
-## Mengenai Wudang Shan dan Zhang Sanfeng
-
 [Referensi tentang Wudang Shan](https://www.youtube.com/playlist?list=PLRBClVey5BqzoRGByTdPyduiI7PpDzJVz)
+
+[Episode 03](https://www.youtube.com/watch?v=Q5WsMxWHprA&list=PLRBClVey5BqzoRGByTdPyduiI7PpDzJVz&index=3&pp=iAQB)
+
+[Episode 05](https://www.youtube.com/watch?v=AeJther7W7A&list=PLy8WDOJkSFFyiMSj6F1OnuANJbh5RzxBq&index=5)
+
 [Masa remaja Zhang Wuji](https://www.youtube.com/watch?v=Pcmju7FiqCU)
 
-https://www.youtube.com/watch?v=AeJther7W7A&list=PLy8WDOJkSFFyiMSj6F1OnuANJbh5RzxBq&index=5
-
-[ep 03](https://www.youtube.com/watch?v=Q5WsMxWHprA&list=PLRBClVey5BqzoRGByTdPyduiI7PpDzJVz&index=3&pp=iAQB)
 
 ## Mengenai Dinasti Ming
 
