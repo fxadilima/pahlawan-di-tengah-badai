@@ -19,7 +19,7 @@ Peng Yingyu sudah meninggal. Chen Youliang dalam sejarah memproklamirkan diri se
 tahun 1357, yaitu setelah Xu Shouhui tewas. Ini akan membuat alur cerita menjadi kacau jika kita memakai _setting_ 
 Jin Yong[^chen-youliang]. Jika Chen Youliang sudah menjadi Raja Han pada tahun 1357 (ketika Zhang Wuji masih berusia 
 sekitar 14 tahun), mana mungkin kita punya ruang untuk menceritakan kehidupannya sebagai murid Biksu Yuan Zhen dari 
-Shaolin, dan juga segal peristiwa penting yang terkait hal ini?
+Shaolin, dan juga segala peristiwa penting yang terkait hal ini?
 
 [^chen-youliang]: Bandingkan dengan [artikel mengenai Chen Youliang](https://en.wikipedia.org/wiki/Chen_Youliang#Biography) yang membahas hal ini.
 
@@ -29,6 +29,14 @@ Dinasti Ming dan pendirinya, Zhu Yuanzhang.
 Dalam cerita kita, beberapa karakter memakai landasan sejarah Dinasti Han atau dinasti lain yang dianggap 
 penting saat itu di dalam dialog. Drama yang tercantum di sini barangkali bisa memberikan gambaran singkat 
 mengenai apa yang mereka bicarakan.
+
+Sebagai tambahan, adalah sangat tidak masuk akal menceritakan penggulingan Dinasti Yuan dan awal perjuangan Zhu Yuanzhang 
+tanpa menyinggung sedikit pun mengenai Ki Seung Nyang, seorang wanita asal Goryeo yang akhirnya dikenal luas sebagai 
+Permaisuri Qi — atau Empress Ki, dalam bahasa Inggris — mengingat pengaruhnya yang sangat besar di era itu.
+
+Jin Yong juga menceritakan sedikit mengenai Pangeran Ayushiridara yang menjadi Putra Mahkota saat itu dengan cara 
+yang akan membuat para pemirsa televisi atau pembaca novelnya menjadi salah kaprah. Untuk membuat cerita ini menjadi lebih 
+seimbang, kita menceritakannya dengan lebih lengkap dan dari beberapa sisi.
 
 ## Mengenai Wudang Shan dan Zhang Sanfeng
 
