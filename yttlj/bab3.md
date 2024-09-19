@@ -1,17 +1,3 @@
----
-layout: page
-title: Bab 3
-author: FX. Adi Lima
-description: Ringkasan Bab 3 Golok Pembunuh Naga, Tragedi di Longmen Biao Ju
----
-
-
-<div class="w3-bar">
-    <a class="w3-btn w3-bar-item w3-hover-black w3-left" href="/"><i class="fa fa-home"></i> HOME</a>
-    <a class="w3-btn w3-bar-item w3-hover-black w3-left" href="/parts/people">Daftar Karakter Utama</a>
-    <a class="w3-btn w3-bar-item w3-hover-black w3-left" href="bab2">Bab 2</a>
-    <a class="w3-btn w3-bar-item w3-hover-black w3-right" href="bab4">Next <i class="fa fa-arrow-right"></i></a>
-</div>
 
 ## Tragedi Di Lin'an 
 
@@ -754,10 +740,4 @@ Setelah makan siang, Zhang Cuishan mulai berjalan ke arah Liuhe Ta di tepi Sunga
 
 ![Longmen Biao Ju](/assets/images/longmen-express3.png "Zhang Cuishan berjalan di depan Longmen Biao Ju, Hangzhou, setelah terjadi pembantaian di situ.")
 
-<div class="w3-bar">
-    <a class="w3-btn w3-bar-item w3-hover-black w3-left" href="/"><i class="fa fa-home"></i> HOME</a>
-    <a class="w3-btn w3-bar-item w3-hover-black w3-left" href="/parts/people">Daftar Karakter Utama</a>
-    <a class="w3-btn w3-bar-item w3-hover-black w3-left" href="bab2">Bab 2</a>
-    <a class="w3-btn w3-bar-item w3-hover-black w3-right" href="bab4">Next <i class="fa fa-arrow-right"></i></a>
-</div>
 
