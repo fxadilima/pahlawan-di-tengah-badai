@@ -1,9 +1,10 @@
----
-layout: page
-title: Daftar Istilah Bahasa Mandarin
-author: FX. Adi Lima
-description: Lanjutan Kisah Pedang Langit dan Golok Pembunuh Naga, Daftar Istilah
----
+# Daftar Istilah Bahasa Mandarin
+
+Dokumen ini berisi istilah-istilah yang umum dipakai di dalam cerita silat dalam bahasa mandarin. Istilah-istilah 
+tersebut bukan semuanya bisa diterjemahkan dengan baik ke dalam bahasa Indonesia tanpa mempengaruhi makna aslinya, 
+karenanya seringkali kita menuliskannya dalam bahasa aslinya, tetapi memakai cara _romanisasi_ yang baru, dan 
+bukan menurut dialek Hokkian seperti yang umum dipakai dalam cerita silat karya Asmaraman S. Kho Ping Hoo, 
+Gan KL, atau para menulis/penyadur lainnya.
 
 ## Wulin
 
@@ -208,6 +209,7 @@ Bing (兵).
 
 ## Dao Zhang
 
-Dao Zhang (道长) adalah sebutan umum bagi seorang oraktisi ajaran Tao, yang biasanya juga seorang pendeta.
+Dao Zhang (道长) adalah sebutan umum bagi seorang praktisi ajaran Tao, yang biasanya juga seorang pendeta.
 
 Karakter Zhang yang sama juga dipakai untuk Zhang Lao (长老), jabatan bagi penatua Kai Pang dan organisasi lain.
+
