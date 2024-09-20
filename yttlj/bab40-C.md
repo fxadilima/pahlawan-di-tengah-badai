@@ -269,14 +269,16 @@ tidak segera mengambil tindakan, kami kuatir korban jiwa akan lebih banyak lagi.
 
 Zhang Wuji melangkah maju dan berkata, "Itu memang benar. Karena itu kami memang sudah memutuskan untuk segera 
 menangani masalah ini. Dan kita akan mulai dari wilayah selatan." Ia berhenti sejenak, dan berbisik kepada Ki Seung Nyang, 
-"Bibi, jika aku mengambil pos di kota Xiangyang, apakah Bibi akan mendukungku?" Ki Seung Nyang segera mengiyakan dengan 
-mantap. "Hm!" katanya. "Bibi mendukungmu seratus persen. Kita akan membicarakan detilnya setelah ini."
+"Bibi, jika aku mengambil pos di kota Xiangyang, apakah Bibi akan mendukungku?" 
+
+Ki Seung Nyang segera mengiyakan dengan mantap. "Hm!" katanya. "Pilihan yang bagus! Bibi mendukungmu seratus 
+persen. Kita akan membicarakan detilnya setelah ini."
 
 Zhang Wuji melanjutkan, "Seperti yang sudah kuperintahkan tadi sore, dan sudah diketahui semua orang, setelah ini 
 kita akan punya cukup banyak prajurit yang siap siaga di kota Xiangyang. Tempat ini sangat strategis, karena mudah dijangkau 
 dari Wudang, dan tidak terlalu jauh dari Henan maupun Jiangnan. Ini juga memudahkan kita untuk melakukan pengawasan terhadap 
 wilayah bermasalah seperti Hanyang dan juga Suzhou, yang kami perkirakan akan menjadi sasaran Zhang Sicheng dalam 
-waktu dekat ini. Sampai sekarang kita..." 
+waktu dekat ini. Selain itu kita akan cukup dekat dengan Shaolin, yang terletak di Henan. Sampai sekarang kita..." 
 
 Kalimatnya terputus karena pada saat itu Yang Xiao memberi isyarat bahwa mereka baru saja menerima kabar penting.
 Yang Xiao segera maju sambil membawa sebuah surat yang segera diserahkan kepada Zhang Wuji. Setelah membacanya, 
@@ -491,14 +493,14 @@ sampai akhirnya Yin Li pergi, dan sampai hari ini mereka tak pernah mendengar ka
 
 Tanpa terasa air mata Ki Seung Nyang menetes ketika mendengar akhir cerita itu. Berkali-kali ia menggeleng-gelengkan 
 kepalanya dengan sedih, lalu ia menatap mata Zhou Zhiruo dengan serius sambil berkata, "Zhiruo, seandainya suatu 
-hari nanti — ini memang hanya seandainya — tapi seandainya kalian bertemu lagi dengan Yin Li, dengan salah satu cara, 
-kalian _harus_ memperlakukannya dengan baik." Ia menghapus air mata Zhou Zhiruo dengan sapu tangannya, lalu 
-menambahkan, "Kau mengerti maksudku, kan?"
+hari nanti — ini memang hanya seandainya — tapi seandainya kalian bertemu lagi dengan Yin Li, dengan salah 
+satu cara — kalian _harus_ memperlakukannya dengan baik." Ia menghapus air mata Zhou Zhiruo dengan sapu tangannya, 
+lalu menambahkan, "Kau mengerti maksudku, kan?"
 
 Zhou Zhiruo kembali menangis sambil menganggukkan kepalanya.
 
 Ki Seung Nyang kembali mendesah, lalu berkata, "Bagaimana seandainya suatu hari nanti kalian bertemu lagi 
-dengan Xiao Zhao, dan keadaan sudah berubah? Kurasa kau mengerti maksudku, kan?"
+dengan Xiao Zhao, dan saat itu keadaan sudah berubah? Kurasa kau mengerti maksudku, kan?"
 
 "Xiao Zhao sudah menjadi ketua Ming Jiao Persia," kata Zhou Zhiruo. "Dia kan tidak mungkin menikah dengan siapapun?"
 
@@ -548,21 +550,158 @@ menjalankan perananmu. Kalau ada sesuatu yang ingin kau tanyakan, kau bisa menul
 Bibi pasti segera membalasnya."
 
 Zhou Zhiruo tidak bisa memahami apa maksud Ki Seung Nyang, tetapi melihat ekspresi muka bibinya, ia tidak berani 
-bertanya lebih jauh. Ia hanya menyimpan semua itu di dalam hati.
+bertanya lebih jauh. Ia hanya menyimpan semua itu di dalam hati. Hatinya berdebar-debar mendengar Ki Seung Nyang 
+mengatakan bahwa dirinya akan menjadi seorang 'Ratu'. Sebelum ini Peng Yingyu pernah menyinggung hal yang sama, 
+dan ucapan itu seakan-akan melambungkannya ke dunia impian. Tetapi semuanya itu buyar setelah rangkaian peristiwa 
+yang berakhir dengan kekalahannya di Shaolin di tangan Gadis Berbaju Kuning, dan bahkan segala kejahatannya terbongkar. 
+Setelah itu ia sama sekali tidak memikirkan hal ini lagi. Sekarang untuk pertama kalinya ia mendengar orang mengatakannya 
+lagi, dan sekali ini segalanya terasa sangat masuk akal. Ia berusaha menutupi gejolak hatinya sambil mengemasi barang-barang 
+pribadinya yang masih tersisa.
 
 Setelah itu mereka berkumpul dengan Zhang Sanfeng dan murid-muridnya dari generasi pertama, Yang Xiao, Fan Yao, 
-dan para pejabat tinggi Ming Jiao lainnya, dan merencanakan detil-detil perjalanan ke Xiangyang itu dengan cermat.
+dan para pejabat tinggi Ming Jiao lainnya. Mereka merencanakan detil-detil perjalanan ke Xiangyang itu dengan cermat.
 Semua orang tidak tidur malam itu. Mereka hanya sempat beristirahat sejenak sebelum berangkat.
 
+Zhou Zhiro sempat tertidur selama setengah jam sebelum dibangunkan oleh Zhao Min. Ia sempat bermimpi bertemu 
+dengan Miejue Shitai dalam mimpi itu, tetapi kali ini ia melihat gurunya sedang tersenyum bangga.
 
 ***
 
 Zhang Wuji berangkat sebelum fajar menyingsing bersama dengan seratus orang pasukan berkuda. Para pendekar 
 yang menjadi tamu mereka itu semuanya ikut mengantarnya untuk memasuki kota Xiangyang. Zhou Zhiruo dan Zhao Min 
-naik kereta yang baru, di kelilingi oleh beberapa pengawal berkuda.
+naik kereta yang baru, di kelilingi oleh beberapa pengawal berkuda. 
 
-Jarak dari Perguruan Wudang ke Xiangyang sangat dekat, tetapi karena mereka berjalan santai untuk menyapa 
-para penduduk desa di sepanjang jalan yang mereka lalui, maka perjalanan itu memakan waktu lebih dari sehari.
+Di dalam kereta Zhao Min menguap, tetapi masih bisa bercanda, "Sayangnya semalam Huang Hou tidak sempat menikmati 
+malam pengantinnya. Tapi tidak apa-apa, kita masih punya banyak waktu di Xiangyang nanti."
+
+Zhou Zhiruo mencubit pinggangnya dengan gemas. Zhao Min mengaduh, tapi tertawa keras-keras. "Jangan main-main 
+dengan istilah itu, sungguh tidak lucu!" kata Zhou Zhiruo dengan muka serius.
+
+"Aku tidak main-main," kata Zhao Min. "Melihat dari omongan Bibi Qi, dia pasti sudah merencanakan hal itu. Jadi kurasa 
+kau bisa tenang. Aku sama sekali tidak punya harapan." Ia tertawa lagi.
+
+Zhou Zhiruo agak heran, kelihatannya Zhao Min bisa menduga apa saja yang mereka bicarakan setelah ia disuruh pergi.
+Tapi ia tahu otak Zhao Min memang sangat cerdas, jadi sebetulnya tidak aneh. "Kau kelihatannya sangat akrab dengan 
+Bibi Qi ya?"
+
+"Terlalu akrab sih tidak," kata Zhao Min lagi. "Kalau dihitung-hitung aku hanya pernah bertemu dengannya tak lebih 
+dari sepuluh jari ini." Ia membentangkan kedua tangannya sambil tertawa lagi. Lalu ia mengeluarkan sebuah belati dari 
+bajunya. Belati itu tampak sangat mewah dan ketika dihunus jelas sekali sangat tajam. Zhao Min berkata sambil 
+menyentil ujung belati itu dengan jarinya, "Ini hadiah dari Bibi ketika aku pertama kali bertemu dengannya di istana. 
+Waktu itu aku baru kira-kira dua belas tahun. Ayah mengajak kami semua menghadiri acara kecil atas undangan kaisar.
+Selain belati ini, dia juga memberikan seperangkat busur dan anak panah, yang sampai sekarang masih kusimpan dengan 
+baik di kamarku, di Henan."
+
+Zhou Zhiruo baru teringat, selama ini Zhao Min sama sekali belum pernah pulang kembali ke rumahnya. Ia bertanya 
+dengan penuh perhatian, "Meizi, kau tidak merindukan keluargamu?"
+
+"Tentu saja aku merindukan mereka," kata Zhao Min dengan sedih. "Ibuku pasti terus memikirkan aku, kasihan dia. 
+Sebetulnya aku sendiri tidak terlalu dekat dengan ibuku, dia selalu menganggapku seperti laki-laki." Ia tertawa 
+kecil, agak kekanak-kanakan, lalu melanjutkan, "Sejak kecil ayah selalu memanjakan aku, tapi kemudian dia mencoretku 
+dari keluarga. Itu bisa dimengerti."
+
+"Bagaimana dengan Wang Baobao?" tanya Zhou Zhiruo ingin tahu.
+
+"Dia memang sangat menyayangiku, tapi dia sudah pasti tidak berani menentang ayah," kata Zhao Min. "Waktu kita 
+sedang makan di Xiangyang, kau juga dengar bahwa ayahku sedang berada di sekitar Jiangnan. Pada saat seperti itu 
+semua urusan di Henan yang menjadi wilayah kekuasaan ayah pastilah diserahkan kepadanya. Nantinya dialah yang akan 
+mewarisi jabatan ayah sebagai Raja Ruyang, menjadi gubernur. Meskipun dia bukan anak kandung ayah, tapi ayah sangat 
+menyayanginya."
+
+"Kalau dilihat dari namanya, berarti ayahnya memang berasal dari keluarga Wang ya?" tanya Zhou Zhiruo lagi.
+
+"Betul," jawab Zhao Min sambil tertawa bebas. "Marga itu berasal dari kakeknya, yang memang berasal dari suku Han. Neneknya 
+adalah seorang Bayad Mongol. Ibunya adalah kakak perempuan ayah, jadi seorang wanita Naiman. Jadi bukan seperti 
+namaku, yang kukarang sendiri. Tentu saja aku tidak ada hubungannya dengan keluarga Zhao manapun juga."
+
+"Tadinya kupikir kaulah yang akan mewarisi jabatan ayahmu," kata Zhou Zhiruo heran. 
+
+"Oh, itu pasti karena aku seorang Junzhu ya?" kata Zhao Min. "Zhou Jiejie, kau perlu tahu. Ayahku sebenarnya bukan 
+berasal dari keluarga bangsawan Mongolia. Ketika aku dilahirkan, ayahku hanya seorang pejabat rendah. Gelar sebagai 
+raja itu didapatnya belum terlalu lama ini. Gelar Shaomin Junzhu itu adalah pemberian kaisar, jadi tidak ada hubungannya 
+dengan ayahku. Tetapi karena saat itu aku sendiri masih kecil, maka untuk mengelola wilayah yang menjadi tanggung jawabku,
+ayahkulah yang mewakilinya."
+
+"Ah, ternyata itu sebabnya Delapan Panah Dewa, dan juga Fan Youshi, masih juga memanggilmu Junzhu," kata Zhou Zhiruo 
+sambil tersenyum lebar. "Aku baru mengerti. Jadi meskipun ayahmu tidak lagi mengakuimu sebagai anaknya, kau masih 
+tetap berhak memakai gelar itu ya?"
+
+Zhao Min menyeringai lebar, lalu berkata, "Aku sudah tidak terlalu memusingkan soal ini. Tapi memang gelar itu tidak bisa 
+dihapus begitu saja, karena adalah pemberian kaisar. Kecuali kalau kaisar sendiri yang menghapus gelar itu, tidak 
+ada orang yang berhak menghapusnya. Aku selalu mengatakan supaya mereka tidak lagi memanggilku Junzhu adalah karena 
+orang-orang seperti Zhu Yuanzhang selalu mencari kesempatan untuk memojokkan Wuji Gege dengan memakai fakta bahwa 
+aku adalah seorang Junzhu, padahal ini sungguh keliru. Sayangnya kalian sudah terlanjur dipengaruhi ajaran yang 
+berasal dari Peng Yingyu, yang memang sengaja mengobarkan kebencian kepada orang-orang Mongolia untuk membangkitkan 
+pemberontakan di mana-mana."
+
+Uraiannya membuat Zhou Zhiruo melamun. Anak manja ini sungguh tidak banyak berpikir jika menyangkut Zhang Wuji. Ia 
+bisa mengorbankan apa saja yang dimilikinya. Dalam hal ini ia dan Xiao Zhao sama persis. Zhou Zhiruo tidak dapat 
+memahami apa tepatnya ajaran Peng Yingyu yang dimaksud Zhao Min itu. Ia baru hendak bertanya, tetapi saat itu Zhao Min 
+menguap berkali-kali. Rupanya angin sepoi-sepoi yang masuk melalui tirai penutup kereta membuatnya mengantuk. Ia meluruskan 
+kakinya dan berkata dengan manja, "Aku sangat lelah. Zhou Jiejie, aku boleh tidur sebentar di pangkuanmu ya?"
+
+Zhou Zhiruo segera mengiyakan, dan tanpa membuang waktu Zhao Min meletakkan kepala di atas pangkuannya. Ia mengambil 
+sehelai jubah panjang untuk menyelimuti Zhao Min, lalu membelai rambutnya dengan lembut. Tak lama kemudian Zhao Min 
+tertidur pulas. Jalanan yang mereka lalui sangat rata, sehingga mereka merasa nyaman di dalam kereta besar itu. Ia membiarkan 
+Zhao Min memeluk tangan kirinya dengan manja, dan mengamati gadis itu tidur nyenyak sampai ia sendiri juga tertidur.
+Ia baru terbangun ketika mereka tiba di jalan yang agak berbatu-batu, dan saat itu matahari sudah mulai naik. Tampaknya 
+mereka tiba di sebuah desa kecil yang tidak terlalu padat penduduk. Ketika mendengar suara-suara penduduk desa yang 
+ramai bertanya kepada para pengawal mereka, Zhao Min terbangun, lalu membuka jendela untuk melongok keluar dan 
+tersenyum ramah sambil melambaikan tangan kepada para penduduk yang menyapa mereka, "Furen, Furen!"
+
+Zhou Zhiruo meminta supaya kereta berhenti sejenak, dan ia turun bersama Zhao Min untuk berkenalan dengan para 
+wanita yang berbondong-bondong keluar dari rumah untuk berkenalan dengan mereka. Beberapa orang membawa buntalan 
+berisi roti bundar dan bakpao, dan memberikannya kepada kedua wanita itu. Sambil berterima kasih Zhou Zhiruo dan Zhao Min 
+masing-masing mengambil sepotong roti, dan membagikan sisanya kepada para pengawal mereka. 
+
+Salah seorang wanita yang berusia setengah baya berkata, "Furen, kami sudah mendengar tentang perjuangan Zhang Jiaozhu. 
+Anak-anak di desa ini ingin mengikuti rombongan kalian." Sambil bicara ia melambaikan tangan kepada belasan pemuda 
+desa yang tampaknya masih berusia di bawah dua puluh tahun. Mereka sedang berdiri di pematang sawah sambil memanggul 
+cangkul. Ketika melihat ibu mereka sedang berbicara dengan Zhou Zhiruo dan Zhao Min, mereka tampak sangat gembira, 
+lalu bergegas mendatangi kereta dengan penuh semangat. 
+
+Zhao Min menoleh kepada Zhang Wuji yang turun dari kudanya setelah mendengar ucapan ibu-ibu di desa itu. Ketika 
+ia menyapa para penduduk desa yang sedang mengobrol dengan Zhou Zhiruo dan Zhao Min, mereka semua membungkuk untuk 
+memberi hormat. Tetapi Zhang Wuji buru-buru mencegahnya sambil berkata bahwa sikap itu agak berlebihan. 
+
+Seorang pria setengah baya berkata, "Kami sudah lama mendengar cerita tentang Zhang Jiaozhu. Para anggota 
+Hongjin Qiyi itu seringkali keterlaluan, tapi kami tahu Zhang Jiaozhu baik. Jiaozhu tidak sembarangan membunuh orang."
+
+Zhang Wuji sangat terkejut mendengar ucapannya. "Paman, para anggota Hongjin Qiyi sangat dekat dengan kami. Jika 
+paman mendengar atau melihat sendiri mereka melakukan sesuatu yang jahat, tolong segera laporkan kepada kami. Kami 
+sedang menuju ke kota Xiangyang. Mulai sekarang Xiangyang akan menjadi markas kami, di samping Guangming Ding."
+
+Ia melambaikan tangan kepada Yang Xiao dan Fan Yao yang bergegas turun dari kuda untuk mendatanginya. Mereka 
+mendengarkan keterangan para penduduk desa dengan seksama. Beberapa pemuda tanggung juga menceritakan tentang 
+tindakan sadis yang dilakukan oleh para anggota Hongjin Qiyi di beberapa tempat kepada prajurit Dinasti Yuan yang 
+mereka tangkap. Pemuda lainnya menceritakan apa yang dilihatnya sendiri di tempat lain. "Mereka merampok dan memperkosa 
+penduduk desa lain," katanya.
+
+"Yang Zuoshi, masalah ini harus cepat ditangani sampai tuntas," kata Zhang Wuji.
+
+Yang Xiao segera mengiyakan, lalu berkata, "Saudara-saudara, kami berterima kasih atas laporan kalian semua. Kami 
+akan menyelidiki masalah ini, dan akan menghukum pelakunya dengan berat. Kami memang punya beberapa dugaan, tetapi 
+untuk sementara hal ini belum bisa diungkapkan. Yang jelas kami tidak pernah memerintahkan para anggota kami untuk 
+melakukan hal-hal ini. Zhang Jiaozhu sendiri sudah menetapkan banyak aturan baru yang melarang tindakan semacam ini."
+
+"Zhang Jiaozhu orang baik," kata salah seorang pemuda. "Kami percaya! Apa yang baru terjadi di Hanyang membuat rakyat 
+ketakutan, kami tidak menginginkan perang. Perang hanya menyengsarakan rakyat!"
+
+Bulu kuduk Yang Xiao merinding mendengar para penduduk desa itu mulai meneriakkan yel-yel untuk mendukung Zhang Wuji, 
+dan mereka juga meneriakkan yel-yel untuk menentang Hongjin Qiyi. Ini sungguh di luar dugaannya, tetapi mereka tidak 
+bisa mencegah para penduduk itu mengikuti rombongan mereka sambil membawa cangkul.
+
+Ketika kembali meneruskan perjalanan, Zhao Min dan Zhou Zhiruo ikut berkuda di sisi Zhang Wuji sampai beberapa _li_.
+
+Zhang Wuji menoleh kepada Yang Xiao dan berkata dengan muka serius, "Yang Zuoshi, Fan Youshi, tindakan seperti yang 
+pernah dilakukan oleh Zhu Yuanzhang dan kawan-kawannya itu untuk selanjutnya tidak boleh kita tolerir lagi." Kata-katanya 
+sangat tegas dan tidak mungkin dibantah. Kedua orang itu hanya bisa mengiyakan.
+
+"Ini juga tidak boleh dilakukan terhadap orang-orang Mongolia," kata Zhang Wuji lagi. "Tidak peduli mereka tentara 
+atau bukan!"
+
+Jarak dari Perguruan Wudang ke Xiangyang sangat dekat, tetapi karena mereka berjalan santai sambil menyapa 
+para penduduk desa di sepanjang jalan yang mereka lalui, maka perjalanan itu memakan waktu lebih dari dua hari.
 
 Arak-arakan itu disambut meriah di mana-mana, karena para penduduk di sekitar pegunungan Wudang sudah lama mendengar 
 kiprah Ming Jiao dan nama Zhang Wuji. Ketika mendengar bahwa mereka sedang berarak menuju ke kota Xiangyang, banyak 
@@ -570,7 +709,7 @@ orang mulai mengikuti mereka, sehingga jumlah rombongan itu bertambah tiga kali 
 matahari semakin naik, jumlah itu menjadi jauh lebih banyak lagi, dan rata-rata orang yang bergabung adalah para 
 pemuda dari kalangan petani.
 
-Ki Seung Nyang telah menginstruksikan Zhou Zhiruo dan Zhao Min untuk bersikap ramah kepada siapa saja yang 
+Ki Seung Nyang telah menginstruksikan kepada Zhou Zhiruo dan Zhao Min untuk bersikap ramah kepada siapa saja yang 
 mereka jumpai di jalan, karenanya mereka sesekali membuka jendela kereta untuk menyapa para penduduk desa. 
 Reaksi ini memang sudah diperkirakan sejak awal oleh semua pendukung Zhang Wuji, mereka menerima 
 setiap orang yang ingin ikut bergabung dalam arak-arakan itu dengan tangan terbuka. Setiap kali mereka berhenti 
@@ -588,16 +727,232 @@ biang keladi pemberontakan itu, tetapi jumlahnya tidak banyak.
 
 Menjelang senja, rombongan yang berarak itu telah mencapai ribuan orang, sebagian besar di antaranya adalah 
 rakyat jelata. Zhang Wuji mulai memberikan pengarahan supaya semua orang tertib dan tidak melakukan hal-hal 
-yang melanggar hukum setempat. Himbauannya dipatuhi dengan sukarela.
+yang melanggar hukum setempat. Himbauannya dipatuhi dengan sukarela. 
 
-Melihat betapa besarnya dukungan rekyat kepada Zhang Wuji, semangat para pengikutnya berkobar-kobar. Para anggota 
-Kai Pang bersama dengan seratus orang prajurit berkuda bekerja sama untuk mengatur rombongan itu menjadi barisan 
-yang rapi dan tertib. Setiap kali mereka memasuki kota kecil, Zhou Zhiruo dan Zhao Min keluar dari kereta dan 
-berkuda di sisi kiri dan kanan Zhang Wuji. Mereka melambaikan tangan kepada para penduduk yang telah mendengar bahwa 
-rombongan mereka akan melintas di situ. 
+Setelah turun dari Wudang Shan, mereka memilih jalan menyusuri pinggiran Sungai Han yang mengalir dari arah 
+Yunxian, dan tak lama kemudian tiba di sebuah tempat yang membuat hati Zhou Zhiruo berdebar-debar. Ia tersenyum lebar 
+sambil merentangkan kedua tangannya sambil menengadah ke langit, lalu turun dari kudanya sambil menatap Zhang Wuji.
 
+"Wuji Gege, Han Jiang![^han-jiang]" katanya dengan gembira.
 
+[^han-jiang]: Han Jiang (汉江) atau Sungai Han adalah cabang atau anak sungai dari Sungai Yangtze, sungai terpanjang di Asia. Sungai Han sendiri adalah anak sungai terpanjang dari Sungai Yangtze.
 
-Saat itu mereka telah memasuki tahun 1657 menurut perhitungan tahun Masehi. 
+Zhang Wuji bergegas turun dari kuda, lalu berjalan di sisi Zhou Zhiruo. Zhao Min yang ikut di belakangnya tidak bisa 
+memahami apa yang membuat Zhou Zhiruo tampak begitu gembira. Hanya Zhang Wuji yang tahu apa yang ada di benak Zhou Zhiruo. 
+Di tempat inilah mereka untuk pertama kalinya bertemu. Ia sedang bersama dengan Zhang Sanfeng, hendak kembali ke Wudang, 
+pulang dari perjalanan mereka yang sia-sia ke Kuil Shaolin untuk memohon ijin kepada Kongwen Dashi untuk mempelajari tenaga dalam 
+yang bisa menyembuhkan luka dalamnya. Di sini juga mereka bertemu dengan Chang Yuchun. Dan di tempat inilah ayah 
+Zhou Zhiruo tewas dianiaya oleh prajurit Dinasti Yuan.
+
+Zhang Wuji mengerti kenapa saat ini perasaan Zhou Zhiruo campur aduk, tetapi ia tidak bisa memahami apa yang membuat 
+istrinya tampak begitu gembira. Tanpa malu-malu Zhou Zhiruo bersandar manja di dadanya, dan melingkarkan kedua tangan di 
+pinggangnya.
+
+Zhao Min mendengus. "Tak tahu malu!" omelnya, tapi sambil tersenyum. "Rupanya ini tempat kenangan kalian sejak kecil ya? 
+Pantas saja kau begitu gembira."
+
+"Saat itu Wuji Gege sangat lemah, kena pukulan Xuanming Er Lao," kenang Zhou Zhiruo. "Tapi coba lihat sekarang, 
+dia sekuat kuda jantan!"
+
+Zhang Wuji terkenang wajah cantik Zhou Zhiruo kecil yang tampak enggan berpisah dengannya di tepian sungai ini, 
+tepat di tempat yang sama seperti sekarang, ketika Zhang Sanfeng membawanya ke Wudang, dan dia sendiri harus ikut 
+bersama Chang Yuchun ke Lembah Kupu-kupu untuk menemui Hu Qingniu.
+
+Ia mencium kening Zhou Zhiruo sambil berkata, "Mungkin ayahmu memberkati kita, karena itu aku selamat."
+
+Zhao Min meregangkan otot-ototnya sambil memghirup udara segar banyak-banyak. Ia melihat Fan Yao sedang berjalan 
+ke arah mereka, lalu melambaikan tangan memanggilnya, "Shifu, Shifu, mereka menganiaya aku!"
+
+Zhang Wuji dan Zhou Zhiruo tertawa. "Fan Youshi, tolong katakan kepada semua orang, kita bermalam di sini saja. 
+Tempat ini sangat indah. Tapi di mana kita mencari makan malam untuk orang sebanyak ini ya?"
+
+Mereka berjalan kembali ke arah kereta, di mana para prajurit sedang berkumpul sambil minum air yang mereka ambil 
+dari sungai itu. Zhao Min masuk ke dalam kereta dan keluar lagi sambil membawa busur dan anak panah.
+
+"Soal makan malam, gampang saja, serahkan kepadaku," katanya. Ia berkata kepada para pengawal yang sedang 
+beristirahat itu, "Kalian semua, ikut aku! Kita akan bersenang-senang sebentar sebelum gelap!"
+
+Ia melompat ke atas kudanya, lalu menarik tali kekangnya dengan gembira. Kuda itu meringkik sambil menaikkan kaki depannya, 
+seakan-akan merasakan kegembiraan Zhao Min, lalu lari berputar beberapa kali mengelilingi para prajurit.
+
+"Xiao Furen, kita mau ke mana?" tanya salah seorang dari mereka.
+
+"Mencari makan malam," jawab Zhao Min sambil menyeringai lebar. "Kita berburu!"
+
+Ajakan itu disambut dengan sorak-sorai oleh para prajurit. Mereka menaiki kuda masing-masing dengan gembira, lalu 
+mengikuti Zhao Min memasuki hutan.
+
+Keahlian memanah Zhao Min membuat mereka sangat kagum. Dalam waktu singkat rombongan itu berhasil mengumpulkan 
+sepuluh ekor babi hutan yang gemuk-gemuk, puluhan ekor ayam dan angsa liar. Hutan itu ternyata sangat kaya akan 
+binatang buruan. Tak sampai setengah jam mereka sudah siap kembali ke perkemahan yang mereka dirikan di tepi sungai.
+
+Tiba-tiba mata Zhao Min yang tajam melihat seekor kuda merah yang sedang berdiri di bawah sebuah pohon pinus. 
+Kuda itu tidak berpelana, tampaknya seekor kuda liar. Ia memberi isyarat kepada pasukannya untuk berhenti dan 
+bersikap tenang sambil mengawasi kuda itu baik-baik dari kejauhan. Saat itu kilau matahari senja membuat warna 
+bulu kuda itu sangat memukau. Salah seorang prajurit berkata, "Xiao Furen, itu kelihatannya seperti Kuda Ferghana 
+milik Kaisar Wu dari Dinasti Han yang sering diceritakan orang. Pendekar Besar Guo Jing juga memiliki kuda seperti ini. 
+Kata orang, kudanya muncul begitu saja entah dari mana. Saat itu tak seorang pun mampu menungganginya, hanya Pendekar Guo 
+sendiri yang berhasil menjinakkannya."
+
+"Hm!" Zhao Min tersenyum lebar. "Begitukah? Tiba-tiba aku merasa kuda ini sengaja menungguku di sini."
+
+Ia turun dari kuda tunggangannya, lalu pelan-pelan mulai bergerak mendekati kuda merah itu. Kuda itu berbalik ke arahnya, 
+lalu balas menatapnya lekat-lekat. Zhao Min makin mendekat dengan hati-hati, lalu mulai mengajaknya bicara. Para 
+prajurit saling pandang dengan heran, tapi tak seorang pun berani berkomentar.
+
+Zhao Min membalas tatapan kuda itu dengan tenang. Ia berbisik dari jarak sekitar lima meter, "Tenang, Kawan... Santai 
+saja, aku bukan musuhmu. Aku tahu kau sudah lama menungguku di sini, kan? Sekarang aku datang, jangan takut."
+
+Kuda itu mundur selangkah, lalu menyepak-nyepak dengan kaki belakangnya. Tiba-tiba ia meringkik panjang sambil mengangkat 
+kaki depannya, kemudian kembali menatap Zhao Min dengan curiga.
+
+"Hati-hati, Xiao Furen!" seru salah seorang prajurit. "Kuda itu sangat liar!"
+
+Zhao Min menatap mata kuda merah itu sampai lama sekali. Lalu tiba-tiba ia melompat secepat kilat menaiki pungunggungnya, 
+dan langsung memeluk lehernya erat-erat. Kuda merah itu meronta liar sambil menggerak-gerakkan kepalanya untuk melepaskan 
+pelukan Zhao Min, tetapi usahanya gagal. Ia lalu bergerak mendadak sambil menghentak-hentakkan kaki depannya dan 
+berdiri setegak mungkin menggunakan kaki belakangnya untuk menjatuhkan Zhao Min, tetapi setelah satu-dua menit 
+usahanya tetap gagal. "Bagus, bagus!" bisik Zhao Min sambil tetap memeluknya erat-erat. "Kau ingin berkenalan, aku 
+akan melayani keinginanmu."
+
+Berikutnya kuda itu menyentakkan kaki belakangnya bergantian untuk melontarkan Zhao Min dari punggungnya, tetapi 
+kedua kaki Zhao Min menjepit perutnya kuat-kuat. Ia menjadi penasaran, lalu mendadak melompat ke depan beberapa kali 
+dengan gerakan mengejut, tetapi Zhao Min tetap memeluknya sekuat tenaga sambil menjepit perutnya dengan menggunakan kakinya.
+Setelah kira-kira sepuluh menit, Zhao Min mulai berkeringat. Ia hampir menyerah, tenaga kuda merah ini kuat sekali.
+Tetapi ia tetap berbisik dengan lembut ke telinga kuda itu, "Semakin kuat kau berontak, aku semakin menyukaimu. Sampai 
+kapanpun aku tidak akan melepaskanmu, Kawan!"
+
+Pergumulan itu masih berlangsung sekitar dua menit lagi, dan akhirnya kuda merah itu berhenti meronta. Ia mulai berjalan 
+berkeliling dengan tenang dan anggun sambil mengangguk-anggukkan kepalanya. Pelan-pelan Zhao Min mengendurkan pelukannyam 
+dan kuda itu berlari dengan tenang mengelilingi para prajurit tanpa berusaha melontarkan Zhao Min dari punggungnya lagi.
+Saat itu Zhao Min tahu, mulai sekarang kuda ini adalah miliknya, dan tidak akan pernah meninggalkannya seumur hidup.
+
+Sorak-sorai para prajurit bergema di hutan itu untuk mengelu-elukan Zhao Min. Kuda itu masih berlari dua putaran lagi 
+mengelilingi para prajurit dengan anggun, lalu berhenti di bawah sebuah pohon besar. Zhao Min mengelus-elus lehernya 
+dengan penuh perasaan, dan menepuk-nepuk punggungnya dengan bangga, lalu turun dari punggung kuda barunya. Kuda itu 
+mendekatkan mukanya ke muka Zhao Min, lalu menjilat pipinya.
+
+Matahari mulai menghilang sebagian di ufuk barat ketika mereka kembali ke tepi sungai. Zhao Min menunggangi kuda merahnya 
+dengan bangga sambil menenteng busurnya. Semua orang terpesona menyaksikan pemandangan itu dari kejauhan. Zhou Zhiruo 
+langsung mengajak semua orang menyalakan api unggun untuk memasak semua binatang buruan itu, mereka membersihkan 
+semuanya di sungai.
+
+"Untuk urusan begini kau memang hebat," katanya dengan gembira. Ia sama sekali tidak memperhatikan kuda yang ditunggangi 
+Zhao Min, karena ia memang tidak terlalu mengenal kuda. Baginya kuda itu tampak sama saja seperti kuda-kuda lainnya.
+
+Tetapi Fan Yao segera tahu bahwa kuda merah itu adalah seekor kuda liar yang baru ditaklukkan Zhao Min. Saat itu 
+Zhao Min sudah turun dari punggungnya, tetapi kuda itu masih terus mengikutinya kemanapun ia pergi.   
+
+"Kuda hebat!" puji Fan Yao sambil mengelus punggung kuda itu. "Di mana kau menemukannya?"
+
+Zhao Min menyeringai lebar sambil berkata, "Sepertinya kami sudah lama kenal, dia menungguku di bawah pohon. 
+Aku mengajaknya berolahraga sebentar." Ia berjalan mendahului ke tepi sungai, lalu menepuk punggung kuda itu 
+sambil berbisik ke telinganya, "Hong Ma, kau pasti haus! Sekarang kau boleh minum sepuasnya."
+
+Seolah mengerti kata-katanya, kuda itu berjalan dengan anggun ke tepi sungai untuk minum sepuasnya. Setelah itu 
+ia kembali lagi ke dekat Zhao Min, dan membiarkan lehernya dipeluk sambil menjilat pipi Zhao Min.
+
+Salah seorang prajurit membawa segerobak penuh rerumputan segar yang baru mereka kumpulkan untuk memberi makan kuda. 
+Zhao Min mengambil sedikit, dan menyuapkannya ke mulut kuda merahnya. Kuda itu tampak gembira, ia makan dengan lahap.
+Sambil mengelus kepalanya Zhao Min berbisik, "Sekarang kau boleh mencari sendiri makanan kesukaanmu dan makan sepuasnya.
+Jangan lupa kembali ke sini, ya?"
+
+Seperti memahami maksud majikan barunya, kuda merah itu mulai berjalan ke pinggiran hutan dan merumput di situ.
+"Kelihatannya kuda itu sangat cocok dengan Junzhu," kata Fan Yao. "Kalian berdua sepertinya saling memahami."
+
+Beberapa prajurit mendekat sambil tertawa. "Fan Youshi, kau harus melihat bagaimana Xiao Furen menaklukkan kuda 
+itu tadi. Rasanya tak ada orang sanggup melakukannya. Ini seekor Kuda Ferghana, seperti kuda milik Kaisar Wu!"
+
+"Dan juga kuda Pendekar Besar Guo!" sambung Yang Xiao. "Ini sungguh pertanda bagus, kita sedang menuju ke Xiangyang, 
+dan Junzhu menemukan kuda Pendekar Besar Guo Jing!"
+
+Mereka semua tentu saja tahu, Guo Jing dianggap sebagai pahlawan besar yang mempertahankan kota Xiangyang di masa lalu. 
+Kubilai Khan memang akhirnya menaklukkan Xiangyang, tetapi ia juga sangat menghormati Guo Jing.
+
+"Yang jelas kita bukan bermaksud menyerang Xiangyang," kata Zhang Wuji. "Terus terang saja, aku sampai saat ini masih belum 
+tahu pasti apa yang akan kita kerjakan di situ. Aku hanya ingin berada di dekat Hanyang untuk mencegah Chen Youliang 
+melakukan tindakan yang merugikan semua orang. Ini pun sampai sekarang aku masih ragu, sebenarnya apa yang bisa 
+kita lakukan di situ."
+
+Para pendekar yang hadir di situ merasa geram. "Mengapa kita tidak langsung saja menduduki Hanyang? Bukankah kemarin kita dengar, 
+Chen Youliang baru mengambil alih Jiangxi dan Fujian, kemungkinan besar dia tidak ada di Hanyang. Takut apa sih?" tanya Tang Wenliang.
+
+"Ini tidak bisa," sahut Yang Xiao. "Bukan soal takut atau tidak. Saat ini Chen Youliang justru dianggap sebagai pahlawan 
+besar yang menyelamatkan Xu Shouhui dari pemberontakan Ni Wenjun, tidak peduli apapun juga anggapan kita tentang 
+peristiwa itu. Rakyat justru melihatnya demikian. Jika kita sembarangan bergerak, bukankah kita akan dianggap 
+perusuh yang ingin menggulingkan pemerintahan?"
+
+He Taichong bertanya dengan heran, "Bukankah mereka semua tunduk kepada Zhang Jiaozhu?"
+
+Fan Yao menjawab, "Xu Shouhui sendiri berasal dari Hongjin Qiyi. Kelompok ini memang dekat dengan Ming Jiao, dari sisi 
+ajaran agama. Tetapi pada prakteknya mereka tetaplah bukan berasal dari satu organisasi yang sama, jadi kita tidak 
+punya kendali langsung atas gerakan mereka. Xu Shouhui tetap memelihara hubungan baik dengan Zhang Jiaozhu dan kami 
+semua, tetapi nyatanya dia menolak usulan kami mengenai Chen Youliang. Saudara-saudara, kami harap kita semua bisa 
+menahan diri dan menunggu saat yang tepat untuk bertindak. Ini tidak sama seperti mengatasi permasalahan di perguruan 
+silat kita masing-masing."
+
+Tang Wenliang berkata, "Jika melihat rombongan kecil kita ini ternyata berhasil mengumpulkan begitu banyak pengikut 
+dalam waktu singkat, aku tetap yakin Zhang Jiaozhu pasti bisa menyatukan semuanya."
+
+Zhang Wuji berkata, "Katakanlah kita memang berhasil mengumpulkan dukungan rakyat jelata, lalu bagaimana? Ini justru 
+membuatku sangat kuatir. Masa kita tega mengorbankan rakyat untuk melawan orang semacam Chen Youliang? Ini semua akan 
+menimbulkan perang, dan aku punya firasat akan berkembang menjadi perang yang cukup besar. Yang kita perlukan adalah 
+militer yang terlatih, jangan mengorbankan rakyat."
+
+Zhou Dian yang sejak kemarin lebih banyak diam sekarang mulai bicara, "Jiaozhu, mengapa kita tidak menangkap 
+Chen Youliang dengan memakai cara orang-orang Jianghu? Dengan begitu kita tidak usah memikirkan soal militer segala."
+
+Zhang Wuji tertawa. "Zhou Dage punya ide, sekarang dia ada di mana?" tanyanya.
+
+Tiba-tiba Wei Yixiao ikut bicara, "Hei, kurasa ini tidak sulit diselidiki. Kalau Jiaozhu mau, aku bisa menyelidikinya."
+
+Zhou Dian menepuk lututnya sendiri sambil tertawa girang. "Setuju! Biar aku ikut denganmu, kita akan melaporkan 
+penemuan kita ke Xiangyang. Kau tahu markas kita, kan?"
+
+"Baik!" kata Zhang Wuji. "Sekarang juga aku mengutus Zhou Dage dan Wei Fuwang untuk menyelidiki di mana Chen Youliang 
+berada. Kalau ketemu, segera kirimkan kabar ke Xiangyang. Aku akan segera meluncur ke situ bersama para pendekar sekalian,
+tapi jumlah orang yang ikut tidak boleh terlalu banyak, supaya tidak menarik perhatian."
+
+"Siap!" kata Zhou Dian dengan gembira. Ia memang sudah menunggu-nunggu perintah semacam ini.
+
+"Kurasa Wu Zhanglao bisa ikut bersama mereka," kata Zhang Wuji lagi. "Dari Hanyang ke Jiangxi, lalu ke Fujian, 
+itu bukan tugas ringan. Tugas seperti ini sangat sesuai dengan para anggota Kai Pang."
+
+Wu Zhanglao berkata, "Aku akan menempatkan banyak anggota Kai Pang di titik penting, supaya kita semua bisa selalu 
+saling berhubungan."
+
+Ia segera berangkat malam itu juga bersama dengan Wei Yixiao dan Zhou Dian.
+
+Setelah mereka pergi, Tang Wenliang mengepalkan tinjunya sambil berkata, "Akhirnya kita beraksi juga. Aku sudah tidak 
+sabar untuk menghajar keparat itu!"
+
+"Nah, nah!" kata Fan Yao sambil tertawa. "Kita jangan gegabah. Keparat itu justru jauh lebih licin dibandingkan gurunya."
+
+"Bisa bertahan sampai sekarang setelah gurunya mati, bahkan akhirnya menjadi panglima perang, jangan ditanya lagi!" sahut He Taichong.
+
+"Kurasa Cheng Kun sendiri memang tidak mampu memikirkan siasat sehebat itu," kata Yang Xiao. "Menghasut jendral seperti 
+Ni Wenjun untuk memberontak, lalu kemudian dia sendiri yang menghabisinya tepat sebelum orang itu bertindak. Orang ini 
+sungguh sulit dicari keduanya."
+
+Zhao Min mengambil persediaan kacang rebus dari dalam kereta dan membagi-bagikannya. Ia berkata, "Apa yang akan kita 
+lakukan setelah menemukannya?"
+
+"Kurasa kemungkinan besar dia dikawal ketat, itupun jika kita memang berhasil menemukannya," kata Fan Yao.
+
+"Orang memandangnya sebagai pahlawan, apa menurutmu dia masih perlu menghindari Zhang Jiaozhu?" tanya He Taichong.
+
+"Dia _pasti_ menghindari Jiaozhu," sela Yang Xiao. "Mungkin saja dia bisa mengelabuhi rakyat, tetapi dia tahu jelas 
+bahwa kita semua bisa menduga apa yang terjadi sebenarnya, meskipun kita tidak punya bukti. Setelah apa yang dilakukannya 
+di Shaolin, nyatanya dia memang selalu menghindari bertemu langsung dengan kita. Orang-orang seperti Ni Wenjun dan Xu Shouhui 
+adalah tempat perlindungan yang baik untuk dia."
+
+Saat itu Zhou Zhiruo datang bersama beberapa prajurit sambil membawa sepanci raksasa ubi rebus, dan beberapa 
+ekor ayam hutan dan angsa panggang yang baru matang. "Wah, aromanya harum sekali!" kata Zhao Min sambil mematahkan paha angsa dan 
+mengambil sebuah ubi yang cukup besar. "Aku sangat lapar."
+
+Setelah membagi-bagikan daging angsa dan ayam hutan itu, Zhou Zhiruo memanggil seorang prajurit untuk membawa arak.
+"Daging babi hutan agak lama, jadi untuk sementara ini dulu, sekedar untuk mengganjal perut," katanya.
+
+Dari tempat mereka duduk, aroma daging babi hutan yang dibakar telah tercium. Semua orang memuji masakan Zhou Zhiruo.
 
 
