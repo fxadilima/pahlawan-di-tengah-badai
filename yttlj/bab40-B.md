@@ -358,7 +358,7 @@ tanya. Tetapi Zhao Min juga tidak mengatakan apa-apa, jadi mereka hanya menunggu
 Fan Yao berkata dengan serius, "Jika nama asli Permaisuri Qi ini adalah Ki Seung Nyang, maka dia memang adalah adik 
 seperguruanku yang sudah lama hilang. Dia juga adik seperguruan Tajkis dan Yin Susu, ibunda Jiaozhu."[^kisah-1]
 
-[^kisah-1]: Jika Anda tidak mengikuti kisah ini dari [Bab 1](bab1 "Klik untuk membaca Bab 1"), dan hanya mengandalkan novel asli karya Jin Yong, maka dianjurkan untuk membacanya supaya bisa memahami jalan ceritanya dengan lebih baik.
+[^kisah-1]: Jika Anda tidak mengikuti kisah ini dari [Bab 1](bab1.md "Klik untuk membaca Bab 1"), dan hanya mengandalkan novel asli karya Jin Yong, maka dianjurkan untuk membacanya supaya bisa memahami jalan ceritanya dengan lebih baik.
 
 ***
 
