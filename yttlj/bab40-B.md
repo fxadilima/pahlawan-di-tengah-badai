@@ -1401,7 +1401,7 @@ Melihat air muka Yang Xiao dan Fan Yao, Ki Seung Nyang tersenyum tipis dan berka
 banyak orang menyamakan aku dengan Permaisuri Lu Zhi dari Dinasti Han[^empress-lu], 
 atau bahkan dengan Wu Zetian. Jadi kalian sekarang takut kepada Xiaomei?"
 
-[^empress-lu]: Lu Zhi adalah istri pertama pendiri Dinasti Han, Liu Bang, yang akhirnya menjadi permaisurinya setelah Dinasti Han berdiri.
+[^empress-lu]: Lu Zhi (呂雉 atau 吕雉) adalah istri pertama pendiri Dinasti Han, Liu Bang, yang akhirnya menjadi permaisurinya setelah Dinasti Han berdiri.
 
 Ia mendengar Fan Yao bertanya, "Apa yang terjadi sampai akhirnya mereka juga menjadi selir kaisar?"
 
