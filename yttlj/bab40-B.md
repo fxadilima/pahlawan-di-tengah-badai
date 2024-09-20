@@ -1397,10 +1397,15 @@ sekali tidak terusik oleh pembicaraan mereka. Tetapi semua orang lain tercengang
 semua penuturan Ki Seung Nyang. Zhao Min memang sering mendengar Ki Seung Nyang menceritakan 
 pengalamannya di masa muda, tetapi ia belum pernah mendengar sampai sedetil ini.
 
-Saat itu ia mendengar Fan Yao bertanya, "Apa yang terjadi sampai akhirnya mereka juga 
-menjadi selir kaisar?"
+Melihat air muka Yang Xiao dan Fan Yao, Ki Seung Nyang tersenyum tipis dan berkata, "Aku tahu, di luar sana 
+banyak orang menyamakan aku dengan Permaisuri Lu Zhi dari Dinasti Han[^empress-lu], 
+atau bahkan dengan Wu Zetian. Jadi kalian sekarang takut kepada Xiaomei?"
 
-Ki Seung Nyang tersenyum tipis dan berkata, "Er Shige, kalau aku harus menceritakan semua 
+[^empress-lu]: Lu Zhi adalah istri pertama pendiri Dinasti Han, Liu Bang, yang akhirnya menjadi permaisurinya setelah Dinasti Han berdiri.
+
+Ia mendengar Fan Yao bertanya, "Apa yang terjadi sampai akhirnya mereka juga menjadi selir kaisar?"
+
+Ki Seung Nyang tertawa dan berkata, "Er Shige, kalau aku harus menceritakan semua 
 yang terjadi pada saat itu, kurasa kau akan membutuhkan waktu berbulan-bulan untuk mendengarkan 
 ceritaku, padahal saat ini kita sedang ditunggu para tamu di Aula Utama. Untuk saat ini aku 
 hanya bisa mengatakan bahwa Mei Jian Shijie sebenarnya sudah lama menyukaimu, tapi waktu itu 
