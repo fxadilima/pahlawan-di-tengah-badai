@@ -1748,7 +1748,8 @@ orang-orang yang bisa melakukan tugas ini dengan baik."
 Chang Yuchun menenggak araknya yang terakhir sebelum berkata, "Siap!" Ia menoleh kepada Jiang He. "Komandan Jiang, 
 kau bisa mengambil semua seragam itu sekarang. Ukurannya akan kusesuaikan sendiri dengan orang yang akan kupilih nantinya."
 
-Kedua orang itu saling berjabat tangan sambil tertawa, lalu beranjak pergi untuk mulai melaksanakan tugas.
+Kedua orang itu saling berjabat tangan sambil tertawa, lalu beranjak pergi untuk mulai melaksanakan tugas. Tak lama 
+kemudian, prajurit utusan Xu Da itu juga minta diri untuk segera kembali ke Hanyang.
 
 Setelah mereka meninggalkan tempat itu, Zhao Min menyeringai lebar sambil berkata, "Kurasa aku tahu mengapa 
 kita tidak jadi ke Hanyang."
