@@ -1,18 +1,5 @@
----
-layout: page
-title: Bab 40 A
-author: FX. Adi Lima
-description: Ringkasan Bab 40 Golok Pembunuh Naga, awal pemberontakan Chen Youliang
----
 
 ## Bangkitnya Seorang Nelayan
-
-<div class="w3-bar">
-    <a class="w3-btn w3-bar-item w3-hover-black w3-left" href="/"><i class="fa fa-home"></i> HOME</a>
-    <a class="w3-btn w3-bar-item w3-hover-black w3-left" href="/parts/people">Daftar Karakter Utama</a>
-    <a class="w3-btn w3-bar-item w3-hover-black w3-left" href="bab40-extended"><i class="fa fa-arrow-left"></i> Prev</a>
-    <a class="w3-btn w3-bar-item w3-hover-black w3-right" href="bab40-B">Next <i class="fa fa-arrow-right"></i></a>
-</div>
 
 ![Ilustrasi Bab 40 A](/assets/images/han-shantong-2.jpg)
 
@@ -997,8 +984,4 @@ sudah lama merindukan Tai Shifu."
 Setelah menitipkan sebuah surat bagi Peng Yingyu kepada Wu Zhanglao, mereka bertiga segera berangkat kembali 
 menuju ke Wudang Shan bersama Yu Lianzhou.
 
-<div class="w3-bar w3-round w3-card-4">
-    <a class="w3-btn w3-bar-item w3-hover-black w3-left" href="/"><i class="fa fa-home"></i> HOME</a>
-    <a class="w3-btn w3-bar-item w3-hover-black w3-left" href="bab40-extended"><i class="fa fa-arrow-left"></i> Prev</a>
-    <a class="w3-btn w3-bar-item w3-hover-black w3-right" href="bab40-B">Next <i class="fa fa-arrow-right"></i></a>
-</div>
+

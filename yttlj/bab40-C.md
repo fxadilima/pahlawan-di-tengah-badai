@@ -1029,4 +1029,729 @@ Yang Xiao berkata, "Dia jelas sekali ingin memulihkan wibawanya sendiri. Ini waj
 
 Tiba-tiba Zhou Zhiruo bertanya, "Yang Zuoshi, kau pikir dia _mampu_ melakukannya?"
 
+Sebelum Yang Xiao sempat menjawab, Tang Wenliang mendahuluinya, "Dilihat dari apa yang terjadi, dia sudah pasti 
+tidak akan mampu melawan Chen Youliang. Jadi tindakannya ini konyol."
+
+"Betul," tambah He Taichong. "Kalau aku jadi dia, aku akan pura-pura bodoh dan tetap tinggal di Hanyang sambil menunggu 
+kesempatan untuk membalas."
+
+Tampaknya baik Yang Xiao maupun Fan Yao juga menyetujui pendapat itu.
+
+Zhou Zhiruo lagi-lagi bertanya kepada Yang Xiao, "Menurutmu bagaimana sebenarnya pemerintahan Xu Shouhui 
+selama ini di Tianwan?"
+
+Yang Xiao tidak segera menjawab, ia bertukar pandang dengan Fan Yao sambil tersenyum.
+
+Fan Yao berkata, "Xu Shouhui punya pandangan seperti kami semua di masa muda, yang semalam dikatakan Qi Shimei, 
+yaitu 'Merampok orang kaya untuk membantu orang miskin', karena itulah dia sangat populer dan disukai rakyat Tianwan, 
+terutama sekali di kalangan menengah ke bawah. Selama ini, prinsip inilah yang diterapkannya untuk mengelola negara."
+
+"Berarti sebenarnya dia kaisar yang baik," kata Zhang Wuji.
+
+Hampir semua orang mengangguk setuju mendengar komentarnya. 
+
+Tetapi Zhao Min berkata, "Itu tergantung bagaimana kau melihatnya."
+
+Semua orang menoleh kepadanya dengan pandangan bertanya. Zhang Wuji bertanya, "Apa maksudmu?"
+
+"Dengan prinsip itu, dia langsung menjadi musuh bagi orang-orang kaya di Tianwan," jawab Zhao Min dengan tenang. 
+"Aku sama sekali tidak heran jika nantinya kita menemukan fakta bahwa Chen Youliang selama ini justru mendekati 
+orang-orang kaya untuk mendukungnya menumbangkan kekuasaan Xu Shouhui. Aku hampir pasti inilah yang dilakukannya."
+
+Zhou Zhiruo tampak termenung sambil menganggukkan kepala tanda mengerti. Kesimpulan Zhao Min itu membuat keadaan 
+menjadi hening selama beberapa menit. Lalu Zhou Zhiruo kembali berkata lambat-lambat, "Ini berarti, kalaupun tidak 
+dihasut oleh Chen Youliang, cepat atau lambat pasti Ni Wenjun atau orang lain pasti akan melakukan pemberontakan yang 
+sama seperti sekarang, dan mereka hampir dipastikan akan berhasil juga, setidaknya untuk menggoyahkan pemerintahan 
+Xu Shouhui." Ia berhenti sejenak, lalu menambahkan, "Bukankah sekarang ini kita bisa menyimpulkan bahwa pemerintahannya 
+sudah goyah, atau bahkan sudah ambruk? Aku berani memastikan bahwa yang berkuasa saat ini sebenarnya adalah Chen Youliang, 
+meskipun sampai saat ini Xu Shouhui masih hidup."
+
+Mereka semua menyetujui kesimpulan itu. Keadaan kembali hening, lalu tiba-tiba He Taichong bertanya, "Bagaimana kalau 
+sekarang juga kita langsung menuju ke Hanyang, dan Zhang Jiaozhu langsung mengambil alih istana?"
+
+Serta-merta Zhang Wuji menanggapi dengan tegas, "Tidak bisa begitu!"
+
+Yang Xiao berkata, "Kalau yang dimaksud adalah Jiaozhu mengambil alih posisi kaisar, memang tidak bisa. Tetapi 
+kita memang bisa mengambil alih kendali atas istana di Hanyang, dan Jiaozhu mengambil posisi sebagai Penasihat Agung. 
+Dengan begitu kita punya wewenang untuk mengadili Chen Youliang dan menyelamatkan Xu Shouhui. Jika semuanya mulus, 
+maka negara itu akan kembali berjalan seperti semula, tapi kali ini posisi Xu Shouhui menjadi lebih kuat karena 
+Jiaozhu mendampinginya."
+
+Zhao Min memandang Yang Xiao dengan kagum sambil berkata setulus hati, "Yang Zuoshi, pikiran kita ternyata sama."
+
+Setelah berpikir agak lama, akhirnya Zhang Wuji berkata, "Tampaknya ini bukan ide yang buruk. Kita memang bisa 
+melakukannya."
+
+Tetapi Zhou Zhiruo berkata dengan hati-hati, "Aku kuatir langkah itu akan membuat Chen Youliang waspada. Sekarang 
+ini dia pasti masih di Jiangxi atau Fujian. Kedua wilayah itu ada di tangannya. Dia membawa sebagian besar pasukan ke situ. 
+Kalaupun kita berhasil menyelamatkan Xu Shouhui, dan membawanya kembali ke Hanyang, aku kuatir kita akan kehilangan 
+kedua wilayah itu, berikut sebagian besar pasukan yang sudah jelas lebih menaati Chen Youliang."
+
+Diam-diam Zhao Min merasa kagum. Meskipun Zhou Zhiruo awalnya sama sekali tidak mengerti politik, tapi ternyata 
+ia belajar dengan sangat cepat. Pemikirannya itu sangat masuk akal dan tepat. Semua orang terdiam sambil berpikir 
+keras, sebelum akhirnya Zhang Wuji berkata, "Bagaimanapun juga, menangkap Chen Youliang di luar Hanyang masih lebih 
+mudah dilakukan. Jika dia berhasil mencapai Hanyang sebelum kita, apalagi dengan membawa Xu Shouhui, maka kita 
+akan mengalami kesulitan besar untuk menangkapnya."
+
+Ia bangkit berdiri, lalu menyuruh salah satu pengawal memanggil anggota Kai Pang yang di utus Wu Zhanglao.
+
+Anggota Kai Pang itu masih muda. Ia hanya memiliki dua kantong di punggungnya. Namanya adalah Gao Shen, dan biasa 
+dipanggil Ah Shen. Setelah makan cukup banyak, ia sekarang sudah segar dan siap kembali menjalankan tugas apapun yang 
+akan diberikan oleh Zhang Wuji.
+
+Zhang Wuji berkata, "Ah Shen, kau harus segera kembali bergabung dengan Wu Zhanglao. Katakan bahwa kalian harus 
+berusaha sebisanya untuk menghambat Chen Youliang kembali ke Hanyang, jika dia bermaksud begitu. Kalian masih mengenali 
+orang-orang Kai Pang yang pernah menjadi anak buah Chen Youliang?"
+
+"Soal ini agak sulit," kata Ah Shen. "Chen Youliang banyak merekrut pengemis baru yang kelihatannya mirip dengan 
+semua anggota kami. Bahkan ada yang memakai delapan kantong."
+
+Zhang Wuji terkejut. "Berarti kalian tidak boleh membicarakan semua rencana kita dengan anggota Kai Pang yang 
+belum kalian kenal dengan baik," katanya dengan serius. "Hindari semua pengemis yang tampak mencurigakan. Kalian 
+harus bergerak secara diam-diam. Daerah seperti Jiangxi dan Fujian itu bukan wilayah kalian, karena itu kehadiran kalian 
+tidak boleh terlalu menyolok, sebaiknya jangan berkelompok."
+
+Ia menulis surat pendek untuk disampaikan kepada Wu Zhanglao, lalu menyerahkannya kepada Gao Shen sambil berkata, 
+"Kau harus berangkat malam ini juga. Maafkan aku yang terpaksa membuatmu bekerja keras."
+
+Ah Shen berkata, "Zhang Jiaozhu mempercayaiku, bagiku ini adalah sebuah kehormatan!"
+
+Ia memberi hormat sekali lagi, lalu segera beranjak dari tempat itu.
+
+Menyadari bahwa mereka sedang berlomba dengan Chen Youliang untuk mencapai Hanyang, mereka segera menyelesaikan 
+makan malam dan beristirahat setelah Gao Shen berangkat, karena malam sebelumnya mereka tidak cukup tidur. 
+
+Pagi-pagi sekali rombongan itu bangun dan menyegarkan diri di Sungai Han, lalu sarapan secukupnya, dan segera 
+melanjutkan perjalanan mereka ke Xiangyang.
+
+Di tengah jalan mereka berpapasan dengan Delapan Panah Dewa yang datang dari arah yang berlawanan, lalu langsung 
+menghampiri Zhang Wuji sambil turun dari kuda mereka dan membungkuk hormat. Mereka menyapa serempak, "Zhang Jiaozhu!"
+
+Zhao Min segera melompat turun dari kereta bersama Zhou Zhiruo, lalu menyapa mereka dengan gembira. "Siapa yang 
+menyuruh kalian ke sini?" tanyanya.
+
+Zhang Yishang dan semua saudaranya segera menyapa dengan hormat, "Junzhu, Zhou Furen!"
+
+"Semalam kami bertemu dengan Qi Huanghou dan kami diutus untuk segera bergabung dengan rombongan Zhang Jiaozhu 
+yang sedang menuju ke Xiangyang. Kami mengambil jalan pintas ke sini." jawab Zhang Yishang.
+
+"Bibi Qi bergerak cepat sekali," pikir Zhang Wuji. "Rupanya dari Wudang dia langsung memotong jalan ke arah Nanyang, 
+lalu langsung menuju Kaifeng. Tapi ini hampir tidak mungkin dicapai dalam sehari." Ia bertanya, "Kalian bertemu dengan 
+Qi Huanghou di Kaifeng?"
+
+"Tidak," jawab Zhang Yishang lagi. "Kami bertemu di Shiyan, tadinya kami sedang bermaksud menemui Wangye di tempat lain, 
+tapi Huanghou menyuruh kami ke sini."
+
+Zhao Min agak terkejut, karena Shiyan sangat dekat dengan Wudang. Ia bertanya, "Jadi ayahku sekarang sedang berada 
+di sekitar Shiyan?"
+
+Qian Erbai menjawab, "Tidak, Wangye masih di Suzhou. Tapi Xiao Wangye mengutus kami ke tempat lain, dan kami sebenarnya 
+sedang dalam perjalanan ke Suzhou ketika berpapasan dengan Huanghou."
+
+"Rupanya begitu," kata Zhao Min. "Baiklah, berarti mulai sekarang kalian kembali bergabung denganku. Kalian harus 
+mendengarkan perintah Zhang Jiaozhu — dan juga Zhou Furen — aku dan Zhou Furen adalah istri Zhang Wuji."
+
+Kedelapan orang itu dengan segera membungkuk hormat sambil meletakkan tangan di dada kepada mereka bertiga. Mereka 
+tampak sangat gembira. Wang Bashuai berkata, "Kami dengan senang hati akan mematuhi perintah Zhang Gongzi, Junzhu dan 
+juga Zhou Furen."
+
+Zhou Zhiruo dan Zhang Wuji tidak dapat memahami apa yang membuat mereka semua tampak begitu gembira. Dalam hal ini 
+hanya Zhao Min yang mengerti. Kedelapan orang itu sebenarnya memang bekerja secara langsung di bawah komandonya. Gaji 
+mereka juga dibayar oleh Zhao Min, dalam posisinya sebagai seorang Junzhu. Jika majikan mereka diusir oleh Chaghan Temur, 
+maka mereka seperti ayam yang kehilangan induknya. Begitu mendengar kata-kata Zhao Min tadi, mereka seperti baru 
+saja menemukan kembali majikan mereka yang hilang, meskipun sebenarnya Zhao Min tidak benar-benar hilang. Hal inilah 
+yang membuat mereka sangat gembira. Ketika Zhao Min menjelaskan hal ini, Zhang Wuji dan Zhou Zhiruo baru memahaminya.
+
+Mereka segera kembali ke atas punggung kuda masing-masing, lalu bergabung dengan para pengawal yang mengawal kereta 
+Zhao Min dan Zhou Zhiruo.
+
+Yang Xiao mengerti bahwa para pendekar seperti He Taichong dan Tang Wenliang pasti bingung ketika mendengar Zhang Yishang 
+berkali-kali menyebut tentang 'Huanghou' atau Permaisuri. Jika mereka tidak menjelaskan hal ini, bukan tidak mungkin 
+di kemudian hari akan terjadi kesalahpahaman yang berakibat fatal. Ketika melanjutkan perjalanan ia mengajak Fan Yao 
+mendekati He Taichong dan Tang Wenliang dan mengajaknya bicara.
+
+He Taichong bertanya, "Yang Zuoshi, siapa yang tadi dimaksud dengan Huanghou? Apa kita sekarang bekerja sama dengan 
+pihak istana?"
+
+"Ini akan kami jelaskan segera setelah kita sampai di Xiangyang," kata Yang Xiao. "Ketua He, Pendekar Tang, kuharap 
+nanti kalian bisa mengumpulkan semua ketua perguruan yang saat ini sedang mengikuti kita. Aku dan Fan Youshi akan 
+membicarakan urusan penting ini sampai tuntas di Xiangyang. Setelah itu kalian yang harus menjelaskan kepada anggota kalian masing-masing, 
+karena urusan ini tidak bisa dijelaskan begitu saja di hadapan semua orang saat ini. Sekarang kita harus berpacu secepat mungkin 
+ke Xiangyang, tidak bisa ditunda lagi."
+
+Ia segera mendekati Zhang Wuji untuk memintanya segera bergerak lebih cepat. Tetapi melihat begitu banyaknya orang 
+yang mengikuti mereka saat itu, dan kebanyakan dari mereka tidak menunggang kuda, Zhang Wuji merasa rombongan mereka 
+harus dibagi dua. Ia kemudian memerintahkan supaya Wu Jingcao, Yan Yuan, Tang Yan, Wen Cangsong, 
+Xin Ran, beserta seluruh anggota Panji Lima Elemen, untuk memimpin para pengikut baru mereka yang tidak 
+berkuda sampai ke Xiangyang. Karena jumlah mereka saat itu sudah mencapai lebih dari lima ribu orang, Zhang Wuji 
+tidak lupa berpesan supaya mereka menjaga ketertiban pada saat memasuki kota, dan tidak boleh mengganggu para 
+penduduk kota maupun orang lain, dan juga harus bersikap damai jika ditanya oleh prajurit yang menjaga di pintu gerbang kota.
+
+Enam puluh orang prajurit bersenjata turun dari kuda untuk mengawal rombongan yang berjalan kaki, dan sisanya tetap 
+berkuda bersama dengan Zhang Wuji.
+
+Menjelang sore mereka telah sampai di luar pintu gerbang kota Xiangyang. Dari sekitar seratus meter menuju ke 
+pintu gerbang, mereka telah disambut oleh barisan rakyat yang sebagian membawa terompet dan genderang. Semuanya 
+membawa bendera Ming Jiao berukuran kecil. Mereka semua melambai-lambaikan bendera itu sambil mengelu-elukan Zhang Wuji.
+
+Dari jendela kereta yang terbuka, Zhao Min dan Zhou Zhiruo melambaikan tangan kepada semua orang sambil tersenyum ramah.
+Mereka berarak memasuki kota dengan gagah dan anggun. Tak seorang pengawal pun menanyakan siapa yang datang, karena 
+semuanya itu sebelumnya sudah diatur dengan sangat rapi dan teliti oleh para anggota Kai Pang, sesuai dengan instruksi 
+dari Wu Zhanglao.
+
+Kota Xiangyang berada di dalam wilayah kekuasaan Xu Shouhui. Sebagian penduduk kota merasa waswas karena peristiwa 
+yang baru saja terjadi di Hanyang. Tetapi mereka masih teringat akan Zhang Wuji yang dalam waktu singkat telah 
+berhasil mengatasi serbuan Jendral Bolad Temur dengan bantuan Kai Pang, dan itu dilakukannya hanya dengan mengandalkan 
+kungfunya yang tinggi. Begitu mendengar bahwa pada hari ini Zhang Wuji akan berarak memasuki kota, semua orang 
+sangat gembira. Kekuatiran mereka lenyap. Toko-toko, kedai-kedai arak, para penjual makanan di pinggir jalan, 
+dan pasar-pasar, semuanya tetap buka seperti biasa, dan bahkan menjadi lebih ramai dikunjungi orang.
+
+Zhang Wuji turun dari kudanya untuk menyalami orang-orang yang mengerumini mereka di pasar. Zhao Min dan Zhou Zhiruo 
+segera turun dari kereta untuk mengikutinya. Zhou Zhiruo tanpa ragu menggandeng seorang anak perempuan kecil yang 
+sedang menatapnya di pinggir jalan. Ia mengajak anak itu bersama ibunya mendatangi seorang penjual manisan, lalu membeli 
+manisan dari buah-buahan untuk mereka. Beberapa anak kecil lainnya dengan segera mengelilingi Zhou Zhiruo 
+sambil bersorak kegirangan. Akhirnya Zhou Zhiruo membeli semua manisan yang tersisa, dan membagi-bagikannya kepada anak-anak.
+
+Penampilan Zhao Min menarik perhatian sepasang suami-istri yang sedang berdiri di dekatnya. Si suami tampaknya 
+berasal dari salah satu suku Mongolia, dan istrinya jelas dari suku Han. Anak perempuan mereka yang masih sekitar 
+lima tahun sedang mengamati Zhao Min dengan penuh perhatian. Pipi anak itu putih kemerahan, dan rambutnya dikepang dua.
+Zhao Min membeli sebuah topi merah kecil dari seorang penjual yang ada di dekat situ, lalu memberikannya kepada anak itu.
+
+Melihat hal ini, kedua orang tuanya tampak sangat gembira. Mereka buru-buru berterima kasih sambil menyalami Zhao Min.
+Anak itu tersenyum senang sambil menatap wajah Zhao Min dengan penuh perhatian, lalu dengan berani mencium pipinya. 
+Zhao Min tersenyum senang, lalu mengulurkan tangan supaya anak itu mau digendongnya. Serta merta anak kecil itu 
+melompat dari pelukan ibunya ke pelukan Zhao Min.
+
+Ketika melihat pemandangan itu, semua orang bertepuk tangan sambil memanggil Zhao Min, "Xiao Furen, Xiao Furen!"
+
+Ayah anak itu tampak sangat terharu hingga matanya basah. Rupanya selama ini perkawinan mereka mendapat banyak 
+tentangan. Ketika melihat penampilan Zhao Min, tiba-tiba ia melihat sebuah harapan baru. Ia segera mengangkat 
+tangannya tinggi-tinggi sambil berseru, "Ming Jiao Jiaozhu! Ming Jiao Jiaozhu!"
+
+Yel-yel itu dengan segera diikuti semua orang. Mereka semua mengarak rombongan Zhang Wuji berkeliling kota sambil 
+menabuh genderang dan meniup terompet. Jalanan dipenuhi oleh manusia dan kuda-kuda membawa mereka. Para penjual 
+makanan di pinggir jalan memanfaatkan peluang untuk menawarkan jualannya.
+
+Zhou Zhiruo pernah mendengar Peng Yingyu mengatakan bahwa suatu hari nanti Zhang Wuji akan menjadi seorang kaisar, 
+dan pada saat itu ia sempat membayangkan peristiwa semacam ini. Tetapi sekarang ia mengalaminya sendiri, dan semua 
+itu jauh lebih meriah dari bayangannya semula, padahal saat ini Zhang Wuji sama sekali bukan seorang kaisar. Bulu kuduknya 
+merinding mendengar semua orang mengelu-elukan Zhang Wuji. Entah bagaimana ia bisa menjalani kehidupan semacam ini 
+nantinya.
+
+Ketika mereka sampai di alun-alun, satu batalyon tentara bersenjata lengkap sedang menunggu di hadapan mereka dalam 
+barisan yang sangat rapi. Melihat ini Yang Xiao dan semua pendekar menjadi waspada. Mereka tidak tahu para prajurit 
+itu ada di pihak mana, dan mereka bersiap menghadapi bahaya, seandainya memang diperlukan.
+
+Melihat ketegangan di wajah Yang Xiao, Zhang Wuji segera memberi isyarat supaya ia tenang. 
+
+Tiupan terompet dan tabuhan genderang tiba-tiba berhenti begitu melihat pasukan itu. Semua orang mendadak menjadi 
+tegang. Tetapi seteah melihat sikap santai Zhang Wuji, mereka merasa agak tenang.
+
+Komandan regu itu turun dari kudanya dan berjalan mendekati Zhang Wuji. Tubuhnya tinggi besar dan tegap. Sikapnya 
+sangat hormat dan formal. Ia meletakkan tangan di dada sambil menyapa, "Zhang Jiaozhu!"
+
+Sikap ini diikuti oleh semua pasukannya, yang mengekspresikannya dengan menyerukan yel-yel militer sambil menghentakkan 
+tombak mereka ke tanah. Pemandangan itu membuat para penduduk agak takut. Tetapi kemudian mereka mendengar komandan 
+itu berkata dengan santai, "Jiaozhu, Zaixia adalah Jiang He. Kami menerima kabar bahwa Jiaozhu sedang menuju 
+ke kota ini, dan kami semua siap membantu Jiaozhu mengawal kota!"
+
+"Komandan Jiang," kata Zhang Wuji sambil tersenyum. "Senang sekali berteu dengan kalian. Dari mana kalian mendengar 
+kabar itu?"
+
+"Kami berjumpa dengan Komandan Xu di dekat Hanyang," jawab Jiang He dengan mantap. "Penjaga perbatasan melaporkannya 
+beberapa jam yang lalu."
+
+Yang Xiao menarik nafas lega. Rupa-rupanya kedatangan pasukan Xu Da sudah mereka ketahui. Ini bisa disimpulkan bahwa 
+mereka menyambut baik kerja sama dengan pihak Han Lin'er. Sikap Jiang He juga menunjukkan bahwa pasukannya siap 
+mendukung Zhang Wuji. Kemungkinan besar mereka adalah para prajurit yang setia kepada Xu Shouhui.
+
+Zhang Wuji berkata, "Komandan Xu dan pasukannya tidak bertugas di sini. Jadi kalian tidak perlu repot menyiapkan 
+tempat bagi pasukannya. Tapi setelah ini Komandan Chang akan datang bersama lima puluh ribu pasukan, dan mereka akan 
+berkemah di luar tembok kota, jadi kalian juga tidak perlu repot menyiapkan tempat bagi pasukan sebanyak itu. 
+Aku berharap supaya kalian bisa bekerja sama dengan baik. Kita semua adalah orang sendiri."
+
+Jiang He meletakkan tangan di dada sekali lagi sambil menjawab dengan lantang dan mantap, "Siap!"
+
+Di tengah alun-alun itu Zhang Wuji memberikan pidato singkat bahwa maksud kedatangannya adalah untuk memastikan 
+rakyat dalam keadaan aman, mengingat peristiwa yang baru saja terjadi di Hanyang. Pidato itu mendapat sambutan yang 
+meriah dari rakyat, dan mereka semua merasa aman setelah mendengar pidato Zhang Wuji dan sikap para prajurit yang 
+ternyata mematuhi perintahnya.
+
+Setelah Zhang Wuji mengakhiri pidato singkatnya, Jiang He berkata, "Jiaozhu, mungkin sekarang kita bisa segera 
+menuju tempat kediaman Jiaozhu yang sudah dipersiapkan sebelumnya."
+
+Zhang Wuji agak heran. "Tempat kediamanku?"
+
+Jiang He memberi isyarat dengan tangannya. Seorang pria berpakaian seperti pengemis enam kantong muncul dari 
+belakang barisan pasukan yang dipimpinnya. Ia langsung memberi hormat kepada Zhang Wuji.
+
+Zhang Wuji segera mengenali penatua Kai Pang yang diberi tugas oleh Wu Zhanglao untuk mengurus segala keperluan 
+mereka ketika berada di Xiangyang sebelum ini. Ia tersenyum gembira sambil menyapa penatua itu, "Sima Zhanglao!"
+
+Penatua Kai Pang yang masih berusia tiga puluhan itu bernama Sima Han. Ia berkata sambil tersenyum, "Zhang Jiaozhu, 
+Shi Bangzhu berpendapat bahwa kamar penginapan yang kita jadikan markas darurat itu sekarang sudah tidak lagi 
+bisa dipakai. Tempatnya terlalu kecil, dan juga sangat tidak leluasa menerima banyak tamu di tempat seperti itu. 
+Bangzhu telah mengatur sebuah tempat yang sederhana, tidak jauh dari penginapan itu, yang bisa kita pakai 
+menurut keperluan kita. Tempat itu sudah kami bersihkan sebisanya supaya Jiaozhu dan kedua Furen bisa tinggal 
+di situ dengan nyaman. Kita bisa menuju ke situ sekarang."
+
+Zhang Wuji tercengang. "Aku merasa tidak enak harus merepotkan kalian semua," katanya. "Tapi karena sudah terlanjur 
+dilakukan, aku harus berterima kasih atas kebaikan Shi Bangzhu dan para anggota Kai Pang. Zhang Wuji tidak akan 
+melupakan budi baik kalian."
+
+Jiang He dan Sima Han berkuda di sisi Zhang Wuji ketika mereka meneruskan arak-arakan itu menuju ke tempat yang 
+dimaksud. Ketika sampa di situ, ia kembali tercengang. Tempat itu sebetulnya memang sebah kuil yang terlantar, 
+tetapi dalam waktu begitu singkat para anggota Kai Pang telah menyulapnya menjadi sebuah tempat yang rapi dan indah. 
+Saat ini mereka memang belum sempat menghiasnya dengan berbagai atribut mewah, tetapi tempat itu sepintas lalu lebih 
+mirip sebuah istana kecil ketimbang kuil terlantar. Tanahnya sangat luas, temboknya sudah dicat dengan warna putih 
+yang bersih. Pintu gerbangnya yang besar dan megah juga dicat dengan warna merah menyolok seperti warna ikat kepala 
+yang digunakan oleh para pengikut Ming Jiao dan Hongjin Qiyi. Papan nama di atas pintu gerbangnya telah diturunkan, 
+tampaknya siap diganti, tetapi saat ini masih dibiarkan kosong. Ketika melihat arah pandangan Zhang Wuji, Sima Han 
+berkata, "Kami belum tahu apa yang harus ditulis di papan nama yang baru, jadi untuk saat ini sengaja kami biarkan kosong. 
+Mungkin Zhang Jiaozhu bisa memberikan petunjuk?"
+
+Zhang Wuji menggeleng, lalu berkata, "Aku sendiri juga masih belum punya ide. Tapi kami sunggguh berterima kasih atas 
+sumbangan besar kalian semua sejauh ini. Rasanya tidak baik jika kami harus merepotkan kalian lebih jauh lagi. Nanti 
+kami akan memgerjakan sendiri papan nama itu." Ia menoleh kepada Yang Xiao dan bertanya, "Yang Zuoshi, bagaimana 
+menurutmu?"
+
+"Kurasa kita semua bisa ikut memikirkannya," kata Yang Xiao dengan nada merendah. "Saat ini perjuangan kita sudah bukan 
+lagi perjuangan Ming Jiao sendiri. Ini adalah perjuangan rakyat."
+
+Jiang He menanggapi dengan penuh semangat, "Betul! Itu tepat sekali — perjuangan rakyat!"
+
+Zhang Wuji turun dari kudanya, diikuti oleh semua orang lain. Pasukan Jiang He dan para prajurit yang mengikuti 
+Zhang Wuji dari Wudang masing-masing berbaris di sisi dan kanan bangunan itu. Ketika Zhang Wuji bermaksud mendorong 
+pintu gerbang, Sima Han mendahuluinya sambil berkata, "Hati-hati, Jiaozhu! Catnya masih agak basah." Ia menggunakan 
+ketukan pintu beberapa kali, dan pintu itu terbuka dari dalam. Rupanya di dalam bangunan bekas kuil itu sudah berdiri 
+sederetan orang untuk menyambut kedatangan mereka. Semuanya berbaris dengan sangat rapi untuk memberi jalan kepada 
+Zhang Wuji dan rombongannya.
+
+Dalam hati Zhang Wuji bertanya-tanya, semuanya ini pasti membutuhkan biaya yang tidak sedikit. Entah dari mana 
+Kai Pang mendapatkan begitu banyak uang untuk membiayainya?
+
+Seolah bisa membaca pikiran Zhang Wuji, Sima Han berkata, "Zhang Jiaozhu pasti merasa semua ini terlalu mewah. Tapi 
+sebenarnya ini semua bukan hasil usaha kami sendiri. Beberapa pejabat tinggi di kota Xiangyang dengan sukarela 
+telah menyumbangkan banyak uang untuk membangun semuanya ini."
+
+Zhou Zhiruo tampak terkejut. Ia bertanya, "Sima Zhanglao, siapa saja pejabat itu?"
+
+Sima Han merendahkan suaranya, "Semuanya kami catat baik-baik. Aku menyertakan catatannya bersama laporan tentang 
+pemakaian dana sampai sejauh ini, jadi Furen tidak usah kuatir. Kita akan membahasnya nanti."
+
+"Wu Zhanglao sungguh sangat teliti," pikir Zhou Zhiruo. Ia berkata, "Aku ingin bertemu dengan semua anggota kalian yang 
+dulu bersama kami di kota ini. Mereka semuanya masih lengkap?"
+
+"Semuanya ada di dalam," jawab Sima Han. "Furen bisa memanggil mereka setiap saat diperlukan."
+
+Pandangan Zhao Min terpaku pada lonceng besar yang mungkin dulunya digunakan untuk mengumpulkan semua biksu 
+yang ada di situ. Ia tertawa kecil, lalu berkata, "Mengapa di sini ada lonceng sebesar itu? Memangnya tempat ini seluas 
+apa sih?"
+
+Sima Han tersenyum dan berkata, "Xiao Furen bisa menilainya sendiri nanti. Tapi lonceng itu akan sangat berguna 
+bagi kita nantinya. Semua istana pasti memilikinya."
+
+Zhao Min tertawa terbahak-bahak. "Sima Zhanglao, kau ingin mendirikan istana di sini?"
+
+Sima Han hanya tersenyum dan tidak menjawab. Jiang He berkata, "Lokasi ini memang cukup ideal untuk itu."
+
+"Kalian berlebihan," kata Zhang Wuji. "Kami mungkin tidak memerlukannya."
+
+Seorang anggota Kai Pang yang dulunya menemani mereka di kota ini datang sambil menyapa mereka, lalu segera 
+menyerahkan gulungan kertas kecil kepada Zhou Zhiruo. Setelah membaca isi surat itu, Zhou Zhiruo menyerahkannya kepada 
+Zhang Wuji dan Zhao Min sambil berkata, "Dari Ma Xiuying, hanya ucapan selamat."
+
+Sambil berjalan berkeliling mereka mengagumi hasil kerja para anggota Kai Pang yang telah merapikan kuil terlantar 
+itu. Di beberapa tempat ada ruangan yang pintunya belum sempat diperbaiki, tetapi temboknya telah dicat rapi. 
+Tempat itu ternyata sangat luas, di luar dugaan mereka ternyata di situ ada sebuah perpustakaan besar yang buku-bukunya 
+masih cukup lengkap, meskipun ada beberapa rak yang kosong karenaisinya telah rusak atau hilang. Setelah menghitung 
+secara kasar, ternyata lebih dari seratus kamar untuk para biarawan ada di dalamnya. Berarti kuil ini tadinya 
+cukup penting, meskipun namanya tidak tercatat di dalam sejarah.
+
+Zhao Min memeriksa buku-buku yang ada di perpustakaan itu. Sebagian besar adalah kitab-kitab berisi ajaran agama 
+Buddha, atau ajaran Tao kuno. Ada juga kitab-kitab lain yang berisi ajaran agama Kristen dan Islam. Dengan agak 
+penasaran Zhao Min memeriksa deretan rak lain dengan lebih teliti, sampai akhirnya ia mengeluh.
+
+Fan Yao sempat melihatnya mencari-cari ke semua rak yang ada, dan bertanya, "Junzhu sedang mencari kitab apa?"
+
+"Kelihatannya biara ini tidak menyukai kalian," kata Zhao Min. "Aku sama sekali tidak menemukan tulisan apapun yang 
+berhubungan dengan ajaran Ming Jiao."
+
+Fan Yao tertawa terbahak-bahak dan berkata, "Kurasa mereka menganggap kami pengikut setan, jadi tidak ada yang 
+berani menulis tentang Ming Jiao."
+
+"Bukankah Peng Dashi dan Shou Bude Dashi juga tadinya penganut agama Buddha?" tanya Zhao Min.
+
+"Yang Jiaozhu dulunya sempat mengajak kami mengunjungi biara-biara, tapi bukan semua biara mau berdamai dengan kami," 
+kata Fan Yao. "Ada biara yang bahkan sering bermeditasi bersama Yang Jiaozhu, dan kegiatan semacam itulah yang akhirnya 
+menghasilkan ajaran seperti yang dikembangkan oleh Peng Yingyu dan Shuo Bude, tapi rata-rata mereka semua memang 
+beranggapan kami sesat."
+
+Zhao Min tampak berpikir dalam, tetapi kemudian berjalan keluar tanpa mengatakan apa-apa.
+
+Mereka bertemu dengan Zhou Zhiruo yang sedang memeriksa dapur besar di belakang biara. Zhao Min berkata, "Kau 
+ada di sini rupanya. Kelihatannya berantakan sekali dapur ini."
+
+Zhou Zhiruo tampak gembira. Ia berkata, "Ini sangat mirip dengan dapur di Emei Pai. Agak lebih kecil, tapi setelah 
+dibersihkan dapur ini sebetulnya cukup bagus."
+
+Di belakang bangunan itu ada tanah kosong yang sangat luas. Tampaknya dulunya dipakai untuk menanam sayur-sayuran 
+untuk keperluan mereka sendiri. Saat ini tanah itu kosong, rumputnya tinggi-tinggi. Kelihatannya belum sempat dirapikan.
+
+Ketika melihat mereka berdua sedang mengamati tanah kosong itu, Sima Han berkata, "Tanah itu memang belum sempat 
+dirapikan. Furen pasti ingin menanam sayur dan tanaman obat di situ. Nanti aku akan menyuruh orang merapikannya."
+
+Zhou Zhiruo sangat gembira. "Kau bisa membaca pikiranku," katanya. "Kita akan mengerjakannya bersama-sama."
+
+Untuk Zhou Zhiruo dan Zhao Min, masing-masing disiapkan sebuah kamar yang besar dan tampak sangat mewah. Di dalamnya 
+terdapat sebuah tempat tidur besar dan meja rias yang sangat bagus. Saat itu kedua kamar itu dihias dengan warna 
+merah, seperti layaknya kamar pengantin. Kedua wanita itu tampak tersipu ketika melihat hal ini.
+
+"Sima Zhanglao, ini sungguh berlebihan," kata Zhou Zhiruo. "Kami sungguh-sungguh tidak memerlukan perlengkapan 
+mewah semacam ini."
+
+Sima Han tampak serius ketika berkata, "Furen, sebetulnya urusan ini adalah permintaan khusus dari Shi Bangzhu. 
+Kami hanya menjalankan permintaannya."
+
+"Shi Hongsi sekarang pasti sudah agak besar," pikir Zhao Min. "Tidak heran dia mengerti urusan perempuan."
+
+Sima Han mengeluarkan dua gulungan kertas dan menyerahkannya kepada Zhou Zhiruo sambil berkata, "Kurasa sekarang 
+Furen berdua ingin beristirahat. Ini adalah laporan pemakaian uang dan daftar nama yang tadi kusebutkan. Harap Furen 
+memeriksanya. Zaixia masih harus menjelaskan sesuatu kepada Jiaozhu. Jika Furen memerlukan sesuatu, para anggota kami 
+yang lain siap untuk melaksanakannya setiap saat."
+
+Ia membungkuk hormat, lalu mengundurkan diri dengan sopan.
+
+Setelah ia pergi, Zhou Zhiruo dan Zhao Min memeriksa kedua gulungan kertas itu dengan teliti. Mata mereka terbelalak 
+ketika membaca angka yang tertera dalam laporan keuangan itu. Jumlah uang yang terkumpul itu cukup untuk membangun 
+sebuah istana mewah berikut segala isinya, dan membiayainya selama kurang lebih setahun. Dan jumlah pemakaian uang sampai 
+sekarang belum mencapai satu persen dari keseluruhannya.
+
+"Ini gila!" kata Zhou Zhiruo, hampir tidak mempercayai matanya sendiri. Ia membacanya dengan teliti sampai berulang-ulang, 
+tetapi laporan itu ternyata tidak keliru. Di bawah laporan itu ada keterangan bahwa semua uang yang ada akan diserahkan 
+secara langsung kepada para pengurus Ming Jiao.
+
+Zhao Min cepat-cepat membaca lembaran kedua. Isinya adalah daftar panjang nama-nama orang berikut jumlah sumbangan 
+yang mereka berikan. Sebagian besar dari mereka adalah para pejabat tinggi Tianwan. Sebagian lagi adalah keturunan para 
+bangsawan yang sejak semula menjadi warga wilayah itu. Zhao Min tidak mengenal nama-nama ini, tetapi gelar dan jabatan 
+mereka dicantumkan dengan jelas di situ, berikut keterangan selengkapnya tentang di mana mereka tinggal. Jumlah mereka 
+kira-kira mencapai dua ratus orang. Masing-masing menyumbangkan uang dalam jumlah sangat besar.
+
+"Zhou Jiejie, semua nama ini sangat penting," kata Zhao Min dengan kening berkerut. Ia sedang berpikir keras.
+
+"Menurutmu mereka ini pihak yang bertentangan dengan Chen Youliang?" tanya Zhou Zhiruo.
+
+"Aku justru tidak tahu," kata Zhao Min. Keningnya semakin berkerut. "Itu sebabnya aku mengatakan mereka semua sangat 
+penting. Kita harus menyelidiki apa tujuan mereka sebenarnya."
+
+"Huh," dengus Zhou Zhiruo. "Kau ingin mendatangi mereka semua satu persatu? Kau gila, kapan kita akan menyelesaikan 
+pekerjaan seperti itu?"
+
+"Itu tentu saja tidak perlu," kata Zhao Min lagi. "Kita kan bisa saja mengadakan sebuah acara, dan mengundang mereka semua. 
+Mungkin untuk sekedar ucapan terima kasih."
+
+Zhou Zhiruo menepuk keningnya sendiri. "Aku betul-betul bodoh," katanya sambil tersenyum. "Kenapa aku tidak memikirkan 
+cara sederhana seperti itu? Kau memang jauh lebih ahli dalam urusan semacam ini."
+
+"Cuma kebetulan," kata Zhao Min merendah. "Aku sering melihat bagaimana ibuku menangani urusan yang sama."
+
+Seorang anggota Kai Pang datang tergopoh-gopoh sambil melaporkan, "Furen, barusan ada orang mengantarkan makanan. Sima Zhanglao 
+sedang menunggu Furen di pintu depan untuk memutuskan apakah kita akan menerimanya."
+
+Zhao Min agak heran. "Kami tidak memesan makanan," katanya. "Siapa yang mengantarnya?"
+
+"Sebaiknya kita ke sana sekarang," jawab anggota Kai Pang itu. "Zhang Jiaozhu juga ada di situ."
+
+Mereka bergegas mengikuti anggota Kai Pang itu ke pintu gerbang. Di situ mereka sudah ditunggu oleh Zhang Wuji 
+dan semua orang lain, dan Sima Han tampak sedang sibuk memeriksa makanan-makanan yang diletakkan di atas beberapa meja 
+panjang. Jumlah makanan itu tampaknya cukup untuk semua orang yang datang bersama mereka saat itu, termasuk yang hingga 
+saat ini masih dalam perjalanan. 
+
+"Zhiruo, kalian memesan semua makanan ini?" tanya Zhang Wuji dengan nada menegur.
+
+Hampir bersamaan keduanya menjawab, "Tidak!"
+
+Sima Han berkata, "Tapi mereka mengatakan bahwa semuanya ini dipesan atas nama Zhou dan Zhao Furen."
+
+Zhou Zhiruo berkata dengan tenang, "Kita mana punya begitu banyak uang untuk membayar harga semua makanan ini?" 
+Lalu tiba-tiba ia teringat sesuatu, dan bermaksud melanjutkan. Tetapi saat itu Sima Han berkata, "Furen, kita 
+tidak perlu membayar apa-apa, semuanya sudah dibayar lunas."
+
+"Ini sangat aneh," kata Zhao Min sambil tertawa dengan santai. "Siapa orang kaya yang berbaik hari ini?"
+
+"Mereka tidak mengatakan apa-apa selain menyebut nama kalian," kata Zhang Wuji. "Tadi aku sudah menyuruh orang 
+untuk mengikuti kurir yang mengantarkan semua ini secara diam-diam."
+
+"Berani taruhan, mereka pasti hanya orang-orang dari rumah makan mewah di sekitar sini," kata Fan Yao sambil 
+tertawa. "Ada orang yang ingin bercanda dengan kita, tapi biayanya agak terlalu mahal."
+
+Zhou Zhiruo menarik ujung jubah Zhang Wuji tanpa mengatakan apa-apa, lalu menyelipkan kedua gulungan kertas 
+ke tangannya. Zhang Wuji membacanya sekilas, lalu mengembalikannya kepada Zhou Zhiruo sambil berbisik, "Tadi 
+Sima Han sudah mengatakan tentang hal ini."
+
+Ia lalu berkata kepada semua orang yang hadir di situ, "Saudara-saudara, kurasa kita semua memang lapar. Semua makanan 
+ini kuanggap sumbangan dari orang tak dikenal dan boleh dimakan."
+
+"Bagaimana kalau beracun?" tanya He Taichong.
+
+Sima Han berkata, "Tadi kami sudah memeriksanya dengan teliti sebelum kalian datang. Semuanya tidak beracun."
+
+Mereka semua tahu bahwa para anggota Kai Pang sangat ahli dalam hal racun, terutama sekali yang berhubungan dengan 
+ular berbisa. Tapi ketika melihat He Taichong dan beberapa orang lainnya masih ragu, Sima Han mengambil sepotong kue 
+dan berkata kepada Zhang Wuji, "Zhang Jiaozhu, ijinkan Zaixia mencicipinya dulu."
+
+Zhang Wuji juga mengulurkan tangan untuk mengambil sepotong kecil daging sambil berkata, "Kita mencicipinya bersama-sama."
+
+Ketika melihat Yang Xiao dan Fan Yao juga mengikuti apa yang dilakukan Zhang Wuji, para pendekar lain yang tadinya 
+ragu mulai ikut makan dan mencicipi arak yang tersedia di situ. Setelah beberapa saat mereka ketegangan mereka lenyap, 
+karena ternyata tidak ada yang merasakan keanehan setelah mencicipi makanan dan minuman itu. 
+
+Para prajurit dan semua orang yang mengikuti mereka sejak dari pegunungan Wudang mulai makan dengan santai dan gembira.
+
+Zhang Wuji memberi isyarat kepada Yang Xiao dan Fan Yao untuk mengikuti mereka bertiga ke sebuah ruangan kosong 
+yang berada di dekat dapur. Ruangan itu juga sudah dirapikan, tetapi karena letaknya agak terpencil di bagian belakang, 
+mereka belum punya rencana untuk menggunakannya. Setelah mereka berlima masuk, ia menutup pintu dan jendela untuk 
+memastikan tidak ada orang lain yang mendengarkan pembicaraan mereka. Lalu ia menyuruh Zhou Zhiruo menunjukkan 
+kedua kertas yang berisi laporan dari Sima Han.
+
+Sementara Yang Xiao dan Fan Yao membaca laporan itu dengan teliti, ia berkata, "Aku tahu angka dan nama-nama yang ada 
+di situ agak mengejutkan. Aku sendiri tidak mengenal satu pun dari nama-nama orang yang ada di situ. Tapi aku yakin 
+mereka pastilah orang yang sangat berpengaruh di Tianwan. Apa pendapat kalian mengenai hal ini?"
+
+Setelah membaca gulungan kedua yang berisi lebih dari lima lembar kertas, Yang Xiao tampak berpikir keras tanpa 
+mengatakan apa-apa.
+
+Fan Yao berkata lambat-lambat, "Firasatku mengatakan bahwa kedua laporan ini, dan juga kiriman makanan yang baru kita 
+terima itu, sebetulnya saling berkaitan. Tapi aku tidak bisa memastikan apa tepatnya."
+
+"Aku justru yakin tidak," kata Zhao Min dengan tenang. "Setidaknya, bukan secara langsung."
+
+"Kau tahu dari mana?" tanya Zhou Zhiruo heran.
+
+Pertanyaannya mewakili semua orang lain.
+
+"Gampang saja," jawab Zhao Min. "Coba pikir, orang-orang yang menyumbangkan hartanya untuk kita pastilah tahu bahwa 
+kita sudah tidak lagi memerlukan kiriman makanan seperti itu setelah sampai di tempat ini. Untuk apa mereka harus 
+menambah sumbangan yang bagi mereka agak kecil ini? Jadi kemungkinan besar yang mengirimkannya justru adalah orang 
+yang sama sekali tidak tahu bahwa kita punya cukup banyak uang untuk berfoya-foya seperti ini."
+
+"Itu sangat masuk akal," kata Yang Xiao. "Sepertinya Xiao Furen sudah punya dugaan, entah siapa yang mengirimkannya?"
+
+"Hm, dugaan memang ada," kata Zhao Min. "Tapi terus terang saja, aku juga sama sekali tidak kenal siapa yang 
+mengirimkannya."
+
+"Omonganmu membingungkan," kata Zhou Zhiruo. 
+
+Tetapi Zhao Min sangat serius. Ia bertanya, "Zhou Jiejie, menurutmu tindakan seperti ini biasanya dilakukan oleh 
+seorang laki-laki atau perempuan?"
+
+Zhou Zhiruo makin heran mendengar pertanyaan itu, tapi ia menjawabnya juga, "Ini sepertinya lebih banyak dilakukan 
+oleh kaum perempuan."
+
+Mereka semua menyetujui jawaban itu. Fan Yao berkata, "Apa mungkin Qi Shimei yang mengirimkannya?"
+
+Zhao Min tertawa. "Pasti bukan!" katanya dengan yakin. "Untuk apa Bibi Qi mengirimkannya? Dia juga tidak tahu 
+apa-apa mengenai tempat ini, dan berapa orang yang ada di sini sekarang. Makanan ini cukup untuk semua orang yang 
+mengikuti kita sejak dari Wudang."
+
+Ketika mendengar suara-suara ramai di luar, Zhang Wuji melongok ke jendela. Ia berkata, "Kulihat mereka yang 
+berjalan kaki sudah tiba di sini. Sekarang sedang ikut makan."
+
+Zhou Zhiruo bertanya dengan penasaran, "Meizi, menurutmu siapa sih yang sedang bercanda ini?"
+
+"Ini sama sekali bukan bercanda," kata Zhao Min lagi. "Coba pikir baik-baik. Jika saat ini Chen Youliang sedang 
+ada di Jiangxi atau Fujian, lalu keluarganya ada di mana?"
+
+Tiba-tiba semua orang sadar apa yang dimaksud Zhao Min. 
+
+Fan Yao menepuk lututnya sendiri dengan kesal sambil berkata, "Kenapa aku bisa melupakan hal sepenting itu?"
+
+Pintu ruangan itu diketuk dari luar. Yang Xiao segera membuka pintu, dan mempersilakan Sima Han masuk bersama 
+dengan Jiang He. Yang terakhir ini melapor, "Jiaozhu, Komandan Chang baru tiba bersama pasukannya. Mereka semua 
+ada di luar pintu gerbang."
+
+"Bagus!" kata Zhang Wuji dengan gembira. "Kebetulan sekali! Komandan Jiang, aku harus merepotkanmu untuk 
+mengundang Komandan Chang menemuiku di ruang kerjaku."
+
+"Siap!" kata Jiang He. Ia segera beranjak dari situ.
+
+Mereka berlima segera keluar dari ruangan itu bersama dengan Sima Han untuk menuju ke ruang kerja yang sudah 
+disiapkan bagi Zhang Wuji. Sementara menuju ke situ, Sima Han berkata, "Barusan ada laporan lain. Orang-orang 
+yang mengantar makanan itu berasal dari sepuluh restoran yang ada di kota ini juga. Semuanya mengatakan tidak tahu 
+siapa yang memesan semua makanan itu sebenarnya. Mereka hanya tahu bahwa itu adalah pesanan Zhou dan Zhao Furen."
+
+Zhang Wuji hanya mengangguk ketika mendengar laporan itu, karena mereka semua memang sudah menduganya.
+
+Ruang kerja yang disiapkan bagi Zhang Wuji dan semua jajarannya cukup luas, meskipun saat ini masih terlihat 
+ala kadarnya. Tetapi kursi yang disiapkan bagi Zhang Wuji sendiri tampak megah dan gagah. Ukirannya sangat halus. 
+Di sisi kiri dan kanannya berdiri dua tiang kokoh untuk menyanggah obor besar yang menjadi simbol keagamaan Ming Jiao.
+Di atas kedua tiang itu terdapat cerobong yang berfungsi untuk mengalirkan asap yang timbul dari api yang selalu menyala
+keluar, sehingga udara segar di dalam ruangan itu selalu terjaga. Rupanya ruangan ini telah dirombak secara khusus 
+bagi Zhang Wuji, sesuai dengan jabatannya sebagai Ketua Ming Jiao.
+
+Ketika Chang Yuchun menghadap dan memberi hormat untuk melaporkan kedatangannya, Zhang Wuji segera bangkit untuk 
+menyambut sambil menepuk-nepuk bahunya. "Chang Dage, kedatanganmu tepat waktu. Bagus sekali!"
+
+Chang Yuchun tertawa sambil menyerahkan sebuah gulungan surat dari Ma Xiuying kepada Zhou Zhiruo. Ia berkata, "Ma Furen 
+juga menitipkan sejumlah pelayan untuk membantu pekerjaan Zhou Furen. Mereka semua sedang menunggu di luar."
+
+Zhou Zhiruo mengucapkan terima kasih, lalu mengajak Zhao Min keluar untuk mengurus para pelayan baru yang dikirimkan 
+oleh Ma Xiuying. Ini pertama kalinya ia mendengar Chang Yuchun memanggilnya 'Zhou Furen', dan ia merasa agak canggung.
+
+Zhang Wuji berkata kepada Sima Han, "Sima Zhanglao, kau bisa mengatur makan malam untuk para prajurit yang baru 
+saja tiba bersama Komandan Chang?"
+
+Tetapi Chang Yuchun buru-buru berkata, "Jiaozhu, itu tidak perlu. Dashuai sudah membekali kami dengan bahan-bahan makanan, 
+termasuk beberapa ekor sapi dan kambing, sebagai bekal untuk pasukan selama kami bertugas di sini. Kami akan melaporkan 
+jika persediaan itu habis."
+
+"Bagus," puji Zhang Wuji. "Dashuai sangat teliti. Kalian mendengar sesuatu dari Jiangxi atau Fujian?"
+
+"Sampai aku pergi tidak ada yang terlalu penting," jawab Chang Yuchun. "Kami tahu Chen Youliang sudah menduduki 
+Jiangxi dan Fujian, tapi kurasa Jiaozhu juga sudah mendengarnya. Dashuai mengatakan sudah siap melakukan sesuatu jika Jiaozhu 
+memerintahkannya. Dashuai tidak berani bertindak tanpa perintah Jiaozhu maupun Kaisar."
+
+Kaisar yang dimaksud Chang Yuchun tentu saja adalah Han Lin'er, yang bagi mereka berarti adalah perintah dari 
+Liu Futong. Karena perintah itu tidak ada, maka ini berarti Liu Futong ternyata tidak bermaksud bergerak, meskipun 
+sudah mendengar tentang apa yang terjadi di Hanyang. 
+
+Zhang Wuji merangkul Chang Yuchun dengan akrab, lalu mengajak semua orang keluar. Ia berkata, "Aku sedang menunggu-nunggu 
+laporan dari Xu Dage. Mumpung kau ada di sini, kurasa sebaiknya kau makan dulu sepuasnya. Aku sudah lama tidak makan 
+bersamamu."
+
+Chang Yuchun tertawa terbahak-bahak mendengar ucapannya. Ia berkata, "Perut Lao Chang sejak tadi memang sudah berbunyi 
+begitu mencium aroma daging bakar. Sayangnya Xu Da sedang bertugas di Hanyang."
+
+Begitu tiba di luar, Chang Yuchun segera menyambar sepotong paha kambing berukuran besar dan mengambil dua mangkuk 
+besar nasi. Ia makan dengan lahap sambil mengobrol dengan Zhang Wuji. 
+
+Saat itu seorang anggota Kai Pang mendekati Sima Han dan berbisik ke telinganya. Sima Han baru hendak beranjak ke 
+belakang ketika melihat Zhao Min sedang berjalan keluar dengan santai menuju ke tempatnya berdiri. 
+
+"Xiao Furen, barusan ada seorang pria tinggi besar datang untuk mencarimu atau Zhou Furen," kata Sima Han. 
+
+"Oh? Cepat suruh dia ke sini!" kata Zhao Min sambil bergegas mendatangi Zhang Wuji. Ia berkata dengan suara rendah, 
+"Sepertinya salah satu anak buah Xu Da."
+
+Ketika pria itu datang, ia langsung mendekati Zhao Min dan memberi hormat. "Zhao Furen, kami menemukan sesuatu yang mencurigakan 
+di tempat kediaman Chen Youliang. Seorang pria keluar dari situ dan langsung kami ikuti. Komandan menyuruhku 
+mengikutinya senndirian karena ternyata orang itu naik kuda keluar kota. Akhirnya sampai ke sini. Ternyata dia 
+memasuki beberapa restoran untuk memesan makanan atas nama Zhao Furen dan Zhou Furen untuk dikirimkan ke sini."
+
+"Ah, tepat seperti dugaanku!" kata Zhao Min dengan gembira. "Ternyata memang mereka yang memesannya."
+
+Chang Yuchun agak bingung, ia bertanya, "Ini kiriman dari Chen Youliang?"
+
+Zhao Min memberi isyarat supaya ia tenang. Ia bertanya lagi kepada anak buah Xu Da, "Kalian sempat melihat 
+Chen Youliang di tempat kediamannya itu?"
+
+Prajurit berpakaian biasa itu menggeleng. "Kami mengamatinya selama berjam-jam. Sama sekali tidak ada tanda-tanda 
+bahwa dia ada di situ."
+
+"Aku tidak mengerti," kata Chang Yuchun sammbil mengunyah makanannya. "Jika Chen Youliang berhasil mengambil alih 
+Jiangxi dan Fujian, kurasa sampai saat ini dia pasti masih di sekitar situ. Mana mungkin dia kembali ke Hanyang 
+secepat ini?"
+
+"Kurasa juga begitu," kata Zhao Min. "Tapi masih ada kemungkinan dia langsung kembali ke Hanyang, dan hanya menempatkan 
+orang kepercayaannya untuk menjaga Jiangxi, karena Xu Shouhui membawa pasukan ke Jiangxi."
+
+"Huh," dengus Chang Yuchun. "Di Jiangxi dia takut Xu Shouhui akan menyerangnya. Masa dia tidak takut Jiaozhu akan 
+menyerangnya begitu sampai di Hanyang?"
+
+"Justru dia lebih takut," kata Zhao Min. "Kurasa Selir-selirnya yang mengirimkan semua ini, karena mereka harus 
+mengambil hati Jiaozhu. Mungkin juga Chen Youliang menginstruksikan begitu. Mereka mengirim semua ini tentu untuk 
+menunjukkan niat baik, seandainya saja Jiaozhu bermaksud menyerang mereka atau menyandera mereka."
+
+Zhang Wuji bertanya kepada prajurit yang diutus Xu Da, "Apa lagi yang kalian temukan di Hanyang?"
+
+"Jenazah Biksu Peng masih disemayamkan di istana. Rakyat berbondong-bondong datang untuk melayat," jawab prajurit itu.
+
+"Kalian sempat datang melayat?" tanya Zhang Wuji lagi.
+
+"Komandan mengutus beberapa orang dengan menyamar sebagai penduduk lokal."
+
+"Dan tidak ada tanda-tanda kehadiran Chen Youliang di situ?"
+
+"Sama sekali tidak ada."
+
+"Kira-kira berapa orang yang mengawal kediaman Chen Youliang?" tanya Zhang Wuji.
+
+"Mereka pasti bergiliran," jawab prajurit itu. "Yang kami lihat, setiap kali sekitar satu batalyon."
+
+"Hm," kata Zhang Wuji sambil berpikir. Ia baru melanjutkan setelah beberapa menit, "Kau harus cepat kembali ke Hanyang. 
+Katakan kepada Komandan Xu supaya menempatkan sepuluh orang untuk bergiliran mengawasi tempat kediaman Chen Youliang 
+dari kejauhan. Yang lainnya tetap melakukan tugas utama. Kalian jangan sembarangan bergerak sampai aku datang."
+
+Chang Yuchun terkejut. "Jiaozhu ingin pergi sendiri ke situ?" tanyanya. "Ini sangat berbahaya. Kurasa sebaiknya 
+tugas ini diserahkan kepada Xu Da."
+
+"Tidak," kata Zhang Wuji. "Aku akan mengajak Jiang He untuk mendatangi tempat kediaman Chen Youliang. Aku justru ingin 
+tahu apa reaksi mereka begitu melihat Jiang He. Nanti aku akan memberitahu Xu Da apa yang harus dilakukannya 
+begitu aku tiba di Hanyang."
+
+Ia menoleh kepada Zhao Min dan berkata, "Entah kau atau Zhiruo yang ikut denganku ke Hanyang. Salah satu dari kalian 
+yang akan berbicara dengan Selir-selir Chen Youliang."
+
+"Aku ikut denganmu," kata Zhao Min. "Biarkan Zhou Jiejie jadi ratu di sini."
+
+"Kurasa kau memang lebih cocok untuk tugas-tugas seperti ini," kata Chang Yuchun sambil tertawa.
+
+Zhang Wuji berpikir keras, lalu tiba-tiba ia berkata, "Tidak, ini keliru! Kita tidak bisa ke Hanyang!"
+
+Zhao Min tampak kecewa. "Mengapa?"
+
+Zhang Wuji meminta alat-alat tulis, dan tidak segera menjawab pertanyaan Zhao Min. Sima Han dengan cepat 
+menyediakan apa yang diminta. Setelah menulis surat pendek, Zhang Wuji berkata kepada utusan Xu Da, "Kau cepat 
+kembali ke Hanyang. Sampaikan surat ini kepada Komandan Xu, dia akan mengerti setelah membacanya." Ia berpaling 
+kepada Sima Han dan berkata, "Tolong panggil Jiang He ke sini, aku ingin bicara."
+
+Setelah Sima Han pergi, ia berkata kepada prajurit utusan Xu Da, "Sekarang kau makan dulu sepuasnya, baru kemudian 
+berangkat ke Hanyang."
+
+Ketika Jiang He datang, Zhang Wuji segera memberikan instruksi mengenai apa yang harus dikerjakannya di Hanyang, 
+"Aku hanya ingin kau datang ke situ dan menyampaikan pesanku secara langsung kepada Selir Yang, Lou, Tao dan Du.
+Kau harus mengingatnya baik-baik, jangan kau tulis. Dan kau harus membawa seluruh pasukanmu ke situ."
+
+Jiang He menatapnya dengan pandangan bertanya. Zhang Wuji melanjutkan, "Pesanku sangat sederhana. Katakan seperti 
+ini, 'Zhang Jiaozhu mengucapkan terima kasih atas perhatian keluarga Chen'."
+
+Jiang He tampak heran. "Hanya itu?"
+
+"Betul," kata Zhang Wuji. "Segampang itu."
+
+Tampaknya Jiang He ingin protes, tapi Zhang Wuji segera menambahkan, "Memang gampang, tapi kau _tidak boleh_ menyampaikannya 
+kepada para pengawal yang ada di situ. Kau harus mengatakan bahwa pesan ini harus kau sampaikan secara langsung 
+kepada Selir Yang, Lou, Tao dan Du. Pendeknya, mereka semua _harus_ mendengarnya secara langsung dari mulutmu. Ini 
+bisa kau pahami dengan baik, kan?"
+
+Jiang He mengangguk. Lalu Zhang Wuji menambahkan, "Mulai dari saat pertama kalian masuk ke kota itu sampai bertemu 
+dengan semua selir itu, semuanya harus kau ingat baik-baik. Laporkan kepadaku selengkap mungkin mengenai apa saja 
+yang kalian alami di situ. Ini sangat penting." 
+
+Jiang He baru memahami maksud Zhang Wuji. Ia tampak gembira. 
+
+Zhang Wuji berkata lagi, "Ya, aku tahu, kau pasti sedikit banyak bertentangan dengan para pengawal di tempat itu. 
+Tapi apapun yang mereka lakukan, kalian harus tetap tenang dan bersikap baik-baik saja. Aku melarang kalian bersikap 
+kasar atau melawan. Jika mereka bertanya, katakan bahwa aku yang mengutus kalian. Jika mereka tetap tidak mengijinkan 
+kalian bertemu dengan semua selir itu, maka kalian harus segera pamit, dan kembali ke sini untuk melaporkan semuanya kepadaku."
+
+"Jiaozhu, bagaimana dengan tugas di sini?" tanya Jiang He.
+
+"Mengenai hal ini, aku sudah punya rencana," kata Zhang Wuji. "Pinjamkan seragam yang biasa dipakai pasukanmu 
+kepada pasukan yang dibawa oleh Komandan Chang ini, jumlahnya tepat seperti jumlah pasukanmu sendiri. Mereka yang 
+akan menggantikan tugas kalian sementara kalian pergi ke Hanyang. Sekarang juga kau bisa mulai menjelaskan kepada 
+Komandan Chang mengenai tugas-tugas rutin yang biasa kalian kerjakan untuk mengawal kota Xiangyang."
+
+Ia menoleh kepada Chang Yuchun sambil berkata, "Chang Dage, kau punya waktu sampai tengah malam untuk menyiapkan 
+orang-orang yang bisa melakukan tugas ini dengan baik."
+
+Chang Yuchun menenggak araknya yang terakhir sebelum berkata, "Siap!" Ia menoleh kepada Jiang He. "Komandan Jiang, 
+kau bisa mengambil semua seragam itu sekarang. Ukurannya akan kusesuaikan sendiri dengan orang yang akan kupilih nantinya."
+
+Kedua orang itu saling berjabat tangan sambil tertawa, lalu beranjak pergi untuk mulai melaksanakan tugas.
+
+Setelah mereka meninggalkan tempat itu, Zhao Min menyeringai lebar sambil berkata, "Kurasa aku tahu mengapa 
+kita tidak jadi ke Hanyang."
+
+Zhang Wuji tertawa sambil berkata, "Kelihatannya hanya sedikit hal yang tidak kau ketahui."
 
