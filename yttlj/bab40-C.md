@@ -4,7 +4,7 @@
 
 Semua orang tercengang sambil menatap Ki Seung Nyang, mereka hampir tidak mempercayai apa yang baru saja mereka dengar, 
 tetapi itu semua sangat nyata. Permaisuri yang cantik jelita ini baru saja mengatakan bahwa dirinya bersedia mundur 
-jika Zhang Wuji mau menjadi kaisar bagi dinasti yang baru. Tetapi bagaimana pun juga, ia tetaplah hanya salah seorang dari 
+jika Zhang Wuji mau menjadi kaisar dalam dinasti yang baru. Tetapi bagaimana pun juga, ia tetaplah hanya salah seorang dari 
 dua permaisuri Dinasti Yuan saat itu, dan bukan kaisar sendiri. Apakah ucapannya ini bisa dipercaya? Jangan-jangan 
 ia hanya membual?
 
@@ -20,9 +20,21 @@ Yang Xiao bertanya, "Qi Shimei, kau serius?"
 
 "Soal kaisar, kalian tidak perlu memusingkannya," kata Ki Seung Nyang lagi. "Ini adalah bagianku. Kalau Wuji memang 
 bersedia, maka aku pasti akan melaksanakannya." Sesaat tadi ia melihat Zhang Sanfeng sempat membuka mata untuk 
-menatapnya, meskipun hanya sebentar.
+menatapnya, meskipun hanya sebentar. Ia tahu mereka semua meragukan kata-katanya, karena itu ia menambahkan dengan 
+santai, "Percayalah, aku ini masih tetap adikmu yang dulu. Lain kali aku akan berusaha mengajak Mei Jian dan Ah Luo Shijie 
+supaya kalian bisa menilai dengan lebih baik. Aku bukan seperti Lu Zhi atau Dou Yifang, apalagi Wu Zetian."
 
-Yu Lianzhou yang sejak tadi diam, sekarang mulai ikut bicara. "Katakanlah urusan istana adalah bagianmu, dan ternyata 
+Yang Xiao dan Fan Yao yang memang mengenalnya sejak Ki Seung Nyang kecil memang tidak merasakan perubahan yang terlalu 
+drastis pada diri wanita ini sejak tadi. Tentu saja sekarang ini adik seperguruan mereka itu adalah seorang wanita 
+dewasa yang sudah matang dan penuh pengalaman hidup. Sedangkan Yu Lianzhou hanya pernah bertemu sekali dengan Ki Seung Nyang 
+ketika sedang dalam perjalanan menuju ke Hangzhou, dan ketika itu Ki Seung Nyang adalah seorang gadis tujuh belas tahun,  
+seperti bunga yang sedang mekar. Karena peristiwa itu sendiri sudah lama dilupakannya, ia sempat tidak mengenalinya 
+tadi. Tetapi Permaisuri Qi yang berdiri di hadapannya sekarang ini memang nyaris tidak berbeda dengan gadis muda yang dulu 
+sempat dikenalnya di Jiangxi. Saat itu ia dan Yin Liting tidak punya pilihan kecuali mempercayakan keselamatan anak kecil 
+yang mereka selamatkan itu ke dalam tangan mereka bertiga. Sekarang terbukti gadis itu memang memenuhi janjinya. Jadi ia 
+sendiri cenderung percaya pada kemampuan Ki Seung Nyang. 
+
+Yu Lianzhou sejak tadi diam, taoi sekarang mulai ikut bicara. "Katakanlah urusan istana adalah bagianmu, dan ternyata 
 kau sukses. Bagaimana kau bisa memastikan bahwa di selatan tidak akan terjadi perang?"
 
 Ki Seung Nyang tersenyum dan berkata, "Yu Erxia, masalah di selatan memang aku tidak bisa terlalu banyak ikut campur. 
@@ -77,7 +89,7 @@ ia terpaksa menyetujui perkawinan itu karena neneknya juga terpaksa menerima usu
 sedang memasang Danashiri di sisinya untuk memata-matai segala gerak-gerik Toghon.
 
 Ibu Suri Budashiri sebenarnya masih cukup muda, bahkan lebih muda jika dibandingkan dengan usia Ki Seung Nyang 
-sekarang. Toghon sendiri sebenarnya selalu curiga bahwa neneknya itu bermaksud membunuhnya untuk membuat cucunya 
+sekarang. Toghon sendiri sebenarnya selalu curiga bahwa neneknya itu bermaksud membunuhnya untuk membuat anaknya 
 sendiri, El Tegus, menjadi kaisar. Tetapi akhirnya Ki Seung Nyang berhasil meyakinkannya bahwa satu-satunya cara 
 bagi mereka untuk tetap aman adalah dengan menjadi sekutu Budashiri. Meskipun Budashiri seorang wanita, tetapi 
 karena posisinya sebagai Ibu Suri, El Temur juga tidak berani bertindak sembarangan melawannya.
@@ -954,5 +966,67 @@ Setelah membagi-bagikan daging angsa dan ayam hutan itu, Zhou Zhiruo memanggil s
 "Daging babi hutan agak lama, jadi untuk sementara ini dulu, sekedar untuk mengganjal perut," katanya.
 
 Dari tempat mereka duduk, aroma daging babi hutan yang dibakar telah tercium. Semua orang memuji masakan Zhou Zhiruo.
+"Kalau ada Zhou Furen kita tidak perlu takut kelaparan," kata He Taichong sambil mengunyah ayam bakar berbumbu.
+
+"Aku sempat membawa sedikit bumbu," kata Zhou Zhiruo senang. "Ini tidak terlalu sulit. Ketua He memujiku berlebihan."
+
+Tang Wenliang yang masih bernafsu untuk membalas dendam kepada Chen Youliang mengembalikan topik pembicaraan mereka 
+seperti semula, "Baiklah, katakanlah dia sengaja menghindari kita semua, terutama sekali Zhang Jiaozhu. Tapi jika 
+Wei Yixiao berhasil menemukan jejaknya, lalu apa yang harus kita lakukan?"
+
+"Inilah sebabnya sejak tadi aku selalu mengatakan supaya kita berhati-hati," kata Fan Yao. "Tadi Jiaozhu berpesan supaya 
+Wei Yixiao dan Zhou Dian segera mengirimkan kabar, supaya kita bisa langsung menuju ke tempat itu. Mereka tidak akan 
+sembarangan bergerak, supaya Chen Youliang tidak curiga, dan pindah ke tempat lain. Istana Xu Shouhui di Hanyang 
+itu jauh lebih sederhana jika dibandingkan dengan istana kekaisaran Dinasti Yuan. Jika Chen Youliang berada di tempat 
+lain, pastilah tempat itu jauh lebih sederhana lagi. Bagi kita semua, melumpuhkan para pengawalnya sama sekali 
+bukan tugas yang berat. Kita pasti akan bisa membuatnya berhadapan langsung dengan Jiaozhu."
+
+"Dan setelah itu?" tanya Zhao Min. Ia menoleh kepada Zhang Wuji dengan pandangan bertanya. "Setelah itu, apa 
+yang akan kau lakukan? Membunuhnya?"
+
+"Tentu saja tidak," jawab Zhang Wuji mantap. "Bagaimana pun juga, Chen Youliang saat ini adalah seorang panglima perang 
+yang bagus, mengapa aku harus membunuhnya? Pertama-tama aku ingin minta penjelasan mengenai apa yang sebenarnya 
+terjadi, dan aku yakin dia akan mengatakannya pada saat itu."
+
+"Bagus," kata Zhao Min. "Katakanlah dia mengakuinya. Dia mengakui perbuatannya menghasut Ni Wenjun untuk memberontak, 
+dan kemudian berbalik membunuhnya, seperti _dugaan kita_. Selanjutnya bagaimana? Kau akan mengumumkannya kepada rakyat 
+Tianwan, dan mengembalikan kekuasaan Xu Shouhui, lalu menghukum Chen Youliang?"
+
+Sebetulnya Zhang Wuji masih memikirkan apa tepatnya yang harus dilakukannya kepada Chen Youliang, dan ia masih belum 
+pasti. Tapi setelah Zhao Min mengatakan kalimat terakhir itu, semua orang serempak mengatakan hal yang sama.
+
+"Tepat sekali, itu yang kupikirkan!" tandas He Taichong.
+
+"Xiao Furen sangat tegas, itu yang harus kita lakukan," kata Tang Wenliang.
+
+Yang Xiao dan Fan Yao tidak mengatakan apa-apa, tetapi mereka juga mengangguk tanda setuju.
+
+"Memang kira-kira begitu," kata Zhang Wuji. "Kau punya pendapat lain?"
+
+"Kau sudah tahu sekarang ini Xu Shouhui ada di mana?" tanya Zhao Min.
+
+"Kita kan sudah tahu bahwa Chen Youliang mencegahnya memindahkan ibukota ke Jiangxi," kata Zhang Wuji. "Meskipun 
+kita belum menerima kabar, aku yakin saat ini dia masih di Hanyang."
+
+Tepat pada saat itu, seorang pengemis mendatangi tempat mereka duduk, lalu langsung memberi hormat kepada Zhang Wuji 
+sambil berkata, "Zhang Jiaozhu, Zaixia diutus oleh Wu Zhanglao untuk menyampaikan kabar terakhir mengenai keberadaan 
+Xu Shouhui. Kami berpapasan dengan beberapa orang anggota kami, dan menurut mereka saat ini Xu Shouhui berada di Jiangxi."
+
+"Ah!" seru Zhang Wuji kaget. "Siapa yang mengawalnya?"
+
+"Kami belum tahu pasti," jawab anggota Kai Pang itu.
+
+Fan Yao berkata, "Baiklah, saudaraku, kau pasti lelah, silakan beristirahat sambil makan malam bersama para 
+prajurit itu. Nanti kami akan memanggilmu lagi."
+
+Pengemis itu membungkuk hormat dan mengundurkan diri.
+
+Zhang Wuji tampak gelisah. Ia bangkit berdiri, lalu mondar-mandir sambil berpikir keras, lalu seakan-akan berkata 
+kepada dirinya sendiri, "Sudah jelas Chen Youliang tidak mau memindahkan ibukota ke Jiangxi, ini tandanya dia merasa 
+terancam jika berada di dekat Xu Shouhui. Mengapa masih ngotot mengejarnya ke situ?"
+
+Yang Xiao berkata, "Dia jelas sekali ingin memulihkan wibawanya sendiri. Ini wajar saja."
+
+Tiba-tiba Zhou Zhiruo bertanya, "Yang Zuoshi, kau pikir dia _mampu_ melakukannya?"
 
 
