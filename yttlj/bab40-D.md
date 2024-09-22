@@ -117,7 +117,7 @@ segera memberi hormat dan berkata, "Junzhu, Zhou Furen! Majikan kami mengirimkan
 dukungan penuh bagi perjuangan Gongzi."
 
 Ia membuka tutup peti besi yang berukuran tidak terlalu besar itu. Peti itu tampak sangat berat, tetapi bentuknya 
-seperti peti yang biasanya dipakai untuk membawa parang-barang ketika bepergian jauh, sama sekali tidak terlihat 
+seperti peti yang biasanya dipakai untuk membawa barang-barang ketika bepergian jauh, sama sekali tidak terlihat 
 istimewa.
 
 Kedua wanita itu sangat terkejut ketika melihat isinya adalah lantakan emas murni yang disusun sangat rapi. Zhao Min 
@@ -217,7 +217,7 @@ Gadis-gadis kecil itu tertawa cekikikan, lalu mereka segera menyiapkan perlengka
 Zhou Zhiruo. 
 
 Setelah itu mereka mengunjungi Zhang Wuji di ruangannya. Ketika masuk ke ruangan itu, mereka melihat Zhang Wuji 
-sedang memeriksa tiga buah peti berisi uang yang tadi dibawa masuk oleh Delapan Panah Dewa. Yang Xiao, Fan Yao dan juga 
+sedang memeriksa tiga buah peti berisi uang yang tadi dibawa masuk oleh Delapan Panah Dewa. Yang Xiao, Fan Yao dan  
 Sima Han juga ada di situ.
 
 "Ini sumbangan dari orang yang bernama Zhangsun Qian dari Shandong," kata Zhao Min. "Berani taruhan, kalian tidak ada yang 
