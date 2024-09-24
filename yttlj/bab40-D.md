@@ -1,6 +1,6 @@
 # Raja Tanpa Mahkota
 
-![Ilustrasi Bab 40 C](/assets/images/chaghan-temur.jpg "Jendral Chaghan Temur")
+![Ilustrasi Bab 40 C](/assets/images/Han-River-Xiangyang.png "Sungai Han")
 
 
 Setelah memberikan instruksi dan mengatur kamar-kamar bagi para pelayan yang dikirim Ma Xiuying, Zhou Zhiruo kembali 
