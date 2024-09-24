@@ -1,6 +1,6 @@
 # Bab 41
 
-![Ilustrasi Bab 41](/assets/images/chaghan-temur "Jendral Chaghan Temur")
+![Ilustrasi Bab 41](/assets/images/chaghan-temur.jpg "Jendral Chaghan Temur")
 
 Kecuali Zhang Wuji, mereka semua tercengang mendengar penjelasan Zhao Min. Sampai beberapa menit tak ada 
 yang mengatakan apa-apa. Setelah itu tawa mereka meledak memenuhi ruangan. "Kalian betul-betul licik!" kata Ding Minjun. 
