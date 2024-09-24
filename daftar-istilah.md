@@ -214,3 +214,18 @@ Dao Zhang (道长) adalah sebutan umum bagi seorang praktisi ajaran Tao, yang bi
 
 Karakter Zhang yang sama juga dipakai untuk Zhang Lao (长老), jabatan bagi penatua Kai Pang dan organisasi lain.
 
+## Jiang Yiqi
+
+Jiang Yi Qi (講義氣 atau disederhanakan 讲义气) adalah istilah dalam bahasa mandarin yang artinya kurang lebih 
+adalah 'Rasa Setia Kawan', atau Solidaritas. Atau lebih tepatnya adalah 'Bicara dengan rasa setia kawan'.
+
+Istilah ini sangat umum dipakai dalam percakapan sehari-hari dalam berbagai konteks hingga jaman modern ini.
+
+Intisarinya adalah dua karakter terakhir, Yi Qi (義氣). Bahkan sebenarnya bisa kita persempit lagi menjadi hanya 
+karakter kedua, yaitu Yi (義 atau 义), yang jika berdiri sendiri bisa diterjemahkan menjadi 'Benar' atau 'Adil'. 
+
+Sedangkan karakter Qi (氣 atau 气) punya makna yang sangat kompleks, tergantung pada karakter-karakter lain yang 
+membentuk konteks yang sedang dibahas. Google translate cenderung menerjemahkannya menjadi Gas, Udara, Bau, atau bahkan Cuaca.
+ 
+
+
