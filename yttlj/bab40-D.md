@@ -1385,7 +1385,7 @@ bagaimana harus mengoreksi isi surat itu. Akhirnya ia hanya diam sambil menunggu
 
 Zhao Min tertawa terbahak-bahak, lalu berkata, "Aduh, Shifu! Kau masih belum mengerti ya? Mereka berdua sama sekali 
 tidak perlu berperang. Mereka hanya perlu datang ke situ dengan damai, lalu duduk sambil minum arak dan makan daging 
-dari persediaan sendiri sambil menunggu kedatangan Han Lin'er dan Liu Futong. Setelah itu mereka bisa kembali ke sini, 
+dari persediaan sendiri, menunggu kedatangan Han Lin'er dan Liu Futong. Setelah itu mereka bisa kembali ke sini, 
 dengan alasan harus mematuhi perintah Jiaozhu untuk mengawal Xiangyang ini."
 
 
