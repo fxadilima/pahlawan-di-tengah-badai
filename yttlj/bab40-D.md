@@ -1381,3 +1381,11 @@ Zhang Wuji mengedarkan surat itu supaya semua orang bisa membacanya.
 
 Yang Xiao tampak terkejut ketika membaca isi surat itu. Ini adalah langkah yang sangat berani dari Zhang Wuji.
 
+"Bagaimana kita bisa yakin bahwa Xu Da dan Chang Yuchun akan menang melawan pasukan Wangye?" tanya Fan Yao.
+
+Zhao Min tertawa terbahak-bahak, lalu berkata, "Aduh, Shifu! Kau masih belum mengerti ya? Mereka berdua sama sekali 
+tidak perlu berperang. Mereka hanya perlu datang ke situ dengan damai, lalu duduk sambil minum arak dan makan daging 
+dari persediaan sendiri sambil menunggu kedatangan Han Lin'er dan Liu Futong. Setelah itu mmereka bisa kembali ke sini, 
+dengan alasan harus mematuhi perintah Jiaozhu untuk mengawal Xiangyang ini."
+
+
