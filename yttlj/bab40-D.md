@@ -1220,10 +1220,12 @@ Zhao Min segera membuka gulungan itu dan membaca isinya.
 ```text
 
 Anak-anakku yang baik,
+
 Kaifeng dalam bahaya besar. 
 Pilihan kita hanya dua. 
 Kalian menarik mundur pasukan dari selatan, 
-atau aku mengalihkan Chaghan ke wilayah lain dan berperang dengan mereka semua di majelis.
+atau aku mengalihkan Chaghan ke wilayah lain,
+dan berperang dengan mereka semua di majelis.
 Ambil keputusan segera, tidak boleh ditunda.
 
 Bibi Qi
@@ -1235,8 +1237,8 @@ untuk dia!" Ia berpaling kepada utusan itu. "Kau sekarang istirahat dulu. Nanti 
 
 Ia berlari secepat kilat kembali ke ruangan Zhang Wuji, lalu memberikan surat itu kepadanya. 
 
-"Rupanya serangan dari Dinasti Yuan adalah perintah Bolad Temur," kata Zhao Min. "Ayahku memang tidak bisa menolaknya, 
-karena Bolad Temur adalah atasannya langsung."
+"Kelihatannya serangan dari Dinasti Yuan adalah perintah dari Dash Badalugh, ayah dari Bolad Temur," kata Zhao Min. 
+"Ayahku tidak bisa menolaknya, karena Dash Badalugh adalah atasannya langsung."
 
 Saat itu Bei Jinyi kembali ke ruangan itu bersama dengan Xin Ran, kepala Panji Api Ming Jiao. Mereka sudah selesai 
 membagi-bagikan tugas. Bei Jinyi berkata, "Kami sudah selesai mengatur semuanya. Sekarang bagaimana?"
