@@ -518,14 +518,139 @@ Sekarang ini Permaisuri Qi terang-terangan menyuruhnya bergabung dengan Zhang Wu
 Hal ini membuat Chaghan girang, tetapi kemudian ia mendapat perintah untuk menduduki Kaifeng, yang lagi-lagi terasa 
 agak aneh. Setelah membaca perintah penundaan ini, ia sangat ingin bertemu secara langsung dengan Zhang Wuji, tapi sudah 
 jelas ia tidak bisa melakukannya secara terbuka. Ia berpikir cepat, lalu berkata kepada kurir Permaisuri Qi itu, 
-"Katakan bahwa pasukanku akan menunggu di Nanyang melalui jalan pintas, tapi dari situ aku akan berangkat sendirian 
+"Katakan kepada Huanghou bahwa pasukanku akan menunggu di Nanyang melalui jalan pintas, tapi dari situ aku akan berangkat sendirian 
 ke Xiangyang membawa beberapa orang pengawal untuk menemui keluargaku sebentar."
 
-Kurir itu segera mengiyakan, dan pergi untuk melaksanakan perintahnya.
+Kurir itu segera mengiyakan, dan pergi untuk melaksanakan perintahnya. Chaghan lalu menulis surat pendek kepada 
+Wang Baobao dan mengirimkannya melalui burung merpati.
 
-Chaghan berkata kepada komandan pasukannya, "Kita langsung ke arah Nanyang sekarang!"
+Setelah itu ia berkata kepada komandan pasukannya, "Kita langsung ke arah Nanyang sekarang!"
 
 ***
+
+Kecuali beberapa pengawal pribadinya, saat ini tidak ada yang tahu pasti di mana Ki Seung Nyang berada. Dalam perjalanan 
+pulang dari Wudang, ia telah menerima kabar dari Dadu bahwa Dash Badalugh sedang merencanakan untuk mengirim Chaghan Temur 
+ke Kaifeng. Ki Seung Nyang memandang hal ini sebagai ancaman besar bagi rencananya. Ia segera menuju ke Kaifeng dan 
+memilih untuk tinggal di situ beberapa hari supaya ia bisa mengendalikan situasi dan berkomunikasi dengan berbagai pihak 
+penting, seperti Zhang Wuji dan Chaghan Temur sendiri. Komunikasi seperti ini akan terputus jika ia sendiri juga ikut 
+bergerak, karena ia tahu pasti Chaghan akan langsung menuju ke Kaifeng begitu menerima perintah itu.
+
+Sebagai langkah pertama, Ki Seung Nyang mengirimkan perintah rahasia kepada Chaghan untuk diam-diam menggabungkan kekuatan 
+dengan Zhang Wuji, yang dalam perhitungannya sudah tiba di Xiangyang untuk menguasai keadaan. Sebelum ia sempat melangkah 
+lebih jauh, ternyata ia mendengar gosip yang mengatakan bahwa pihak Han Lin'er dan Liu Futong bermaksud menduduki 
+Kaifeng. Hal ini sangat mengejutkannya.
+
+Ia buru-buru mengirim kabar kepada Zhang Wuji dan memintanya memilih satu di antara dua. Jika ternyata Zhang Wuji memilih 
+untuk melepaskan Liu Futong, maka persoalannya akan menjadi lebih sederhana. Tapi jika ternyata sebaliknya, maka ia 
+akan terpaksa berperang dengan para sekutu Dash Badalugh dan Bolad Temur di majelis. Ia tidak tahu apakah ia akan menang, 
+tetapi untuk melaksanakan rencana besar mereka, baginya tidak ada jalan lain.
+
+Peperangan di Majelis Agung sudah ada sejak dulu, baginya sama saja seperti ketika ia dan Toghon Temur sedang berjuang 
+untuk melepaskan diri dari cengkeraman El Temur. Untungnya pada saat itu mereka punya Mei Jian dan Ah Luo, jika tidak, 
+mungkin mereka sudah lama mati. Setelah lepas dari tangan El Temur, berikutnya lagi timbul seorang Jendral Bayan dari Merkit.
+Setelah itu ternyata masih ada Dash Badalugh, yang bercokol di situ sampai saat ini.
+
+Ia menunggu-nunggu surat balasan dari Zhang Wuji, yang terpaksa dikirimkan langsung melalui kaki tangannya, karena ia 
+tak punya merpati yang mengenal tempat tinggal Zhang Wuji di Xiangyang. Segera setelah menulis surat terakhir, ia 
+langsung berangkat lagi ke Kaifeng ini. Para kurirnya sudah tahu rute yang akan dilaluinya, dan mereka juga sudah 
+diberitahu bahwa ia akan tinggal di Kaifeng selama beberapa hari. Kalau bisa ia ingin terbang sendiri ke Xiangyang 
+dan berbicara langsung dengan keponakan-keponakannya. Sayangnya ia tak punya sayap.
+
+Ki Seung Nyang ingin segera tidur lelap supaya bisa segera melihat hari esok, yang menurut perhitungannya jawaban dari 
+Xiangyang akan tiba. Tapi malam itu pikirannya sangat penuh, dan ia merasa gelisah. Akhirnya ia mengambil pedangnya, 
+lalu menempelkan pesan pendek di pintu, supaya para pengawalnya tahu bahwa ia sedang berjalan-jalan di luar.
+
+Meskipun saat itu sudah memasuki musim semi, tetapi udara malam itu cukup dingin. Ki Seung Nyang berjalan menyeberangi 
+sebuah jembatan, dan memandang ke sekelilingnya. Di Kaifeng ada sebuah pagoda yang disebut Pagoda Youguosi[^pagoda], 
+yang tingginya lebih dari lima puluh meter. Dari tempatnya berdiri pagoda itu tampak sangat agung dan menakjubkan. 
+
+[^pagoda]: You Guo Si Da (佑國寺塔) adalah nama sebuah pagoda setinggi lebih dari 50 meter di Kaifeng.
+
+Di tengah jembatan itu Ki Seung Nyang melihat seorang gadis muda yang bertubuh ramping, dengan lekuk-lekuk tubuh yang 
+nyaris sempurna. Tampaknya gadis itu sedang melamun sendirian sambil memandang ke kejauhan. Sayup-sayup telinganya bisa 
+mendengar gadis itu seperti sedang mengomel atau bergumam sendiri, tetapi ia tidak bisa menangkap kata-katanya. 
+
+Didorong oleh rasa penasaran, Ki Seung Nyang berjalan perlahan-lahan mendekati gadis itu supaya ia bisa mendengar dengan 
+lebih jelas. Tak disangka, tiba-tiba gadis itu melompati pagar jembatan begitu saja. Secara naluriah, Ki Seung Nyang 
+menjerit, "Hei! Apa yang kau lakukan!" Ia mengerahkan qinggong-nya untuk melompat dan menyambar tangan gadis itu, 
+lalu tangan kirinya memegang pinggiran, sementara tangan kanannya yang masih sempat menangkap tangan si gadis tergantung di bawah.
+Ia mengerahkan tenaga dalamnya untuk melontarkan gadis itu kembali ke atas jembatan, lalu secepat kilat ia berusaha 
+mendahului laju si gadis yang dilontarkannya untuk mencegah gadis itu jatuh dan terluka.
+
+Di luar dugaannya, ternyata gadis itu bukan perempuan biasa yang tidak mengenal ilmu silat. Setelah tubuhnya kembali 
+ke atas, ia bersalto beberapa kali dan berdiri tegak sambil tertawa cekikikan, lalu berkata kepada Ki Seung Nyang, 
+"Kau kira aku gila ya? Aku hanya ingin mengambil bunga itu, bukan mau bunuh diri!" Ia menuding ke arah sungai di bawah 
+jembatan itu. Mereka melihat bunga teratai putih yang terapung di atas permukaan air.
+
+Melihat keluguan gadis ini, Ki Seung Nyang tak jadi marah, padahal ia sangat jengkel dan ingin memakinya. Ia berkata, 
+"Lain kali jangan lakukan hal seperti itu! Kau mengagetkan semua orang yang lewat di sini."
+
+"Mana ada orang?" kata si gadis dengan lugu. "Di sini hanya ada kau dan aku."
+
+Ki Seung Nyang mulai jengkel, ia hendak mengatakan sesuatu, tetapi saat itu angin kencang sedang meniup awan yang 
+menyelimuti cahaya bulan purnama, dan cahaya bulan yang cukup terang menyinari wajah gadis itu. Ia melihat gadis itu 
+sebenarnya cantik, meskipun tidak secantik Zhou Zhiruo, tetapi mukanya dipenuhi oleh bekas sayatan pisau yang saat itu 
+sudah sembuh. Meskipun begitu, bekas luka itu tak dapat menutupi kecantikan alamiahnya. Hati Ki Seung Nyang seketika 
+terasa nyeri. Meskipun dari tingkahnya, dan dari gaya bicaranya, gadis ini terkesan agak liar dan seenaknya, bukan tidak mungkin 
+ia tanpa sengaja sering menyakiti hati orang lain, tetapi hampir tidak mungkin ada orang yang setega itu menyakiti gadis semanis ini.
+
+Tiba-tiba Ki Seung Nyang teringat akan sesuatu. Tanpa sadar ia menjerit kaget, "Astaga!"
+
+Gadis itu tampak heran. Ia bertanya, "Kenapa?"
+
+"Yin Li!" kata Ki Seung Nyang. "Kau pasti Yin Li!" Secara naluriah ia melangkah maju, dan bermaksud memeluk gadis 
+itu dan mencium pipinya seperti layaknya seorang ibu yang baru menemukan anaknya yang hilang.
+
+Tetapi gadis itu tiba-tiba melompat mundur dan menatapnya dengan curiga. Ia bertanya, "Siapa kau? Dari mana kau tahu namaku?"
+
+Gadis itu memang Zhu'er, atau Yin Li. Setelah berpisah dengan Zhang Wuji, Zhou Zhiruo dan Zhao Min di Shaolin, ia 
+kemudian berjalan sekehendak hatinya, sampai akhirnya ia tiba di Kaifeng. 
+
+Sejak saat itu ia sudah lama hampir tidak pernah lagi mendengar ada orang memanggil namanya, karena itu ia sangat 
+terkejut ketika Ki Seung Nyang memanggilnya 'Yin Li'. Ia tidak merasa mengenal atau pernah bertemu dengan Ki Seung Nyang 
+sebelum ini. Ia sangat heran bagaimana wanita cantik itu bisa mengenalnya. Dari heran dengan cepat ia menjadi curiga. 
+
+Tiba-tiba ia berkata, "Aku tahu sekarang! Kau pasti selir ayahku yang baru ya?" Ia mendengus, lalu berkata seenaknya, 
+"Orang itu masih belum bertobat juga rupanya! Setua ini masih juga mata keranjang."
+
+Ki Seung Nyang agak tersinggung, tetapi kemudian ia teringat akan cerita Zhou Zhiruo, dan juga ingat mengapa Tajkis 
+tidak pernah menyukai Yin Yewang. Itu sebabnya selama bertahun-tahun tinggal di Guangming Ding ia tidak pernah bertemu 
+dengan Yin Yewang, hanya pernah mendengar namanya melalui cerita orang lain. Sampai di sini ia tertawa terbahak-bahak, lalu 
+berkata dengan lembut, "Yin Li, aku bukan istri baru atau selir Yin Yewang. Percayalah, sebenarnya aku masih termasuk 
+bibimu, atau tepatnya adik seperguruan Yin Susu, ibu Zhang Wuji. Kau boleh memanggilku Bibi Qi."
+
+Yin Li menatapnya dengan penuh perhatian sampai agak lama, lalu tiba-tiba tertawa cekikikan dan berkata, "Tidak, 
+kau pasti bohong! Aku tidak pernah bertemu dengan Yin Susu, dia memang adik ayahku, jadi memang bibiku. Tapi kalau kau 
+bilang 'adik seperguruan', berarti kau ingin mengaku bahwa kau juga orang Tian Yingjiao, padahal aku sama sekali 
+tidak pernah melihatmu di Tian Yingjiao. Jadi kau pasti bohong."
+
+Sejenak Ki Seung Nyang kehabisan akal. Anak ini tentu saja belum lahir ketika Yang Dingtian menghilang, dan kemudian 
+Ming Jiao menjadi kacau. Tian Yingjiao yang disebutnya itu pastilah didirikan oleh Yin Tianzheng, kakeknya, yang 
+memisahkan diri setelah bersitegang dengan Yang Xiao. Jika anak ini bahkan belum pernah bertemu dengan Yin Susu, 
+bagaimana ia bisa menjelaskan hubungannya dengan Ming Jiao sendiri? 
+
+Tiba-tiba ia teringat akan cerita Zhou Zhiruo tentang Pulau Ular, lalu ia mencoba cara lain. "Baiklah," katanya. "Kau pasti 
+masih ingat tentang gurumu, Jinhua Popo. Aku adalah adik seperguruan Jinhua Popo. Nama Jinhua Popo sebenarnya adalah 
+Tajkis. Dulunya Jinhua Popo, Yin Susu, dan aku sendiri adalah kakak beradik seperguruan. Jinhua Popo dan aku adalah 
+murid langsung dari ketua Ming Jiao saat itu, Yang Dingtian."
+
+Yin Li mengamatinya dengan penuh perhatian dari jarak sangat dekat, lalu memicingkan mata sambil bergumam sendiri, 
+"Hm, kau sangat cantik. Kata orang, bibiku Yin Susu juga cantik. Sebetulnya aku tahu, Popo juga cantik, tapi entah 
+kenapa Popo selalu memakai topeng itu." Ia terkekeh, lalu berkata dengan nada lain, "Aku pernah melihatnya membuka 
+topeng kulit itu sebelum tidur, karena itu aku tahu sebenarnya dia sangat cantik." Lalu nada bicaranya berubah lagi, 
+"Eh, kata-katamu tadi agak masuk akal. Tapi aku masih belum percaya ini kau adik seperguruan Popo."
+
+Ki Seung Nyang masih ingat jurus-jurus pedang Tajkis yang berasal dari Persia. Mereka selalu berlatih bersama, 
+dan Tajkis memang pernah mengajarkan jurus itu kepadanya. Ia kemudian memainkan beberapa jurus untuk meyakinkan Yin Li.
+Ia juga memperagakan beberapa jurus tangan kosong yang diajarkan langsung oleh Yang Dingtian kepada mereka semua.
+
+"Wah, hebat!" seru Yin Li sambil bertepuk tangan. "Jurus pedang ini memang pernah dimainkan Popo, tapi memakai tongkat. 
+Dan teknik-teknik pukulan itu juga diajarkan Popo kepadaku!"
+
+Ki Seung Nyang bersalto beberapa kali untuk mengakhiri pertunjukan itu. Ia tersenyum dan berkata, "Nah, berarti sekarang 
+kau sudah mau memanggilku Bibi Qi?"
+
+"Ya," kata Yin Li dengan gembira. "Bibi Qi!"
 
 
 
