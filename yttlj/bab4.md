@@ -1,17 +1,3 @@
----
-layout: page
-title: Bab 4
-author: FX. Adi Lima
-description: Ringkasan Bab 4 Golok Pembunuh Naga, bangkitnya Li Siqi dan Chaghan Temur
----
-
-
-<div class="w3-bar">
-    <a class="w3-btn w3-bar-item w3-hover-black w3-left" href="/"><i class="fa fa-home"></i> HOME</a>
-    <a class="w3-btn w3-bar-item w3-hover-black w3-left" href="/parts/people">Daftar Karakter Utama</a>
-    <a class="w3-btn w3-bar-item w3-hover-black w3-left" href="bab3">Bab 3</a>
-    <a class="w3-btn w3-bar-item w3-hover-black w3-right" href="bab5">Next <i class="fa fa-arrow-right"></i></a>
-</div>
 
 ## Karakter Yang Kuat Muncul Di Tengah Kemelut
 
@@ -2143,12 +2129,4 @@ phy of martial arts is unlimited and boundless. I wouldn’t be surprised if he�
 perior to myself. Perhaps one day I will visit Wu Dang just to meet him. Fifth Hero
 Zhang, what is your best kung fu? I’m quite interested to see.”
 
-***
-
-<div class="w3-bar">
-    <a class="w3-btn w3-bar-item w3-hover-black w3-left" href="/"><i class="fa fa-home"></i> HOME</a>
-    <a class="w3-btn w3-bar-item w3-hover-black w3-left" href="/parts/people">Daftar Karakter Utama</a>
-    <a class="w3-btn w3-bar-item w3-hover-black w3-left" href="bab3">Bab 3</a>
-    <a class="w3-btn w3-bar-item w3-hover-black w3-right" href="bab5">Bab 5</a>
-</div>
 

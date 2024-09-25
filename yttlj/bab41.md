@@ -195,7 +195,199 @@ sendiri. Dan menyumbangkan harta ini tidak akan membuatnya miskin." Ia berkata, 
 mengganggu istirahat kalian. Aku akan kembali besok pagi."
 
 Ia kembali ke keretanya dengan anggun, dan menyimpan kotak berisi hadiah itu. Didorong rasa ingin tahu, ia membukanya 
-sekedar untuk melihat isinya. Ternyata ia melihat deretan uang emas yang nilainya tidak kurang dari lima ribu tail.
-Zhou Zhiruo bersiul. "Ternyata Chen Youliang sekarang sangat kaya," pikirnya. "Entah dari mana dia mendapatkan uang?"
+sekedar untuk melihat isinya. Ternyata ia melihat deretan uang emas yang nilainya tidak kurang dari lima ribu tail, 
+belum ditambah lagi dengan emas murni yang kira-kira dua puluh batang. Zhou Zhiruo bersiul. "Ternyata Chen Youliang 
+sekarang sangat kaya," pikirnya. "Entah dari mana dia mendapatkan uang?"
+
+Ia mengambil sebatang emas murni dari kotak itu, lalu menyuruh Jiang He menukarkannya dengan mata uang Dinasti Yuan di tempat 
+penukaran uang terdekat. Kemudian ia menyimpan baik-baik kotak itu di dalam keretanya. Setelah itu ia menyuruh rombongannya 
+berarak keliling kota sambil menyapa para penduduk.
+
+Sebelumnya mereka bertiga memang pernah mendatangi kota ini, dan bertemu dengan Wu Zhanglao di sini. Tetapi saat itu 
+mereka tidak ingin identitas mereka yang sebenarnya diketahui orang, sedangkan saat ini tujuannya datang ke Hanyang selain 
+untuk mengunjungi keluarga Chen Youliang adalah untuk pamer. Ia ingin tahu apakah para penduduk kota ini akan menyambut 
+kedatangannya sebagai istri ketua Ming Jiao seperti yang dilakukan orang di kota Xiangyang. Pasukan yang mengawal 
+keretanya sengaja membawa bendera Ming Jiao untuk menarik perhatian orang di kota, dan Zhou Zhiruo membiarkan jendela 
+terbuka lebar supaya ia bisa melihat keadaan kota dengan lebih leluasa.
+
+Ternyata sambutan mereka lebih meriah dari apa yang dibayangkannya semula. Meskipun saat ini Zhang Wuji dan Zhao Min 
+tidak bersamanya, tetapi begitu melihat bendera Ming Jiao para penduduk dengan cepat berkerumun di pinggir jalan 
+untuk menantikan keretanya lewat. Ia melambaikan tangan sambil tersenyum ramah untuk menyapa mereka semua. Ia juga menyempatkan 
+diri untuk turun dari kereta dan berbasa-basi dengan para pedagang di pasar, menyalami ibu-ibu muda yang sengaja datang ke situ 
+hanya untuk melihat kedatangannya sambil menggendong anak-anak mereka yang masih kecil, dan dengan ramah mengajak 
+beberapa kelompok pemuda tanggung yang memamerkan kebolehan mereka berakrobat untuk menyambutnya.
+
+Zhou Zhiruo agak terkejut melihat bahwa para pemuda itu menampilkan formasi yang mirip dengan pertunjukan yang dimainan 
+oleh para anggota Panji Lima Elemen Ming Jiao. Entah dari mana mereka belajar berbaris seperti ini. Karena penasaran, 
+ia bertanya dengan nada rendah kepada salah seorang yang kelihatannya pemimpin kelompok, "Dari mana kalian belajar berbaris 
+seperti ini?"
+
+"Dari seorang penjual kain di pinggiran kota," kata pemuda itu sambil tersenyum bangga. "Furen menyukainya?"
+
+"Ya," jawab Zhou Zhiruo ramah. Ia mulai mengerti. Rupanya salah seorang dari prajurit Xu Da yang sedang menyamar 
+secara diam-diam telah mengumpulkan calon anggota baru di sini. Ia tidak menanyakan lebih jauh, dan menyuruh rombongannya 
+meneruskan arak-arakan itu.
+
+Di tengah keramaian itu mata Zhou Zhiruo tertarik pada sosok seorang pria jangkung berjenggot panjang yang mengenakan 
+topi tinggi berwarna hitam. Jubah yang dikenakannya juga berwarna hitam. Ia mengenakan kalung panjang yang berbentuk seperti 
+tasbih milik para biksu Shaolin, tetapi di ujungnya terdapat sebuah simbol salib. Dari simbol itu Zhou Zhiruo mengerti 
+bahwa pria ini adalah seorang pemimpin agama Kristen. Usianya kira-kira empat puluh lima tahun. Dari raut wajahnya, 
+jelas sekali ia datang dari wilayah barat. 
+
+Zhou Zhiruo tersenyum ramah dan menyapanya. Ia tidak tahu bagaimana harus memanggil seorang pastor, dan ia juga tidak tahu 
+apakah orang ini memahami bahasa Han dengan baik, tetapi pria itu ternyata menyapanya lebih dahulu, "Zhou Furen!"
+
+Agak terkejut, Zhou Zhiruo lalu menggunakan istilah pertama yang melintas di benaknya, "Shifu, dari mana kau tahu namaku?"
+
+"Nama Zhou Zhiruo Furen dari Ming Jiao sudah dikenal sejak kalian datang ke Xiangyang," jawab pastor itu sambil tersenyum 
+ramah dan merangkapkan tangannya. Bahasa Han yang diucapkannya ternyata sangat baik. Zhou Zhiruo bisa memahami ucapannya 
+dengan mudah. Pastor itu kemudian memperkenalkan diri, "Zaixia bernama Andre, seorang biarawan Kristen."
+
+Zhou Zhiruo merasa agak sulit mengucapkan nama itu. Ia merasa agak malu, tetapi kemudian ia merasa kata pertama 'An' itu agak 
+mudah diucapkan, jadi ia kemudian menyapa, "Ternyata An Shifu. Zhou Zhiruo merasa mendapat kehormatan bisa bertemu denganmu 
+pada hari ini."
+
+Dengan bijaksana Frater itu menerima panggilan yang disebutkan Zhou Zhiruo. Ia berkata, "Zhou Furen mau menyapa kami 
+semua, ini sebuah keberuntungan bagi rakyat. Yesus memberkati Zhou Furen dan juga Jiaozhu."
+
+Zhou Zhiruo tidak pernah mempelajari agama Kristen, dan Miejue Shitai hanya pernah menceritakan sedikit tentang ajaran 
+agama ini. Tetapi dari cerita Zhao Min, yang leluhurnya rata-rata beragama Kristen, ia tahu bahwa tokoh 'Raja Terang' yang 
+dinanti-nantikan oleh para penganut Ming Jiao itu di dalam agama Kristen adalah seorang pria bernama Yesus. Ketika mendengar 
+ucapan frater itu, Zhou Zhiruo berusaha menirukan sikap dan istilah yang dipakai Frater Andre dengan sebaik-baiknya, 
+"Yesus juga memberkati An Shifu."
+
+Ia merasa lega ketika melihat Frater Andre tampak senang melihat sikapnya. Dilihatnya frater itu dikelilingi oleh banyak 
+anak kecil dan pemuda tanggung. Dandanan mereka beraneka rupa. Ada yang memakai pakaian adat Mongolia, bahkan beberapa diantaranya 
+memakai atribut suku Naiman seperti yang dikenakan Zhao Min. Ada juga yang memakai setelan gaya barat, dengan potongan 
+rambut pendek untuk anak laki-laki. Ada anak perempuan yang memakai pakaian khas suku Han, dan ada juga yang berdandan 
+mirip dengan suku Yue, penduduk asli wilayah selatan.
+
+Sambil berjalan terus bersama rombongannya dan para penduduk kota yang mengelilingi mereka, ia terus menyapa semua 
+orang sambil mengajak frater itu mengobrol, "Kelihatannya An Shifu punya banyak murid anak-anak di sini."
+
+"Mereka semua adalah pengungsi dari utara," jawab Frater Andre. Mukanya tampak prihatin. Ia mengelus jenggot panjangnya 
+sambil berkata, "Mereka mengungsi ke sini sejak ada banjir besar yang melanda wilayah mereka akibat meluapnya Sungai Kuning. 
+Banyak yang orang tuanya meninggal di pengungsian ini. Anak-anak ini rata-rata lahir di tempat pengungsian. Orang tua 
+mereka bekerja sebagai petani untuk para pemilik tanah di sekitar sini. Mereka tidak punya rumah yang layak."
+
+"Mereka semua murid-murid Shifu?" tanya Zhou Zhiruo.
+
+"Ya," jawab Frater Andre. "Beberapa orang sudah dibaptis sejak lahir, karena orang tua mereka memang akhirnya mengikuti 
+ajaran Kristen. Tapi bukan semuanya pengikut Kristen."
+
+Zhou Zhiruo merasa tergerak mendengar ceritanya. Orang tuanya sendiri juga boleh dikatakan meninggal akibat perang. 
+Dan ia sebatang kara sejak masih kecil. Ia bertanya, "Shifu tinggal di sekitar sini?"
+
+"Di dekat sungai," jawab Frater Andre. "Di pinggiran kota, tidak terlalu jauh dari sini, bersama dengan mereka semua. 
+Kami berusaha mengelola tempat itu dengan sebaik-baiknya, tapi karena jumlah mereka terlalu besar, tempat itu sebenarnya 
+tidak layak lagi untuk menampung mereka semua."
+
+Sebuah gagasan tiba-tiba muncul di benak Zhou Zhiruo. Ia berkata, "An Shifu bisa mengantarku ke sana sekarang? Aku ingin 
+mengunjungi mereka."
+
+Frater Andre tampak agak terkejut. Ia segera merentangkan tangan dan mendongak ke langit sambil berkata, "Allah sungguh baik! 
+Ternyata Yesus sendiri yang menuntun Zhou Furen datang ke tempat ini pada hari ini."
+
+Mereka berbondong-bondong mengikuti Frater Andre menuju ke tempat penampungan pengungsi yang disebutkannya itu. Zhou Zhiruo 
+melihat wajah anak-anak itu tampak berseri-seri. Beberapa anak perempuan kecil saling berebut untuk menggandeng tangannya, 
+dan Zhou Zhiruo membiarkan mereka, ia merasa sangat terharu.
+
+Tidak terlalu lama kemudian mereka telah tiba di tempat penampungan pengungsi yang disebutkan oleh Frater Andre. Tempat itu 
+memang cukup luas, di pinggiran anak sungai kecil yang berair jernih. Tetapi karena banyaknya jumlah manusia yang 
+terpaksa tinggal di situ, keadaannya tampak sangat menyedihkan. Gubuk-gubuk sedernaha yang ada di situ menampung jauh 
+lebih banyak orang dari seharusnya. Setiap gubuk beratap jerami itu ditempati oleh puluhan manusia. Di depan gubuk-gubuk 
+itu mereka menjemur ikan asin dan sayur-sayuran yang diawetkan, bersama dengan pakaian-pakaian dan tumpukan peralatan makan.
+
+Para penghuni gubuk-gubuk itu bermunculan ketika melihat Zhou Zhiruo datang. Tampaknya cerita mengenai kedatangan 
+mereka telah tersiar sampai ke tempat ini jauh-jauh hari sebelumnya, dan Frater Andre juga telah banyak menceritakan tentang 
+siapa mereka sebenarnya, setidaknya tentang kiprah Zhang Wuji bersama Ming Jiao. Sekarang semua orang sedang menatapnya 
+dengan penuh rasa ingin tahu. 
+
+Zhou Zhiruo menyalami mereka satu per satu, tetapi karena jumlah mereka terlalu banyak, akhirnya Frater Andre berusaha 
+menertibkan mereka dan para pelayan yang mengikuti Zhou Zhiruo menjadi kewalahan. Zhou Zhiruo berkata di sela-sela 
+keramaian itu kepada Frater Andre, "An Shifu, kita ke dekat kereta sebentar, aku ingin bicara."
+
+Dengan agak susah payah mereka kembali ke sisi kereta Zhou Zhiruo, lalu Zhou Zhiruo mengambil kotak kayu yang diberikan 
+oleh Selir Tou itu dan menyerahkannya kepada Frater Andre sambil berkata, "An Shifu, aku tahu apa kesulitan yang kalian 
+alami di sini. Aku punya ide bagaimana cara mengatasinya. Untuk sementara terimalah dulu sumbangan kecil ini, untuk selanjutnya 
+kami akan berusaha mengurus tempat ini supaya menjadi lebih layak untuk ditinggali."
+
+Ketika melihat isi kotak itu, Frater Andre sangat terkejut dan terharu. Ia buru-buru mengucapkan terima kasih atas 
+nama para pengungsi yang tinggal di tempat itu, lalu melambaikan tangannya kepada mereka semua sambil berseru, 
+"Saudara-saudara, hari ini pertolongan Allah telah tiba! Yesus menuntun Zhou Furen datang ke tempat ini untuk membantu 
+kita semua. Mulai sekarang kalian tidak perlu kuatir lagi."
+
+Para pengunsi yang saat itu jumlahnya telah mencapai lebih dari seratus ribu orang itu seketika berteriak kegirangan 
+sambil mengelu-elukan Zhou Zhiruo dan menyerukan nama Yesus berkali-kali. Zhou Zhiruo sangat terkejut. Ia tidak menyangka 
+mereka akan bereaksi seperti ini. Di tengah lautan manusia itu ia lalu berdiri di atas keretanya untuk mencoba berbicara 
+kepada mereka. Inilah pertama kalinya ia tampil untuk berbicara kepada begitu banyak orang. Ia merasa jantungnya berdetak kencang, 
+dan sejenak ia kehilangan kata-kata dan tak tahu apa yang ingin disampaikannya. Ia memejamkan mata untuk memusatkan 
+pikirannya dan menenangkan hati.
+
+Lalu ia berkata, "Saudara-saudaraku dan anak-anakku yang baik, aku tidak tahu apa yang harus kukatakan. Tapi aku mengerti 
+segala penderitaan kalian. Mulai sekarang Zhou Zhiruo berjanji untuk membantu kalian untuk membuat tempat ini menjadi 
+lebih baik dan layak ditinggali. Kita akan mengerjakannya bersama-sama. Jangan takut, semoga Yesus memberkati kita 
+semua!"
+
+Ketika mendengar pidato singkat itu, para pengungsi langsung berlutut dan menengadah ke langit sambil mengucapkan doa syukur.
+Mereka kemudian bangkit berdiri sambil bersorak, "Yesus menyelamatkan kita! Yesus menyelamatkan kita!"
+
+Zhou Zhiruo bisa melihat bahwa Frater Andre sangat kerepotan mengelola tempat ini dan pengungsi sebanyak itu. Ada beberapa 
+orang anak muda yang sudah diajari membaca dan menulis membantu pekerjaannya, tetapi itu semua tentu saja jauh dari cukup.
+ia meninggalkan lima puluh orang pelayan wanita yang dinilainya cukup terampil dalam mengurus pekerjaan umum yang sesuai 
+dengan tempat ini, ditambah dengan lima puluh orang prajurit dari Xiangyang yang mengawalnya. Ia berpesan bahwa mereka 
+semua harus membantu Frater Andre mengurus tempat ini dengan baik, dan selalu mengirim surat untuk melaporkan segala 
+perkembangan melalui burung merpati.
+
+Ia ingin segera mendatangi tempat kediaman Chen Youliang ketika meninggalkan tempat pengungsian itu, tetapi karena 
+sebelumnya ia sudah mengatakan bahwa ia baru akan datang besok pagi, ia membatalkan niatnya, dan segera menuju ke 
+sebuah penginapan di kota.
+
+Setelah memesan kamar bagi lima puluh orang pelayan perempuan yang tersisa dan bagi dirinya sendiri, ia menyuruh 
+para pengawalnya untuk pergi bersama Jiang He, dan bergabung dengan pasukan Jiang He yang siaga di pinggiran kota. 
+Mereka baru akan kembali ke penginapan itu besok pagi untuk menjemputnya menuju ke tempat kediaman Chen Youliang.
+
+***
+
+Di Xiangyang, Zhang Wuji dan Zhao Min baru selesai makan malam berdua di ruangan pribadi Zhang Wuji, ketika mereka 
+mendengar pintu ruangan itu diketuk dari luar, dan kemudian Zhang Yishang masuk untuk melapor, "Gongzi, Junzhu! 
+Ada seorang pria dari Hangzhou datang untuk bertemu dengan Gongzi atau Junzhu."
+
+"Dari Hangzou?" kata Zhang Wuji. "Bukankah dia bisa ketemu dengan Pendeta Zhang Zhong di Hangzhou? Kenapa harus ke sini?"
+
+"Orang itu menitipkan surat ini," kata Zhang Yishang sambil menyerahkan sehelai kertas berisi surat pendek.
+
+```text
+
+Hanya sebutir pasir di tengah lautan,
+ikut menyertai Zhang Jiaozhu untuk berjuang bagi rakyat.
+
+Murong Feishan
+
+```
+
+Zhang Wuji dan Zhao Min saling berpandangan, dan berkata hampir bersamaan, "Sumbangan lagi?"
+
+Mereka segera menemui pria yang dimaksud di pintu gerbang. Ternyata orang itu hanya utusan dari si penulis surat 
+yang mengaku bernama Murong Feishan dari Hangzhou itu. Setelah berbasa-basi seperlunya ia kemudian menyerahkan sebuah 
+kotak berisi uang yang berjumlah tak kurang dari sepuluh ribu tail emas, lalu buru-buru minta diri dengan wajah puas 
+karena telah berhasil menunaikan tugasnya.
+
+Baik Zhang Wuji maupun Zhao Min tidak merasa pernah mendengar apapun mengenai Murong Feishan dari Hangzhou. Mereka lalu 
+menulis surat kepada Pendeta Zhang Zhong untuk segera menyelidiki siapa orang itu dan apa tujuannya mengirimkan sumbangan 
+bagi Ming Jiao.
+
+Sima Han yang diperintahkan untuk segera mengirimkan surat baru meninggalkan ruangan itu ketika Ah Da masuk membawa 
+sebuah laporan bahwa seorang utusan dari Suzhou datang dengan maksud yang sama. Majikannya bernama Liu Shuo, yang juga 
+sama sekali asing bagi Zhang Wuji dan Zhao Min. Jumlah sumbangannya dua kali lipat dari Murong Feiyan.
+
+Berikutnya secara berturut-turut mereka menerima sumbangan dari Shaanxi, Kaifeng, Guangzhou dan Pyongyang. Semuanya 
+datang dari orang yang tidak mereka kenal. Malam itu mereka telah menerima sumbangan berupa perhiasan mahal, uang emas dan 
+perak, yang jumlahnya mencapai separuh dari total nilai yang mereka terima ketika pertama kalinya mereka tiba di kota Xiangnyang.
+
+
+
+
+
 
 
