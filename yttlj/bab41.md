@@ -471,7 +471,7 @@ Tapi Zhang Wuji bersikeras, dan Ding Minjun memang membutuhkan kehadiran Panji L
 orang bahwa ia datang dengan maksud baik dan diutus secara resmi oleh Zhang Wuji. Akhirnya Ding Minjun terpaksa 
 mengiyakan. Ia berpamitan kepada semua orang, lalu meninggalkan ruangan itu bersama Zhao Min.
 
-Ketika tiba di tempat latihan Ming Jiao, para anggota Panji Lima Elemen sedang llatihan berbaris. Wen Changsong 
+Ketika tiba di tempat latihan Ming Jiao, para anggota Panji Lima Elemen sedang latihan berbaris. Wen Changsong 
 yang memimpin Panji Kayu segera memilih lima puluh orang untuk pergi bersama Ding Minjun ke Kaifeng. Ia memberikan pengarahan 
 kepada mereka semua mengenai apa yang harus dilakukan di Kaifeng, lalu Ding Minjun juga membagi tugas di antara mereka 
 sendiri.
@@ -496,7 +496,37 @@ memanggilnya 'Minmin', dan tampaknya semua permusuhan di antara mereka sudah hil
 yang sudah berangkat terlebih dahulu ke arah timur, lalu berpikir, "Dua musuh tiba-tiba menjadi teman baik. Rasanya 
 nasibku tidak terlalu jelek."
 
+
 ***
+
+Setelah mengirimkan surat kepada Zhang Wuji di Xiangyang, Changhan Temur segera beranjak ke arah Kaifeng, sesuai dengan 
+perintah dari atasannya. Ia masih memikirkan bagaimana cara mengelak dari tugas ini, karena sebenarnya ia tidak ingin 
+beranjak dari Suzhou. Rombongannya telah melewati Jiangsu, ketika mereka berpapasan dengan seorang kurir yang mengantarkan 
+surat dari Ki Seung Nyang. 
+
+Surat itu dengan jelas menyuruhnya menunda waktu untuk memasuki Kaifeng sebisa-bisanya, dan melaporkan posisi yang diinginkannya 
+untuk menunggu perintah selanjutnya. Ia menjadi gelisah. Ini artinya adalah saat ini Permaisuri Qi sedang bersitegang 
+dengan Dash Badalugh dan kelompoknya, atau setidaknya perintah ini bertentangan dengan apa yang diinginkan Permaisuri Qi.
+
+Chaghan sejak semula memang adalah pendukung setia Ki Seung Nyang. Tetapi ia ternyata ditempatkan sebagai bawahan dari 
+Dash Badalugh, yang memang banyak mendukung karirnya. Tetapi dalam perkembangan ternyata orang itu bertentangan dengan 
+Ki Seung Nyang, dan sekarang ia jadi sering terombang-ambing. Serangan ke Shaolin itu adalah perintah dari anak 
+Dash Badalugh, yaitu Bolad Temur, dan ia terpaksa menurutinya, meskipun ia tidak ingin menyerang Shaolin. Untungnya 
+Permaisuri Qi akhirnya menarik pulang pasukannya pada saat yang tepat.
+
+Sekarang ini Permaisuri Qi terang-terangan menyuruhnya bergabung dengan Zhang Wuji, yang sudah menikahi putri kesayangannya.
+Hal ini membuat Chaghan girang, tetapi kemudian ia mendapat perintah untuk menduduki Kaifeng, yang lagi-lagi terasa 
+agak aneh. Setelah membaca perintah penundaan ini, ia sangat ingin bertemu secara langsung dengan Zhang Wuji, tapi sudah 
+jelas ia tidak bisa melakukannya secara terbuka. Ia berpikir cepat, lalu berkata kepada kurir Permaisuri Qi itu, 
+"Katakan bahwa pasukanku akan menunggu di Nanyang melalui jalan pintas, tapi dari situ aku akan berangkat sendirian 
+ke Xiangyang membawa beberapa orang pengawal untuk menemui keluargaku sebentar."
+
+Kurir itu segera mengiyakan, dan pergi untuk melaksanakan perintahnya.
+
+Chaghan berkata kepada komandan pasukannya, "Kita langsung ke arah Nanyang sekarang!"
+
+***
+
 
 
 
