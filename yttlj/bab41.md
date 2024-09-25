@@ -638,7 +638,7 @@ Yin Li mengamatinya dengan penuh perhatian dari jarak sangat dekat, lalu memicin
 "Hm, kau sangat cantik. Kata orang, bibiku Yin Susu juga cantik. Sebetulnya aku tahu, Popo juga cantik, tapi entah 
 kenapa Popo selalu memakai topeng itu." Ia terkekeh, lalu berkata dengan nada lain, "Aku pernah melihatnya membuka 
 topeng kulit itu sebelum tidur, karena itu aku tahu sebenarnya dia sangat cantik." Lalu nada bicaranya berubah lagi, 
-"Eh, kata-katamu tadi agak masuk akal. Tapi aku masih belum percaya ini kau adik seperguruan Popo."
+"Eh, kata-katamu tadi agak masuk akal. Tapi aku masih belum percaya kau ini adik seperguruan Popo."
 
 Ki Seung Nyang masih ingat jurus-jurus pedang Tajkis yang berasal dari Persia. Mereka selalu berlatih bersama, 
 dan Tajkis memang pernah mengajarkan jurus itu kepadanya. Ia kemudian memainkan beberapa jurus untuk meyakinkan Yin Li.
