@@ -383,11 +383,120 @@ sama sekali asing bagi Zhang Wuji dan Zhao Min. Jumlah sumbangannya dua kali lip
 
 Berikutnya secara berturut-turut mereka menerima sumbangan dari Shaanxi, Kaifeng, Guangzhou dan Pyongyang. Semuanya 
 datang dari orang yang tidak mereka kenal. Malam itu mereka telah menerima sumbangan berupa perhiasan mahal, uang emas dan 
-perak, yang jumlahnya mencapai separuh dari total nilai yang mereka terima ketika pertama kalinya mereka tiba di kota Xiangnyang.
+perak, yang jumlahnya mencapai separuh dari total nilai yang mereka terima ketika pertama kalinya mereka tiba di kota Xiangyang.
 
+Ketika menelusuri catatan kecil yang ditulis Zhao Min, mereka segera tertarik pada jumlah para penyandang dana dari 
+Kaifeng yang mencapai dua puluh tujuh orang. Meskipun sumbangan mereka tidak terlalu besar, tetapi jumlah orang yang 
+berasal dari situ menimbulkan pertanyaan yang menarik. Zhang Wuji segera mengumpulkan orang-orang terdekatnya untuk mengadakan 
+rapat untuk membahas hal ini.
 
+Sebelum Zhang Wuji sempat mengungkapkan apa-apa mengenai Kaifeng, Sima Han melaporkan isi surat yang baru diterimanya 
+dari Wu Zhanglao, "Jiaozhu, Wu Zhanglao melaporkan bahwa Chen Youliang diketahui beberapa kali berusaha menyelundup keluar 
+dari Jiangxi, tapi usahanya berhasil dibendung."
 
+"Oh, berarti dia memang tertahan di situ," kata Zhang Wuji.
 
+"Betul," kata Sima Han. "Tapi sayangnya Wu Zhanglao baru menyadari bahwa beberapa anak buah Chen Youliang berhasil 
+keluar dari kota itu dengan menyamar sebagai biksu. Kelihatannya mereka sedang menuju ke Hanyang."
+
+"Jumlah mereka kira-kira berapa orang?" tanya Zhao Min.
+
+"Lebih dari seratus orang," jawab Sima Han. "Mereka pura-pura sedang mengadakan upacara keagamaan, dan rakyat berbondong-bondong 
+mengikuti mereka, karena itu Wu Zhanglao beranggapan bahwa mereka sungguh-sungguh biksu biasa. Wu Zhanglao baru menyadari 
+kekeliruan ini setelah menyelidiki setiap kuil di Jiangxi, dan menemukan bahwa tak satu pun dari kuil-kuil itu mengadakan 
+upacara di luaran pada hari itu."
+
+"Saat ini kira-kira mereka sudah sampai di mana?" tanya Fan Yao.
+
+"Laporan ini datang dari anggota kami di Huanggang, mustinya mereka sudah di dekat situ," kata Sima Han lagi. "Wu Zhanglao 
+memang segera menghubungi setiap pos kami di sepanjang jalan menuju Hanyang untuk menjaga segala kemungkinan. Mereka 
+pasti sedang mencari jalan untuk menghadang para biksu itu tanpa menimbulkan keributan besar yang bisa mengganggu 
+rakyat setempat. Tapi ternyata mereka mengendus gerakan para anggota Kai Pang, dan akhirnya mereka memecahkan diri 
+menjadi beberapa kelompok yang menyamar menjadi penduduk biasa untuk mengelabuhi orang-orang kami."
+
+Yang Xiao berkata, "Chen Youliang sudah terbiasa dengan cara kalian beroperasi, tentu saja ini menimbulkan masalah tersendiri 
+bagi Kai Pang. Bukan tidak mungkin biksu-biksu itu berasal dari anggota Kai Pang di bawah asuhan Chen Youliang sebelumnya."
+
+"Betul," kata Ding Minjun. "Padahal Zhiruo sedang berada di Hanyang. Ini bisa menimbulkan masalah baginya."
+
+Bei Jinyi berkata, "Apa kita sekarang juga berangkat ke situ untuk membantu Zhiruo?"
+
+"Belum perlu," kata Zhang Wuji. "Kita akan menulis surat kepada Xu Da untuk mewaspadai hal ini. Sekarang ini sekitar 
+dua ribu prajurit Xu Da ada di Hanyang dan menyamar sebagai penduduk biasa. Chen Youliang tidak tahu apa-apa mengenai 
+orang-orang Xu Da."
+
+Ia segera menulis sebuah surat pendek untuk memberi instruksi kepada Xu Da, lalu menyuruh Sima Han segera mengirimkannya.
+
+"Nah, sekarang kita membahas penemuan kami yang baru," kata Zhang Wuji. Ia lalu menceritakan apa yang ditemukannya bersama 
+Zhao Min tentang para penyumbang dari Kaifeng itu.
+
+"Mereka sudah jelas mendekati kita karena tahu sebentar lagi Liu Futong akan menyerang wilayah mereka," kata Fan Yao.
+
+Yang Xiao berkata, "Bukan hanya serangan dari pihak Liu Futong. Kelihatannya mereka juga sudah mengendus bahwa Chaghan Temur 
+sebentar lagi akan menduduki Kaifeng. Ini sebabnya mereka menjadi waswas, karena mereka tidak tahu pihak mana yang akan 
+berkuasa di situ."
+
+Bei Jinyi berkata, "Bukankah seharusnya mereka mendekati Liu Futong dan Chaghan Temur, kenapa mereka justru mendekati kita?"
+
+"Huh!" dengus Ding Minjun. "Jangan heran kalau mereka sebenarnya juga mendekati kedua pihak itu. Pada dasarnya mereka 
+akan mendekati semua pihak yang sedang mengincar kota mereka."
+
+Zhang Wuji berkata, "Ding Shijie, aku tidak mengincar kota mereka."
+
+"Itu tidak sulit dimengerti," kata Fan Yao. "Bagi mereka yang paling berbahaya memang adalah Wangye dan Liu Futong. 
+Karena mereka tidak bisa memastikan pihak mana yang akan menang jika terjadi perang, maka mereka lalu mendekati Jiaozhu."
+
+"Kenapa begitu?" tanya Bei Jinyi lagi.
+
+"Itu lebih gampang lagi," jawab Fan Yao sambil tertawa. "Karena Jiaozhu punya hubungan baik dengan kedua belah pihak 
+itu. Jadi siapapun yang akan memenangkan perang, jika mereka punya hubungan baik dengan Jiaozhu, maka mereka pasti akan aman."
+
+Ding Minjun tertawa terbahak-bahak. "Kalau terus-terusan seperti ini, dalam waktu beberapa bulan kalian akan menjadi 
+orang terkaya di Zhongyuan. Yang perlu kalian lakukan adalah tidak bermusuhan dengan pihak mana pun."
+
+Zhao Min bisa menangkap sindiran halus Ding Minjun, tapi ia tidak marah. "Kadang-kadang rakyat memang membutuhkan 
+orang jahat yang bisa memperlakukan mereka dengan baik," katanya.
+
+Zhang Wuji meluruskan kembali pembicaraan, "Kita tetap harus menyelidiki apa tujuan orang-orang ini, dan siapa mereka 
+sebenarnya. Jangan sampai ada yang luput dari perhatian kita."
+
+"Baiklah, aku yang akan berangkat ke Kaifeng untuk menyelidikinya," kata Ding Minjun. "Bei Shimei, kau tetap di sini."
+
+"Aku akan mengutus beberapa orang dari Panji Kayu untuk menemanimu," kata Zhang Wuji. "Minmin, kau temani Ding Shijie 
+untuk menemui Wen Cangsong!"
+
+Ding Minjun tertawa. "Kurasa tidak perlu," katanya. "Soal ini bisa kutangani sendiri. Aku cukup kenal daerah Kaifeng."
+
+Tapi Zhang Wuji bersikeras, dan Ding Minjun memang membutuhkan kehadiran Panji Lima Elemen Ming Jiao untuk meyakinkan 
+orang bahwa ia datang dengan maksud baik dan diutus secara resmi oleh Zhang Wuji. Akhirnya Ding Minjun terpaksa 
+mengiyakan. Ia berpamitan kepada semua orang, lalu meninggalkan ruangan itu bersama Zhao Min.
+
+Ketika tiba di tempat latihan Ming Jiao, para anggota Panji Lima Elemen sedang llatihan berbaris. Wen Changsong 
+yang memimpin Panji Kayu segera memilih lima puluh orang untuk pergi bersama Ding Minjun ke Kaifeng. Ia memberikan pengarahan 
+kepada mereka semua mengenai apa yang harus dilakukan di Kaifeng, lalu Ding Minjun juga membagi tugas di antara mereka 
+sendiri.
+
+Ding Minjun secara terperinci memberikan pengarahan mengenai cara menghadapi para pejabat yang hendak mereka temui, 
+berikut detil-detil mengenai cara menjawab jika mereka ditanya, bagaimana cara bersikap, dan banyak detil lain yang 
+cukup panjang. Ini dilakukannya karena ia tahu persis bahwa para anggota Panji Lima Elemen Ming Jiao tidak terbiasa menghadapi 
+orang seperti para pejabat pemerintahan. Ia tahu jika mereka salah bicara, dan tanpa sengaja membuat orang lain tersinggung, 
+maka mereka akan kehilangan dukungan.
+
+Zhao Min mengambil kesempatan itu untuk pergi ke dapur dan menyuruh para pelayan menyiapkan bakpao banyak-banyak untuk 
+dibawa sebagai bekal di perjalanan. Ia juga mengambil sejumlah uang untuk membiayai perjalanan ke Kaifeng itu.
+
+Ding Minjun agak terkejut melihat perhatian Zhao Min. "Aku tidak menyangka akhirnya kau — Setan Cilik ini — bisa bersikap 
+baik kepadaku," katanya sambil tersenyum. "Terima kasih untuk semuanya."
+
+Ia segera menaiki kudanya, diikuti oleh semua anggota Ming Jiao yang menemaninya ke Kaifeng. Sebelum berangkat, 
+sekali lagi ia menoleh kepada Zhao Min sambil tersenyum dan berkata, "Minmin, sekali lagi terima kasih."
+
+Ketika bayangan mereka lenyap ditelan kegelapan malam, Zhao Min tersenyum sendiri. Ini untuk pertama kalinya Ding Minjun 
+memanggilnya 'Minmin', dan tampaknya semua permusuhan di antara mereka sudah hilang. Ia membayangkan Ban Shuxian 
+yang sudah berangkat terlebih dahulu ke arah timur, lalu berpikir, "Dua musuh tiba-tiba menjadi teman baik. Rasanya 
+nasibku tidak terlalu jelek."
+
+***
 
 
 
