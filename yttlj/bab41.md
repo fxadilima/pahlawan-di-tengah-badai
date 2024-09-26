@@ -983,8 +983,89 @@ kau bercanda ya?"
 
 "Kau akan tahu begitu kita sampai di situ," kata Ki Seung Nyang sambil tersenyum. "Aku punya seorang putra yang bernama 
 Ayushiridara[^ayushiridara]. Nama itu memang sulit disebutkan bagimu. Karena dia lebih muda, kau boleh memanggilnya sesukamu. Kita akan 
-memberitahu dia pada saat kalian berkenalan."
+memberitahu dia pada saat kalian berkenalan. Sama seperti anak kedua bibimu yang lain itu, dia juga sudah tujuh belas tahun 
+sekarang." Ia menghela nafas panjang dan berkata, "Aku sudah mulai tua."
 
 [^ayushiridara]: Nama Pangeran Ayushiridara dalam bahasa mandarin dituliskan (愛猷識理答臘 atau 爱猷识理答腊), yang akan terbaca seperti nama itu sendiri, yaitu Ai You Shi Li Da La.
+
+"Bibi sama sekali tidak tua," kata Yin Li. "Bibi masih cantik."
+
+Sejenak Yin Li tampak berpikir, rupanya ia mengalami kesulitan untuk menyebutkan nama itu, lalu mengutip dua kata terakhir 
+yang lebih mudah diingatnya, "Kurasa aku akan memanggilnya 'Dala'. Bibi tidak keberatan, kan?"
+
+Ki Seung Nyang tertawa. "Kau tanyakan sendiri nanti. Dia keberatan atau tidak."
+
+Sepertinya Yin Li mulai menyadari sesuatu. Ia memiringkan kepalanya sedikit, lalu bertanya, "Nama itu mirip nama orang 
+Mongolia. Berarti Bibi memang seorang permaisuri..."
+
+Ki Seung Nyang hanya tersenyum, lalu memegang tangan Yin Li dengan lembut sambil berkata, "Kau keberatan punya seorang 
+bibi seperti aku ini?"
+
+Yin Li langsung menggelengkan kepalanya sambil berkata, "Kenapa harus keberatan? Bibi sangat baik kepadaku." Ia lalu 
+mengamati wajah Ki Seung Nyang dari jarak dekat dengan penuh rasa ingin tahu, lalu berkata lagi, "Tapi Bibi sama sekali 
+tidak tampak seperti orang Mongolia. Lebih mirip orang-orang Jiangnan."
+
+Ki Seung Nyang tertawa sambil mengajaknya duduk di sisi tempat tidur, lalu melepaskan sebuah gelang giok dari pergelangan 
+tangannya. Ia berkata sambil memakaikan gelang itu di pergelangan tangan kiri Yin Li, "Sebenarnya aku berasal dari Goryeo. 
+Aku datang ke Jiangnan sejak berusia tiga belas tahun, dan karena guruku berasal dari Zhongyuan, maka aku juga sejak 
+kecil diajari bahasa Han dengan baik. Namaku Ki Seung Nyang. Marga itu agak mirip dengan Gi atau Qi, dan karena aku 
+ini adik seperguruan mereka yang ketujuh, maka tidak salah kalau kau memanggilku Bibi Qi. Saat ini hanya Yang Xiao atau 
+Fan Yao, dan juga kedua bibimu itu, yang memanggilku Qi Shimei."
+
+"Oh, rupanya begitu," kata Yin Li sambil menepuk keningnya sendiri. "Tapi Bibi betul-betul tidak berbeda dengan orang-orang 
+Jiangnan pada umumnya."
+
+Ki Seung Nyang lagi-lagi menghela nafas panjang, lalu bernostalgia, "Kalau begitu aku sungguh sangat beruntung. Sayangnya 
+aku tidak bisa bertemu dengan Yin Susu lagi. Aku sungguh merindukannya."
+
+"Aku juga tidak sempat bertemu dengan dia," kata Yin Li.
+
+Ki Seung Nyang memperhatikan Yin Li, mulai dari mata, alis, hidung, bibir, dan pipinya. Lalu ia berkata dengan muka 
+serius, "Kau tahu, waktu aku melihatmu dari jarak cukup dekat di jembatan itu semalam, kau tampak sangat mirip dengan 
+Yin Shijie. Itulah yang membuatku kaget. Lalu aku langsung menyadari bahwa kau pastilah Yin Li."
+
+Yin Li tertawa, yang membuatnya semakin mirip dengan Yin Susu. Ia bertanya, "Siapa yang memberitahu Bibi tentang aku?"
+
+"Zhiruo."
+
+Yin Li heran. "Dia?" tanyanya.
+
+Ki Seung Nyang tidak ingin menyebutkan percakapannya dengan Zhou Zhiruo. Ia mengambil kuas, lalu berkata, "Sekarang aku 
+harus menulis surat ke Xiangyang. Kau ingin titip pesan apa?"
+
+Yin Li hanya menggelengkan kepalanya tanpa menjawab. Ia berjalan ke dekat jendela sambil berpikir-pikir. Ki Seung Nyang 
+lalu mulai menulis.
+
+```text
+
+Keponakan-keponakanku Yang Baik,
+
+Bibi tahu Zhiruo pergi ke Hanyang.
+Perhatikan seratus orang dari timur.
+Ayah kalian akan datang dari Nanyang untuk bertemu.
+Waspadai Nanjing, jangan terlalu percaya.
+Kita jalankan rencana tentang Kaifeng.
+Bibi masih di Kaifeng.
+Yin Li sedang bersamaku di sini.
+Aku menemukannya di Kaifeng semalam.
+Dia ingin pergi bersamaku ke utara.
+
+Bibi Qi
+
+```
+
+Setelah selesai menulis surat itu, ia berkata, "Ah Li, kalau kau tidak ingin menulis apa-apa lagi, aku akan 
+menyuruh orang mengirimkannya sekarang." Tapi Yin Li hanya menggeleng, dan tidak menjawab.
+
+Ki Seung Nyang segera memanggil Han Lin untuk mengirimkan surat itu melalui burung merpati. Ketika burung itu dilepas, 
+mereka berdua masih sempat melihatnya melalui jendela. 
+
+[^shichen]: Shichen (时辰) adalah ukuran waktu tradisional Tiongkok. 1 Shichen kurang lebih sama dengan 2 jam.
+
+Ki Seung Nyang berkata sambil merangkul Yin Li sementara mereka mengawasi merpati itu terbang dengan sangat cepat, 
+"Burung itu hanya butuh waktu sekitar dua shichen[^shichen] untuk mencapai Xiangyang dari sini. Nanti sore kita akan 
+menerima kabar balasan dari mereka."
+
+Yin Li tampak senang mendengar ucapannya. Ia tersenyum lebar, tapi tidak mengatakan apa-apa.
 
 
