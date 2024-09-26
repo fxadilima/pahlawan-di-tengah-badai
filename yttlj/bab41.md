@@ -981,5 +981,10 @@ nanti kau akan tinggal di istana. Di situ kau harus memanggilku Muhou[^muhou], d
 Meskipun Ki Seung Nyang sudah berhati-hati, tapi Yin Li tetap kaget, lalu kemudian cekikikan dan berkata, "Bibi Qi, 
 kau bercanda ya?"
 
+"Kau akan tahu begitu kita sampai di situ," kata Ki Seung Nyang sambil tersenyum. "Aku punya seorang putra yang bernama 
+Ayushiridara[^ayushiridara]. Nama itu memang sulit disebutkan bagimu. Karena dia lebih muda, kau boleh memanggilnya sesukamu. Kita akan 
+memberitahu dia pada saat kalian berkenalan."
+
+[^ayushiridara]: Nama Pangeran Ayushiridara dalam bahasa mandarin dituliskan (愛猷識理答臘 atau 爱猷识理答腊), yang akan terbaca seperti nama itu sendiri, yaitu Ai You Shi Li Da La.
 
 
