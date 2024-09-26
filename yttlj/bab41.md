@@ -908,11 +908,78 @@ Ia berjalan masuk ke ruangan pribadinya dengan kepala tegak tanpa menunggu komen
 
 Tajkis menghela nafas panjang. Ia tak tahu sampai kapan ia sanggup menahan langkah-langkah putrinya yang dianggapnya 
 terlalu berani. Kungfu mereka saat ini memang sudah di atas semua 'Raja' di Ming Jiao Persia. Tetapi jika Xiao Zhao 
-memaksakan kehendaknya, kemungkinan besar mereka akan bersekutu untuk melawan. Lalu bagaimana mereka akan mengatasinya?
+memaksakan kehendaknya, kemungkinan besar raja-raja itu akan maju bersama-sama. Lalu bagaimana mereka akan mengatasinya?
 
 ***
 
+Pagi-pagi sekali pintu kamar penginapan Ki Seung Nyang sudah diketuk. Ia terbangun dan buru-buru merapikan rambutnya, 
+lalu membuka pintu. Han Lin membungkuk hormat dan menyapa, "Selamat pagi, Huanghou!"
+
+"Ada kabar?"
  
+"Baru saja tiba," kata Han Lin sambil menyodorkan selembar surat yang terlipat. Ia menambahkan, "Mereka juga mengatakan 
+ingin bertemu dengan Wangye."
+
+Ki Seung Nyang mengangguk, lalu berkata, "Baik, kau tunggu di tempatmu."
+
+Han Lin berbalik untuk pergi, tetapi ia kembali lagi sambil berkata, "Mereka juga menitipkan dua ekor burung merpati 
+yang bisa digunakan untuk mengirim kabar dengan cepat. Jika dilepas dari sini, burung-burung itu pasti akan mengenali 
+tempat ini, lalu pulang ke Xiangyang. Jadi kabar berikutnya pasti akan kita terima dengan lebih cepat selama kita masih 
+di sini. Tapi kalau kita ingin pergi, maka kita harus mengirimkan kabar segera, supaya mereka tidak memakai merpati yang 
+sama, sehingga surat-surat itu bisa dibaca orang lain."
+
+Ki Seung Nyang mengangguk puas. Ia berkata, "Bagus! Aku mengerti, kau boleh pergi."
+
+Setelah menutup pintu, Ki Seung Nyang duduk dan mulai membaca surat itu. Dilihatnya Yin Li terbangun karena mendengar 
+suara Han Lin. Gadis itu sedang menggeliat sambil duduk di tempat tidurnya, lalu berjalan ke jendela dan membukanya. 
+Ia terpesona melihat pemandangan kota Kaifeng dari jendela itu, "Wow! Bagus sekali."
+
+Ki Seung Nyang sedang membaca surat yang ditulis Zhao Min sampai beberapa kali sambil berpikir keras. Ia seakan-akan 
+tidak mendengar suara Yin Li, karena itu Yin Li bertanya, "Bibi, kau sedang membaca surat dari Xiangyang ya?"
+
+Karena Yin Li bicara sambil mendekatinya, lalu duduk di hadapannya, di depan sebuah meja bundar yang di atasnya masih 
+tersisa dua potong bakpao yang mereka beli semalam, maka Ki Seung Nyang sekarang menyadari pertanyaan itu. Ia tersenyum, 
+lalu menyodorkan surat itu tanpa mengatakan apa-apa. Sementara Yin Li membaca surat, ia mengambil sepotong bakpao dan 
+menyisakan potongan lainnya untuk Yin Li. Kemudian ia berjalan ke jendela dan memandang kesibukan pagi para penduduk kota 
+sambil berpikir-pikir.
+
+Suasana pagi di Kaifeng membangkitkan semangatnya. Ia menikmati makanannya dengan santai, dan dalam waktu singkat 
+beberapa ide muncul di benaknya. Ia menelusuri beberapa kemungkinan dengan tenang sambil memandang Yin Li.
+
+"Rasanya ini bukan tulisan Zhang Wuji — maksudku Aniu Gege," kata Yin Li. "Aku pernah melihat tulisannya."
+
+Ki Seung Nyang mengangguk. Ia mengenali tulisan Zhao Min. "Betul," katanya. "Itu tulisan Minmin. Tapi Aniu Gege-mu 
+juga pasti berpendapat sama. Kemarin mendengar Zhiruo sedang pergi ke Hanyang, berarti dia tidak ikut memikirkan masalah ini."
+
+"Zhou Jiejie ada di Hanyang?" kata Yin Li. "Untuk apa dia pergi ke situ?"
+
+"Aku tidak tahu pasti," kata Ki Seung Nyang. "Saat ini ada lebih dari seratus orang anak buah Chen Youliang sedang 
+menuju ke Hanyang, dan ini agak mengkuatirkan."
+
+"Kalau begitu kita harus memberitahu dia," kata Yin Li lagi.
+
+"Kau benar," kata Ki Seung Nyang sambil mengambil kuas, lalu duduk untuk menulis surat.
+
+Tak lama kemudian ia membuka pintu, dan memanggil salah seorang pengawalnya yang berdiri di dekat kamar.
+
+"An Shubiao! Cepat kirimkan ini melalui burung merpati kepada orang kita di dekat Hanyang, suruh mereka segera mengantarkannya 
+kepada Zhou Zhiruo!"
+
+Setelah pengawal itu pergi, pelayan datang untuk mengantarkan teh dan air hangat bagi mereka untuk menyegarkan diri.
+Ki Seung Nyang memesan beberapa hidangan untuk sarapan mereka.
+
+Yin Li minum teh dan mengambil bakpao sisa semalam, lalu bertanya, "Bibi Qi, kenapa tadi orang itu memanggilmu 'Huanghou'? 
+Apa kau memang seorang permaisuri?"
+
+Ki Seung Nyang kaget. Rupanya tadi Yin Li sudah bangun ketika Han Lin datang. Tetapi ia kemudian tersenyum sambil 
+berkata dengan santai, "Aku kadang-kadang suka berpura-pura jadi Huanghou. Nanti kau akan tahu. Kau bilang ingin ikut ke Dadu[^dadu], 
+nanti kau akan tinggal di istana. Di situ kau harus memanggilku Muhou[^muhou], dan kau pura-pura jadi anakku, kau mau?"
+
+[^muhou]: Mu Hou (母后) adalah panggilan seorang anak kepada ibu mereka, yang adalah permaisuri kaisar.
+[^dadu]: Yuan Dadu (元大都), atau disingkat Dadu, adalah Khanbaliq atau Beijing di jaman modern. Saat itu kota ini adalah ibukota Dinasti Yuan. Nama Khanbaliq itu sendiri berarti 'Kota Para Khan'.
+
+Meskipun Ki Seung Nyang sudah berhati-hati, tapi Yin Li tetap kaget, lalu kemudian cekikikan dan berkata, "Bibi Qi, 
+kau bercanda ya?"
 
 
- 
+
