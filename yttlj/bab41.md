@@ -652,6 +652,169 @@ kau sudah mau memanggilku Bibi Qi?"
 
 "Ya," kata Yin Li dengan gembira. "Bibi Qi!"
 
+Ki Seung Nyang memeluknya, lalu mencium kedua pipinya dengan gembira. Tampaknya Yin Li sangat senang bisa memanggilnya 
+Bibi Qi. Sambil menggandeng tangan Yin Li dengan lembut, Ki Seung Nyang berkata, "Tadi di dekat penginapan Bibi melihat 
+ada penjual makanan khas Kaifeng yang asin dan berbumbu. Bagaimana kalau kita ke situ sekarang?"
+
+Yin Li bersorak kegirangan. "Aku memang lapar," katanya. "Hari ini aku tidak punya kesempatan mencuri makanan. Terlalu 
+ramai di sekitar sini."
+
+Sambil berjalan ke kedai itu Ki Seung Nyang mengutuk Yin Yewang dalam hati karena tega menelantarkan anak malang ini. 
+Kalau sampai bertemu, ia ingin menendang pantat orang itu keras-keras.
+
+Ki Seung Nyang memesan ham, jamur, cumi-cumi, kacang hijau dan arak beras Kaifeng, ditambah dengan dua mangkuk nasi 
+untuk mereka berdua. Yin Li makan dengan lahap. Saking laparnya, ia memesan lagi semangkuk nasi, ham dan sepiring udang.
+
+Setelah makan, Yin Li tampak berseri-seri. Mukanya berkeringat karena udang itu agak pedas, tapi itu bagus untuk 
+melawan hawa dingin. Ketika mereka selesai minum secawan arak, salah seorang dari pengawal Ki Seung Nyang muncul 
+di situ untuk melapor. Ia hampir mengucapkan 'Huanghou', tetapi ketika melihat Yin Li, ia tampak ragu.
+
+"Furen," katanya sambil membungkuk hormat.
+
+"Ada perkembangan apa?" tanya Ki Seung Nyang.
+
+"Jawaban dari Suzhou sudah tiba," jawab Han Lin, pengawal itu. 
+
+"Wah, bagus!" kata Ki Seung Nyang. "Bagus sekali!" Berarti Chaghan Temur sebenarnya sudah agak jauh dari Suzhou. 
+Ia menunggu Han Lin menyerahkan surat, tetapi ternyata ia diam saja. kelihatannya Chaghan memberikan jawaban lisan.  
+Han Lin agak ragu karena melihat Yin Li di situ. Ia berkata, "Kau bisa langsung mengatakannya. Yin Li masih termasuk 
+keponakanku."
+
+Han Lin berusaha memilih kata-katanya dengan bijaksana. Ia berkata, "Laoye akan menunggu di Nanyang, tapi setibanya 
+di situ, Laoye akan mengunjungi Xiangyang sebentar."
+
+"Baik, aku mengerti," kata Ki Seung Nyang. "Kita tinggal menunggu kabar dari Xiangyang. Begitu tiba, kau harus segera 
+memberitahu aku. Sekarang kau boleh istirahat." 
+
+Han Lin membungkuk hormat dan mengundurkan diri.
+
+Melihat Yin Li sedang termenung, Ki Seung Nyang berkata, "Aku masih agak lapar. Bagaimana kalau kita memesan bakpao 
+untuk dimakan di penginapan sambil ngobrol?"
+
+Yin Li tidak menjawab. Ia baru berkata setelah Ki Seung Nyang selesai memesan bakpao, "Bibi sedang menunggu kabar dari siapa?"
+
+Ki Seung Nyang agak terkejut mendengar pertanyaan itu. Sepintas lalu Yin Li tampak lugu, tapi ternyata ia tidak mudah 
+mempercayai orang lain. Jika ia tidak menjawab pertanyaan itu, atau bahkan membohonginya, maka untuk selanjutnya gadis 
+itu tidak akan mempercayai apapun yang dikatakannya lagi. Ia berkata, "Di sini agak dingin. Kamarku punya dua tempat tidue, 
+padahal aku hanya sendirian. Kita bisa bicara sepuasnya, lalu kau bisa tidur di situ."
+
+Tampaknya Yin Li senang mendengar usulannya. Mereka membawa bakpao dan arak yang tersisa untuk dimakan di penginapan.
+
+Setibanya di situ, ternyata Yin Li masih menanyakan hal yang sama.
+
+Ki Seung Nyang memandang Yin Li dengan penuh perhatian, lalu bertanya dengan halus, "Ah Li, kau ingin bertemu dengan 
+Zhang Wuji?"
+
+Mendengar nama Zhang Wuji, Yin Li tampak agak murung. Ia berkata, "Zhang Wuji melompat ke jurang, dia sudah lama mati. 
+Maksud Bibi Zeng Aniu?"
+
+Ketika mendengar jawaban itu, sebenarnya Ki Seung Nyang merasa geli. Ia sudah mendengar cerita yang agak kacau 
+dari Zhou Zhiruo mengenai Zeng Aniu dan Zhang Wuji dalam pandangan Yin Li. Saat itu ia tidak dapat memahaminya dengan 
+baik. Sekarang ia mulai mengerti apa yang sebenarnya terjadi. 
+
+Ki Seung Nyang berkata, "Baiklah — Zeng Aniu — kau ingin menemui orang ini?"
+
+Yin Li tersenyum cerah. Ia tidak menjawab pertanyaan Ki Seung Nyang, sebaliknya malah berkata, "Aniu Gege sangat baik 
+kepadaku, bahkan pernah bilang ingin menikahiku, meskipun aku jelek."
+
+"Tapi kau tidak jelek," kata Ki Seung Nyang. "Kau sangat cantik."
+
+Yin Li tertawa cekikikan, lalu berkata, "Bibi Qi, kau gila ya?"
+
+"Jadi kau ingin bertemu lagi dengan Aniu Gege-mu itu?" tanya Ki Seung Nyang lagi.
+
+Yin Li lagi-lagi tidak menjawab pertanyaan Ki Seung Nyang. Ia tampak melamun sambil memandang ke kejauhan dari 
+jendela yang dibiarkan terbuka. Dari jendela itu tampak pagoda yang sangat tinggi di kejauhan, diterangi cahaya 
+malam dari rumah-rumah di kota Kaifeng yang padat penduduk. Kota ini adalah ibukota Dinasti Song sebelum ditaklukkan 
+Kubilai Khan, dan adalah kota yang terpadat penduduknya, karena itu mereka selalu punya masalah dengan penyakit menular 
+semacam demam tipus.
+
+Ki Seung Nyang tidak ingin memaksa Yin Li. Ia bisa melihat bahwa gadis itu sedang menyembunyikan perasaannya sendiri, 
+dan tidak ingin terlalu banyak bicara tentang Zhang Wuji, kecuali jika ia sendiri yang mengungkapkannya dengan sukarela.
+Ia bermaksud bercerita tentang hal lain, atau membiarkan mereka tertidur dalam lamunan, tetapi kemudian Yin Li tanpa 
+sadar bergumam sendiri, "Mereka berdua pasti sedang bersamanya, kan?"
+
+"Ya," jawab Ki Seung Nyang. "Mereka berdua memang bersamanya — bersama Aniu Gege-mu — di Xiangyang. Aku justru sedang 
+menunggu kabar dari mereka." Ia tak tahu apakah harus menceritakan bahwa keduanya sekarang sudah resmi menjadi istri 
+Zhang Wuji. Ia tidak ingin membuat Yin Li sedih. Mungkin sebaiknya ia membiarkan semuanya berjalan secara alamiah. Ia menambahkan, 
+"Kalau kau ingin menemui mereka semua, aku bisa menyuruh orang mendampingimu ke sana. Tapi aku tidak bisa membiarkanmu ke sana 
+sendirian. Sekarang ini situasi sedang tidak menentu, setiap saat perang bisa terjadi di mana pun. Aku tidak bisa membiarkanmu 
+menempuh bahaya. Aku sendiri harus kembali ke utara secepatnya."
+
+Reaksi Yin Li ternyata di luar dugaan Ki Seung Nyang. Ia buru-buru berkata, "Tidak, aku tidak mau menemui mereka. Mungkin 
+aku akan ikut Bibi ke utara."
+
+"Kenapa?" tanya Ki Seung Nyang.
+
+"Karena ternyata Zeng Aniu itu pintar berpura-pura. Aku jadi tidak tahu apakah dia benar-benar ingin menikahiku. Mungkin 
+saja dia hanya ingin menghiburku, karena aku jelek," kata Yin Li lagi.
+
+Ki Seung Nyang heran. "Kenapa kau pikir dia hanya berpura-pura?"
+
+"Mereka semua selalu memanggilnya Zhang Wuji," kata Yin Li bersungguh-sungguh. "Ini sangat membingungkan. Sepintas lalu 
+dia memang mirip Zhang Wuji. Tapi Zhang Wuji tidak mau ikut aku ke Pulau Ular, bahkan menggigit tanganku." Ia menunjukkan 
+bekas luka akibat gigitan Zhang Wuji kecil di tangannya. "Jadi kupikir, mana mungkin Aniu Gege adalah Zhang Wuji? Tapi 
+kelihatannya mereka benar, jadi berarti Zhang Wuji atau Aniu Gege itu membohongiku. Aku jadi tidak tahu apakah dia memang 
+sungguh-sungguh ingin menikahiku."
+
+Sekarang Ki Seung Nyang sungguh-sungguh mengerti apa masalah sebenarnya. Jadi Yin Li tidak benar-benar gila seperti 
+yang dikira orang. Dia juga bukan meninggalkan Zhang Wuji karena cemburu kepada Zhou Zhiruo atau Zhao Min, tetapi karena 
+tidak yakin bahwa Zhang Wuji memang sungguh menyayanginya. 
+
+"Kungfu Aniu Gege memang tinggi," lanjut Yin Li. "Tapi dia kadang-kadang bisa sangat bodoh. Xiao Zhao sudah jelas 
+membohonginya, tapi dia tidak tahu. Jinhua Popo menyuruh Xiao Zhao meracuninya, dia juga tidak tahu. Kalau Xiao Zhao 
+jahat, maka waktu itu semua orang pasti sudah celaka. Tapi Xiao Zhao itu sangat cerdik, dia selalu bisa menemukan 
+alasan untuk menjawab Popo."
+
+Bagian ini sudah diceritakan oleh Zhou Zhiruo. Kelicikan Tajkis ini memang sudah diketahuinya sejak muda. Tapi bagi 
+Ki Seung Nyang, keberanian Xiao Zhao dan Zhao Min melawan orang tua mereka demi seorang Zhang Wuji adalah sangat mengagumkan. 
+Hal ini terbukti tidak sanggup dilakukan oleh Zhou Zhiruo. Setelah menilai keseluruhan cerita tentang mereka berempat, 
+Zhou Zhiruo terpaksa menuruti perintah Miejue Shitai, dan dua kali nyaris mencelakai Zhang Wuji. Untung saja kungfu 
+Zhang Wuji sangat tinggi, dan Zhou Zhiruo sendiri sudah memperhitungkan dengan tepat tusukan pedangnya di dada Zhang Wuji. 
+Meleset sedikit saja, maka Zhang Wuji akan mati konyol.
+
+Karena Ki Seung Nyang tidak ikut mengalami sendiri apa yang dialami oleh anak-anak muda ini, maka ia bisa menilai semuanya 
+dengan pikiran sejernih kristal. Sebenarnya keempat wanita ini bisa bekerja sama dengan cara yang luar biasa untuk 
+melindungi seorang Zhang Wuji yang mereka cintai bersama. Sekarang ia sangat menguatirkan orang-orang Ming Jiao yang 
+berada di sekeliling Zhang Wuji. Mereka sangat berambisi untuk berkuasa sendiri. Hal semacam ini tidak bisa dihadapi dengan 
+hanya mengandalkan kungfu yang tinggi. Liu Futong jelas memakai Han Lin'er sebagai kaisar boneka demi ambisinya. Xu Shouhui 
+bukan orang yang bisa diandalkan, karena tidak lagi mau mendengarkan Ming Jiao. Chen Youliang jelas adalah ancaman 
+serius di kemudian hari. Dan entah siapa lagi yang saat ini masih belum menampakkan diri.
+
+Di lain pihak, Zhang Sicheng adalah sebuah ganjalan bagi Dinasti Yuan maupun rencana besar mereka. Sebenarnya Ki Seung Nyang 
+ingin segera bergerak untuk menyingkirkan Zhang Sicheng, tetapi tiba-tiba datang sebuah bahaya besar dari Dash Badalugh 
+dan anaknya. Ia memang sudah tahu bahwa pecahnya wilayah selatan menjadi daerah yang kecil-kecil adalah tak dapat dihindari. 
+Jika begitu, ia harus bisa memastikan bahwa pihaknya akan menempati posisi-posisi yang strategis ketika hal ini terjadi. 
+Dengan demikian mereka akan bisa mengakhiri peperangan ini dengan sesedikit mungkin korban dari pihak rakyat jelata.
+
+Ki Seung Nyang melihat Yin Li menguap. Ia lalu menyelesaikan potongan bakpao terakhir yang dipegangnya, lalu minum 
+sedikit arak beras. Ia berkata, "Ah Li, kita mungkin masih akan tinggal beberapa hari di sini, tapi setelah itu Bibi akan 
+harus kembali ke utara. Bibi tidak bisa meninggalkanmu sendirian, jadi mulai sekarang kau pikirkan sendiri mau pergi ke mana. 
+Bibi tidak ingin memaksamu." 
+
+Ia mengajak gadis itu ke tempat tidur kosong yang tidak dipakainya. Yin Li menurut, dan segera berbaring sambil tersenyum 
+senang, lalu berkata, "Bibi Qi, selain Popo dan ayahku, tidak ada orang lain yang memanggilku 'Ah Li'. Bibi sangat baik 
+kepadaku, tentu saja aku akan mengikuti Bibi ke utara. Kita mau pergi ke mana?"
+
+Ki Seung Nyang menyelimutinya, lalu mencium kedua pipinya dengan lembut sambil berkata, "Nanti kau akan tahu sendiri. 
+Kurasa kau akan senang, karena kau akan bertemu dengan dua orang bibimu yang lain. Mereka punya dua orang anak perempuan, 
+yang sekarang sudah kira-kira tujuh belas tahun. Sekarang kau beristirahat dulu. Besok pagi baru kita bicarakan lagi."
+
+Yin Li masih tersenyum sambil memejamkan matanya. Tak lama kemudian ia tertidur. Sekarang Ki Seung Nyang bisa melihat 
+dengan jelas kemiripan antara Zhang Wuji dengan Yin Li, terutama sekali mata mereka. Mata dan raut wajah Yin Li sangat 
+mirip dengan Yin Susu, begitu juga bentuk tubuhnya. Ia mengelus rambut Yin Li dengan rasa sayang, lalu ia berbaring di tempat 
+tidurnya sendiri.
+
+Setelah mendengar berita dari Chaghan Temur, ia merasa agak lega, meskipun rencana Chaghan untuk mengunjungi Xiangyang 
+secara diam-diam agak berbahaya. Ia percaya Chaghan tentu punya alasan sendiri, dan ia akan membiarkannya. Ini juga 
+kesempatan yang bagus bagi mereka untuk berunding, selain untuk pertama kalinya mereka akan bertemu sebagai keluarga.
+
+Ia menguap. Matanya mulai terasa berat, dan tak lama kemudian ia pun tertidur lelap.
+
+***
 
 
 
+
+
+ 
