@@ -695,7 +695,7 @@ Yin Li tidak menjawab. Ia baru berkata setelah Ki Seung Nyang selesai memesan ba
 
 Ki Seung Nyang agak terkejut mendengar pertanyaan itu. Sepintas lalu Yin Li tampak lugu, tapi ternyata ia tidak mudah 
 mempercayai orang lain. Jika ia tidak menjawab pertanyaan itu, atau bahkan membohonginya, maka untuk selanjutnya gadis 
-itu tidak akan mempercayai apapun yang dikatakannya lagi. Ia berkata, "Di sini agak dingin. Kamarku punya dua tempat tidue, 
+itu tidak akan mempercayai apapun yang dikatakannya lagi. Ia berkata, "Di sini agak dingin. Kamarku punya dua tempat tidur, 
 padahal aku hanya sendirian. Kita bisa bicara sepuasnya, lalu kau bisa tidur di situ."
 
 Tampaknya Yin Li senang mendengar usulannya. Mereka membawa bakpao dan arak yang tersisa untuk dimakan di penginapan.
@@ -813,8 +813,106 @@ Ia menguap. Matanya mulai terasa berat, dan tak lama kemudian ia pun tertidur le
 
 ***
 
+Jauh di Persia, Xiao Zhao sedang berlatih kungfu di tengah malam bersama Tajkis. Qian Kun Da Nuo Yi memang hanya 
+diajarkan oleh Yang Dingtian kepada Yang Xiao, karena secara diam-diam Yang Dingtian beranggapan hanya Yang Xiao yang 
+saat itu pantas untuk menjadi calon penggantinya. Tetapi kemudian Xiao Zhao berhasil mendapatkan ilmu itu secara keseluruhan 
+bersama dengan Zhang Wuji di terowongan rahasia Ming Jiao. Selama beberapa tahun ini mereka berdua dengan tekun mempelajari 
+ilmu itu, dan karena bakat-bakat alamiah mereka, saat ini Tajkis sudah mencapai tingkat yang sama seperti Yang Xiao.
 
+Di luar dugaan Tajkis, putrinya ternyata memiliki bakat terpendam untuk melatih ilmu silat itu, dan saat ini Xiao Zhao 
+sudah mencapai tingkat kelima. Tajkis hanya bisa mengimbangi Xiao Zhao karena pengalamannya yang jauh lebih banyak di 
+dunia persilatan, dan juga dasar-dasar kungfunya yang jauh lebih kuat.
 
+Setelah bergebrak lebih dari lima ratus jurus, tiba-tiba Xiao Zhao maju selangkah dan mendadak duduk di atas sebuah batu, 
+lalu mencekal betis Tajkis. Gerakan yang sangat aneh itu mengejutkan Tajkis. Ini adalah sebuah jurus yang dahsyat, yang 
+tercatat di dalam Shen Huo Ling. Tajkis memang pernah membacanya, tetapi ia sama sekali tidak berani mencoba mempraktekkannya. 
+
+Begitu Xiao Zhao berhasil mencekal betis ibunya, ia lalu menggunakan kesepuluh jarinya untuk menotok secara berturut-turut 
+titik Zhong Dou dan Zhu Bin, dengan menggunakan ilmu totokan dari Zhongyuan. Teknik ini dipelajarinya setelah melihat 
+cara Zhang Wuji bertarung melawan salah seorang dari Raja Ming Jiao Persia sebelumnya. Tajkis menjerit tertahan ketika 
+tangan kirinya berhasil dicekal oleh putrinya. Ia tidak bisa berkutik dan kalah total, tetapi ia tidak marah.
+
+Tajkis tertawa terbahak-bahak sambil berkata, "Luar biasa! Kau sekarang sudah menguasai kungfu Shen Huoling!"
+
+Sambil tersenyum, Xiao Zhao melepaskan tangan ibunya, lalu mengurut betisnya untuk membebaskan totokannya di kedua titik 
+itu. "Ma, semua ini tentu saja tidak akan bisa kucapai tanpa bantuan Mama dan Zhang Gongzi."
+
+Mendengar Xiao Zhao menyebutkan nama Zhang Wuji, Tajkis berkata, "Kau sampai sekarang masih juga memikirkan dia?"
+
+Xiao Zhao berkata dengan agak ketus, "Mama sendiri juga sering memikirkan Papa, mengapa aku tidak boleh memikirkan 
+Zhang Gongzi? Toh orangnya tidak ada di sini."
+
+Tajkis terdiam. Ia memang tidak bisa menyalahkan Xiao Zhao. Buktinya ia akhirnya juga menikah, dan kemudian Xiao Zhao lahir. 
+Tetapi itu semua membuatnya harus hidup dalam pelarian, dan akhirnya toh mereka tetap tidak bisa melawan ketika para 
+utusan Ming Jiao Persia datang, karena itulah mereka sekarang ada di sini. Ia berkata dengan hati-hati, "Lalu apa yang 
+akan kau lakukan? Kalian toh tidak akan bisa menikah."
+
+Xiao Zhao mendecakkan lidah dengan kesal, lalu berkata, "Mama, sejak awal kita tiba di sini, aku setengah mati berusaha 
+menemukan peraturan yang menyebutkan bahwa ketua Ming Jiao haruslah seorang perempuan, dan bahkan seorang perawan. Tetapi 
+ketua Ming Jiao yang pertama, yaitu pendiri Ming Jiao sendiri — Mani — ternyata laki-laki!"
+
+"Itu ribuan tahun yang lalu," kata ibunya. "Sekarang ini ternyata lain."
+
+Xiao Zhao tidak mau kalah. "Sejak kapan menjadi lain? Kelihatannya sepanjang sejarah yang Mama tulis itu, juga 
+selalu menyebutkan nama ketua Ming Jiao adalah nama laki-laki! Menurutku, ini hanya cara orang-orang Ming Jiao untuk 
+mengamankan diri dari kejaran pemerintah. Karena kalau ketua mereka perempuan, maka kita akan dianggap tidak membahayakan, 
+dan tidak akan ditentang. Sebaliknya, jika laki-laki, maka kita bisa dipandang ingin melawan dan menggulingkan pemerintah."
+
+"Kau punya buktinya?" tanya ibunya.
+
+"Saat ini aku belum bisa membuktikannya," kata Xiao Zhao. "Tapi pasti akan kutemukan caranya."
+
+Tajkis tidak mengatakan apa-apa. Ia memandang ke kejauhan sambil melamun. Kediaman mereka yang mirip istana ini 
+terletak di puncak tebing yang sangat tinggi. Dari sini mereka bisa memandang ke segala arah dan melihat perbukitan 
+yang luas dan panjang. Ia merenungkan kata-kata putrinya, dan merasa hal itu cukup masuk akal.
+
+Xiao Zhao melanjutkan, "Kalau membaca ajaran Ming Jiao, meskipun tidak ada aturan resmi yang melarang orang untuk kawin, 
+tapi mereka beranggapan bahwa hubungan seksual adalah salah. Padahal Ming Jiao selalu berusaha menarik semua orang untuk menjadi 
+pengikut. Jika itu terlaksana, bukankah dalam sekejap umat manusia di muka bumi ini akan lenyap? Siapa yang akan melanjutkan keturunan?"
+
+Tajkis mulai marah. Ia berkata, "Maksudmu, kau ingin melawan aturan Ming Jiao?"
+
+Muka Xiao Zhao melembut. Ia tidak ingin bersitegang dengan ibunya. Ia mengambil sebuah cangkir, lalu menuangkan anggur 
+manis Persia, dan menyodorkannya kepada Tajkis sambil berkata dengan manis, "Mama, aku tentu tidak ingin melawan aturan 
+Ming Jiao. Aku hanya ingin lebih memahaminya, dan meluruskannya kembali untuk kebaikan semua orang."
+
+Tajkis meneguk anggur yang disodorkan putrinya pelan-pelan sambil berpikir. Setelah tetes terakhir ia baru sadar. 
+"Bocah tengik!" pikirnya. Dengan minum anggur ini tanpa sadar ia sudah masuk jebakan. Ajaran Ming Jiao yang asli sebenarnya 
+juga mengatakan bahwa minum anggur adalah perbuatan terkutuk. Ajaran itu akhirnya secara berangsur-angsur berubah menjadi 
+_larangan_ minum anggur, tetapi tidak diikuti dengan hukuman bagi orang yang melanggarnya. Dengan cara ini putrinya 
+sedang memaksanya untuk menerima pemberontakannya terhadap larangan-larangan yang berlaku di Ming Jiao saat ini, 
+dan sekaligus mau mengatakan bahwa larangan itu tidak seharusnya ada. 
+
+Xiao Zhao membiarkan ibunya menikmati anggur itu dengan tenang. Beberapa menit kemudian barulah ia berkata dengan 
+nada biasa, "Ma, kupikir pilihannya hanya ada dua."
+
+"Pilihan apa?" tanya Tajkis.
+
+Xiao Zhao menuangkan anggur bagi dirinya sendiri, lalu minum seteguk, dan berkata dengan tenang, "Yang pertama adalah, 
+mereka mengembalikan posisi ketua Ming Jiao kembali kepada kaum laki-laki."
+
+"Dan yang kedua?" tanya Tajkis lagi.
+
+"Mereka harus mencabut larangan kawin bagi ketua Ming Jiao perempuan," kata Xiao Zhao dengan santai.
+
+"Huh," dengus Tajkis. "Mengapa mereka harus mendengarkan anjuranmu?"
+
+Xiao Zhao tidak buru-buru menjawab. Ia menghabiskan anggurnya, lalu memakai mantel bulunya kembali. Kemudian ia berkata 
+dengan nada datar, "Karena aku adalah Ketua Ming Jiao. Saat itu kita tidak bisa melawan raja-raja itu, karena kungfu 
+kita kalah. Selain itu mereka mengarahkan meriam ke kapal Zhang Gongzi, Xie Xun dan yang lain. Sekarang kita takut apa? 
+Zhang Gongzi ada di Zhongyuan, dan kungfu kita sudah di atas mereka semua. Aku tidak percaya mereka berani menodong mukaku 
+dengan moncong meriam, karena bukankah itu berarti mereka melawan Ketua Ming Jiao? Cepat atau lambat mereka semua akan 
+harus mengikuti aturanku."
+
+Ia berjalan masuk ke ruangan pribadinya dengan kepala tegak tanpa menunggu komentar Tajkis.
+
+Tajkis menghela nafas panjang. Ia tak tahu sampai kapan ia sanggup menahan langkah-langkah putrinya yang dianggapnya 
+terlalu berani. Kungfu mereka saat ini memang sudah di atas semua 'Raja' di Ming Jiao Persia. Tetapi jika Xiao Zhao 
+memaksakan kehendaknya, kemungkinan besar mereka akan bersekutu untuk melawan. Lalu bagaimana mereka akan mengatasinya?
+
+***
+
+ 
 
 
  
