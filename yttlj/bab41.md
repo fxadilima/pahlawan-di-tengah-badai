@@ -1,4 +1,4 @@
-# Bab 41
+# Penemuan Di Kaifeng dan Hanyang
 
 ![Ilustrasi Bab 41](/assets/images/chaghan-temur.jpg "Jendral Chaghan Temur")
 
@@ -1413,8 +1413,108 @@ setelah burung merpati kita bisa dikirimkan ke tempat di mana dia berada."
 "Betul," kata Zhao Min. "Dari sini ke Kaifeng hanya perlu sekitar dua shichen[^shichen], atau bahkan lebih cepat. 
 Kalau naik kuda jelas perlu seharian."
 
-Zhang Wuji mengambil selembar kertas, lalu menyiapkan kuas untuk menulis. Ia berkata, "Apa yang akan kita tulis untuk 
+Zhang Wuji menoleh kepada Sima Han dan berkata, "Sima Zhanglao, kalau burung merpati yang membawa surat dari Kaifeng itu 
+dikirim dari sini sekarang, apakah dia pasti akan sampai ke tempat Bibi Qi?"
+
+"Seharusnya begitu," jawab Sima Han. "Asalkan mereka tidak pindah ke tempat lain. Burung-burung ini sudah terlatih dengan 
+baik. Sekali mereka dilepas dari suatu tempat, maka berikutnya mereka pasti akan kembali ke tempat itu. Yang kita perlukan adalah 
+membawa mereka ke tempat tujuan sebagai pengenalan pertama."
+
+Zhang Wuji mengambil selembar kertas, lalu menyiapkan kuas untuk menulis. Ia berkata, "Apa yang akan kita katakan kepada 
 Bibi Qi? Silakan kalian semua ikut memikirkan."
 
- 
+Zhao Min berkata, "Biar aku yang menulis. Kau tinggal bilang mana yang harus ditulis dan mana yang tidak sementara yang 
+lain bicara."
+
+Zhang Wuji menyerahkan kertas dan kuas kepadanya sambil berkata kepada semua orang, "Sebetulnya aku agak heran, kenapa 
+Bibi Qi tidak segera pulang ke istana? Bukankah jika dia pergi terlalu lama akan menimbulkan kecurigaan?"
+
+Fan Yao berkata, "Aku juga heran. Jangan-jangan dia sedang punya masalah di istana — atau jangan-jangan ada masalah 
+dengan kaisar?"
+
+Yang Xiao berkata, "Rasanya dugaanmu agak terlalu jauh, jangan lupa, di situ masih ada Mei Jian dan Ah Luo yang 
+pasti akan membantunya mengatasi masalah sehari-hari. Dengan begitu sebenarnya dia memang bisa berkeliaran di luar."
+
+Sima Han berdehem, lalu berkata dengan hati-hati, "Soal ini, salah satu anggota Kai Pang tadi pagi mendengar sebuah 
+gosip yang mengatakan bahwa saat ini Kaisar Toghon Temur sedang bertengkar hebat dengan Permaisuri Qi, kalau tidak salah 
+ini berhubungan dengan pewarisan tahta. Tapi Zaixia tidak bisa memastikan kebenarannya, dan kita juga tidak tahu dari 
+mana asalnya gosip ini."
+
+Semua orang sangat terkejut. 
+
+Bei Jinyi berkata, "Kalau Huanghou sampai bermusuhan dengan Kaisar, bukankah rencana besar kita akan gagal?"
+
+Tetapi Zhao Min berkata dengan tenang, "Kalian semuanya tidak perlu terlalu merisaukan masalah ini. Pertama, ini tetaplah 
+hanya gosip, setidaknya saat ini tidak ada buktinya. Kedua, aku merasa ini bukan tidak mungkin sengaja disebarkan oleh Bibi Qi 
+sendiri."
+
+"Untuk apa dia menyebarkan gosip seperti itu?" tanya Yang Xiao.
+
+Zhao Min mengangkat kedua tangannya sambil berkata, "Aku juga tidak tahu. Tapi aku pernah mendengar cerita ayah tentang 
+gosip yang hampir sama, yang beredar di istana pada saat Kaisar dan Bibi Qi sedang berjuang untuk menyingkirkan Jendral Bayan. 
+Saat itu Bibi Qi dikabarkan bertengkar hebat dengan Permaisuri Bayan. Dan Permaisuri Bayan adalah keponakan dari Jendral Bayan 
+dari Merkit. Padahal ayahku melihat hubungan Bibi Qi dengan Permaisuri Bayan baik-baik saja."
+
+Zhang Wuji sangat tertarik mendengar cerita Zhao Min. Ia bertanya, "Saat itu Jendral Bayan mempercayai kabar itu?"
+
+Zhao Min mengangguk. "Kelihatannya ya," katanya. "Menurut cerita ayah, setelah itu tiba-tiba Jendral Bayan mengajukan 
+usul untuk menghukum mati banyak pejabat dari suku Han, yang bermarga Zhang, Wang, Liu, Li dan Zhao. Kaisar sangat terkejut, 
+lalu mulai menyusun rencana untuk menyingkirkannya."
+
+Yang Xiao dan Fan Yao sangat terkejut mendengar cerita itu. Mereka pernah melihat Jendral Bayan di Henan ketika sedang 
+bepergian dengan Tajkis. Justru pada saat itulah mereka bertemu dengan Ki Seung Nyang.
+
+"Tapi Jendral Bayan yang kami lihat di Henan saat itu tampaknya sangat bersahabat dengan kalangan pejabat dari suku Han," 
+kata Fan Yao. "Junzhu yakin ini Jendral Bayan yang sama?"
+
+Zhao Min tertawa. "Fan Youshi, nama Bayan memang agak umum bagi orang Mongolia. Nama Permaisuri Bayan sendiri juga sama, 
+dan sebetulnya Permaisuri Bayan masih termasuk keponakan dari Jendral Bayan ini. Tapi Jendral Bayan dari suku Merkit memang 
+hanya satu, apalagi yang sempat berkuasa di Henan. Orang ini tadinya sempat mendapat dukungan kuat dari banyak orang, dan bahkan 
+dari rakyat Henan, karena dia menerapkan hukum dengan sangat ketat. Dia tidak ragu-ragu menghukum mati para pejabat yang melakukan 
+korupsi atau menganiaya rakyat jelata."
+
+"Nah! Itulah yang membuatku heran. Kenapa dia akhirnya bisa menentang para pejabat dari suku Han itu?" kata Fan Yao lagi.
+
+"Wah, soal itu aku tidak tahu," kata Zhao Min sambil tertawa. "Saat itu aku jelas belum lahir. Dan ayah juga 
+tidak menceritakannya. Yang jelas saat itu ayah ikut terlibat dalam upaya menyingkirkan Jendral Bayan."
+
+Yang Xiao berkata, "Bagaimana cara mereka menyingkirkan Jendral Bayan itu?"
+
+"Itu yang paling menarik," kata Zhao Min lagi. "Sebelumnya kau harus tahu. Ketika Kaisar dan Bibi Qi berjuang untuk 
+melepaskan diri dari cengkeraman El Temur, Jendral Bayan-lah yang mendukung mereka. Kalau tidak begitu, mereka mana bisa menang?" 
+Ia menghela nafas, lalu melanjutkan, "Tapi kemudian Kaisar dan Bibi Qi menggalang dukungan dari Toqto'a, Permaisuri Bayan, 
+dan sejumlah besar anggota majelis senior yang tadinya adalah pendukung Jendral Bayan. Akhirnya mereka berhasil menjebak 
+Jendral Bayan pada saat dia sedang pergi keluar kota untuk berburu. Ketika pulang, dia tidak diperbolehkan masuk ke Dadu lagi. 
+Pendeknya, setelah itu semua kebijakannya berhasil dimentahkan, dan ia diturunkan dari jabatannya. Selanjutnya dia tersingkir 
+dari percaturan politik di istana sama sekali."
+
+"Tadi Junzhu bilang Permaisuri Bayan adalah keponakan dari Jendral Bayan, bagaimana mungkin Qi Shimei, yang jelas 
+adalah saingan beratnya, bisa membujuknya untuk mendukung usaha mereka untuk menyingkirkan pamannya sendiri?" tanya Fan Yao 
+dengan penasaran.
+
+Zhao Min tertawa. "Kan aku sudah bilang. Di sinilah yang paling menarik. Kau harus tahu satu hal lain yang tak kalah pentingnya. 
+Bukan hanya Permaisuri Bayan, bahkan Toqto'a sebenarnya juga masih termasuk keponakan dari Jendral Bayan. Jadi Toqto'a 
+dan Permaisuri Bayan adalah kakak beradik sepupu. Dash Badalugh yang saat ini masih berpengaruh besar di majelis adalah 
+ayah dari Bolad Temur, dan Permaisuri Bayan adalah putri Bolad Temur. Pada dasarnya keluarga mereka sampai sekarang masih 
+sangat berpengaruh di istana."
+
+"Dan pada saat itu Dash Badalugh dan Bolad Temur juga mendukung usaha Kaisar dan Qi Shimei untuk menyingkirkan Jendral Bayan?" 
+tanya Yang Xiao.
+
+"Betul," jawab Zhao Min. "Saat ini mereka berdua justru menjadi ganjalan bagi Kaisar dan Bibi Qi."
+
+"Wah, gila!" kata Fan Yao sambil tertawa. "Aku sama sekali tidak menyangka Qi Shimei sehebat ini. Dia berhasil membuat 
+keluarga dekat saling bersekutu untuk melawan keluarga mereka sendiri."
+
+Dalam hati Yang Xiao mulai kuatir. Jika Ki Seung Nyang dengan tega bisa memperalat Jendral Bayan utnuk menyingirkan El Temur, 
+lalu kembali memperalat Permaisuri Bayan dan Toqto'a untuk menyingkirkan Jendral Bayan, yang sebelumnya bersekutu dengan 
+dia dan Kaisar, bukankah ini berarti Ki Seung Nyang juga sanggup memperalat mereka semua untuk menyingkirkan Dash Badalugh 
+dan Bolad Temur, yang saat ini menjadi musuh mereka di majelis? Setelah upaya itu sukses, bukankah dengan mudah ia akan 
+bisa menyingkirkan mereka semua kapan saja, atau — jika mereka masih cukup beruntung — sekedar mengingkari semua janjinya?
+Setelah memikirkannya lagi, Yang Xiao baru teringat bahwa Toqto'a juga akhirnya tersingkir dari jabatannya dan dibuang ke Yunnan.
+Yang Xiao tidak berani mengungkapkan pemikirannya ini, dan hanya diam menunggu reaksi semua orang lain.
+
+Perubahan air muka Yang Xiao tidak luput dari perhatian Zhao Min. Ia menoleh kepada Zhang Wuji dan berkata, "Jadi apa 
+yang akan kita katakan kepada Bibi Qi? Kertasku masih kosong."
+
 
