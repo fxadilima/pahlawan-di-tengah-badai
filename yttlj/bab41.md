@@ -1506,7 +1506,7 @@ tanya Yang Xiao.
 "Wah, gila!" kata Fan Yao sambil tertawa. "Aku sama sekali tidak menyangka Qi Shimei sehebat ini. Dia berhasil membuat 
 keluarga dekat saling bersekutu untuk melawan keluarga mereka sendiri."
 
-Dalam hati Yang Xiao mulai kuatir. Jika Ki Seung Nyang dengan tega bisa memperalat Jendral Bayan utnuk menyingirkan El Temur, 
+Dalam hati Yang Xiao mulai kuatir. Jika Ki Seung Nyang dengan tega bisa memperalat Jendral Bayan demi menyingirkan El Temur, 
 lalu kembali memperalat Permaisuri Bayan dan Toqto'a untuk menyingkirkan Jendral Bayan, yang sebelumnya bersekutu dengan 
 dia dan Kaisar, bukankah ini berarti Ki Seung Nyang juga sanggup memperalat mereka semua untuk menyingkirkan Dash Badalugh 
 dan Bolad Temur, yang saat ini menjadi musuh mereka di majelis? Setelah upaya itu sukses, bukankah dengan mudah ia akan 
