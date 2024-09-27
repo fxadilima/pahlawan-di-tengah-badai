@@ -228,4 +228,29 @@ Sedangkan karakter Qi (氣 atau 气) punya makna yang sangat kompleks, tergantun
 membentuk konteks yang sedang dibahas. Google translate cenderung menerjemahkannya menjadi Gas, Udara, Bau, atau bahkan Cuaca.
  
 
+## Cabe Rawit
+
+Dalam cerita ini Ki Seung Nyang awalnya mengarang sebuah julukan bagi dirinya sendiri untuk menghindari terlalu banyak 
+orang mengenalinya sebagai anak perempuan yang datang dari Goryeo. Ia secara sembarangan memakai istilah 'Cabe Rawit', 
+yaitu La Jiao (辣椒), dan menambahkan karakter Xiao (小) di depan istilah itu.
+
+Dengan demikian orang hanya akan mengenalnya sebagai Xiao Lajiao (小辣椒), yang bermarga Gi. Karena marganya dalam 
+bahasa Goryeo bisa dituliskan sebagai Gi atau Qi dalam bahasa Han (奇), ia lalu sengaja memakai karakter yang bunyinya 
+mirip ketika akhirnya bergabung dengan kelompok yang dibentuk oleh Yang Xiao, Fan Yao dan Tajkis dari Ming Jiao, 
+dan menjadi adik seperguruan ketujuh mereka. Angka tujuh dalam bahasa mandarin adalah Qi (七).
+
+Akhirnya ia selalu dipanggil Qi Shimei di kalangan internal Ming Jiao, dan orang lain sudah terbiasa mendengar istilah itu.
+Mereka mengira namanya memang Qi (奇), dan nama pribadinya tidak diketahui. Di jaman itu sudah umum bagi anak-anak perempuan 
+jika tidak memiliki nama pribadi, dan hanya punya nama panggilan yang tidak resmi terdaftar, atau julukan yang 
+biasa dipakai di antara lingkungan terdekatnya. Jadi orang lain hanya mengenalnya sebagai Xiao Lajiao atau Nona Qi.
+
+Ia tidak berbohong ketika mengatakan bahwa marganya adalah Qi.
+
+
+
+ 
+
+
+
+
 

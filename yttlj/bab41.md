@@ -990,10 +990,10 @@ sekarang." Ia menghela nafas panjang dan berkata, "Aku sudah mulai tua."
 
 "Bibi sama sekali tidak tua," kata Yin Li. "Bibi masih cantik."
 
-Sejenak Yin Li tampak berpikir, rupanya ia mengalami kesulitan untuk menyebutkan nama itu, lalu mengutip dua kata terakhir 
-yang lebih mudah diingatnya, "Kurasa aku akan memanggilnya 'Dala'. Bibi tidak keberatan, kan?"
+Sejenak Yin Li tampak berpikir, rupanya ia mengalami kesulitan untuk menyebutkan nama itu, lalu mengutip dua kata pertama 
+yang lebih mudah diingatnya, "Kurasa aku akan memanggilnya 'Ah You'. Bibi tidak keberatan, kan?"
 
-Ki Seung Nyang tertawa. "Kau tanyakan sendiri nanti. Dia keberatan atau tidak."
+Ki Seung Nyang tertawa. "Kau tanyakan sendiri nanti, dia keberatan atau tidak. Sebenarnya aku sendiri juga memanggilnya seperti itu."
 
 Sepertinya Yin Li mulai menyadari sesuatu. Ia memiringkan kepalanya sedikit, lalu bertanya, "Nama itu mirip nama orang 
 Mongolia. Berarti Bibi memang seorang permaisuri..."
@@ -1013,7 +1013,8 @@ ini adik seperguruan mereka yang ketujuh, maka tidak salah kalau kau memanggilku
 Fan Yao, dan juga kedua bibimu itu, yang memanggilku Qi Shimei."
 
 "Oh, rupanya begitu," kata Yin Li sambil menepuk keningnya sendiri. "Tapi Bibi betul-betul tidak berbeda dengan orang-orang 
-Jiangnan pada umumnya."
+Jiangnan pada umumnya." Ia memandangi gelang pemberian Ki Seung Nyang, lalu mengucapkan terima kasih sambil mencium pipi 
+Bibi Qi-nya itu.
 
 Ki Seung Nyang lagi-lagi menghela nafas panjang, lalu bernostalgia, "Kalau begitu aku sungguh sangat beruntung. Sayangnya 
 aku tidak bisa bertemu dengan Yin Susu lagi. Aku sungguh merindukannya."
@@ -1068,4 +1069,352 @@ menerima kabar balasan dari mereka."
 
 Yin Li tampak senang mendengar ucapannya. Ia tersenyum lebar, tapi tidak mengatakan apa-apa.
 
+Dua orang pelayan datang untuk mengantarkan sarapan bagi mereka. Ki Seung Nyang ternyata memesan dua roti bundar, 
+empat butir telur rebus yang diberi bumbu khas Kaifeng, dan beberapa jenis makanan kecil untuk sarapan mereka. Ia juga 
+memesan dua cangkir besar susu. Yin Li tampak senang melihat semua makanan itu. Ia makan dengan lahap.
+
+"Kau harus selalu minum susu seperti ini mulai sekarang," kata Ki Seung Nyang. "Telur dan susu itu akan membuatmu 
+lebih kuat."
+
+Setelah sarapan mereka berjalan-jalan di sekitar penginapan untuk melihat-lihat kota. Beberapa orang yang melihat bekas luka di wajah 
+Yin Li diam-diam berkomentar. Ada yang merasa kasihan, tetapi ada yang bernada menghina. Ki Seung Nyang merasa senang 
+ketika melihat gadis itu sama sekali tidak mempedulikannya.
+
+Saat ini Yin Li sudah tidak lagi berlatih Ilmu Seribu Jari Laba-laba Beracun[^jari-laba-laba], dan mukanya tidak pernah lagi 
+bengkak-bengkak seperti sebelumnya. Meskipun ia tidak pernah secara khusus merawat kulit mukanya, tetapi makin lama wajahnya 
+makin pulih seperti seharusnya. Ia menyesal bahwa ia pernah melatih ilmu itu sebelumnya. Tapi sudah lama ia tak pernah 
+memikirkan kejadian-kejadian yang membuatnya sedih lagi. Ia merasa jauh lebih berbahagia sekarang, jadi ia sama sekali 
+tak peduli apa yang dikatakan semua orang tentang wajahnya.
+
+[^jari-laba-laba]: Qian Zhu Wan Du Shou (千蛛万毒手) secara literal berarti 'Seribu laba-laba dengan puluhan ribu tangan beracun', tetapi karena istilah itu sangat panjang, di sini kita terjemahkan menjadi 'Seribu Jari Laba-laba Beracun'
+
+Ketika mereka lewat di deretan kios yang menjual bahan-bahan pakaian, mata Ki Seung Nyang tertarik pada keributan kecil 
+antara beberapa petugas Dinasti Yuan yang sedang berdebat dengan salah satu pemilik kios di situ. Ia menarik tangan Yin Li untuk 
+mendekat, dan mengamati apa yang sedang terjadi.
+
+Ia melihat salah satu perwira itu sedang berkata, "Laoban, hari ini kau sungguh harus membayar, karena kami tidak bisa 
+lagi menunda laporan kepada atasan kami."
+
+Pemilik kios itu berbisik kepada seorang pegawainya, yang segera masuk, dan tak lama kemudian keluar lagi sambil 
+menyelipkan sesuatu ke tangannya. Pemilik kios itu berkata kepada perwira di hadapannya, "Komandan, saat ini kami sungguh 
+belum bisa membayar semuanya. Jumlah itu terlalu besar bagi kami." Ia maju selangkah, dengan maksud menarik tangan perwira 
+itu untuk menyelipkan apa yang diberikan oleh anak buahnya. 
+
+Tetapi perwira itu mendadak mundur, lalu berkata lagi, "Laoban, kami bukan tidak mau membantu. Tapi kali ini sungguh-sungguh 
+tidak bisa ditunda lagi. Pihak kami harus segera mengirim laporan ke pusat."
+
+Ki Seung Nyang segera menyadari apa yang terjadi. Ia memberi isyarat kepada keempat pengawalnya untuk mendekat, dan memisahkan diri 
+dari keramaian sementara perdebatan itu masih terus berlangsung. Ia lalu mengajak Yin Li menghampiri mereka. 
+
+Ki Seung Nyang berkata, "Han Lin, kau temani Nona Yin untuk membayar jumlah yang diperlukan bagi pemilik kios ini." 
+Lalu ia berkata kepada Yin Li, "Kau membayar jumlah hutang pemilik kios itu di depan semua orang." Dan kemudian ia 
+menoleh kepada tiga pengawalnya yang lain. "Aku menunggu kalian di kedai arak di depan itu. Setelah para petugas itu menerima 
+bayaran, kalian harus menggiring mereka ke situ."
+
+Yin Li tampak gembira mendengar tugas yang baginya sangat mudah itu. Ia segera mengikuti Han LIn mendekati kedua pihak yang 
+masih bersitegang itu. Mereka mendengar pemilik kios itu berkata, "Pajak yang kalian tentukan terlalu tinggi, kami semua 
+tidak sanggup membayarnya. Bukankah begitu, Saudara-saudara?" Ia menoleh kepada beberapa pemilik kios lain, yang adalah tetangganya.
+
+Seruannya itu dengan segera didukung beramai-ramai oleh hampir semua orang yang hadir di situ. Beberapa orang dari mereka 
+bahkan mulai memaki-maki Dinasti Yuan, dan mulai mengeluarkan kata-kata kotor untuk memaki kaisar. 
+
+Melihat reaksi ini, para petugas itu dengan segera menghunus goloknya dan berkata dengan lantang, "Hei, hei, hei! 
+Kami tidak ingin ribut, tapi kami harus melaksanakan tugas. Jadi kalau kalian terus memaksa, aku akan terpaksa menggunakan 
+kekerasan untuk menertibkan kalian."
+
+Seorang pria yang bertubuh tegap dan mengenakan ikat kepala merah keluar dari kerumunan dan menghadapi komandan itu 
+sambil menggulung lengan bajunya dan berkata, "Kau kira kami takut melawanmu, hanya karena kalian bekerja sebagai 
+Anjing Pemerintah ya?"
+
+Ketika melihat gaya bicara dan ikat kepala merah yang dikenakannya, para petugas itu segera tahu bahwa orang ini setidaknya 
+adalah pendukung Hongjin Qiyi atau Ming Jiao, yang biasanya selalu bersikap terang-terangan menantang para petugas pemerintah. 
+Komandan itu berkata, "Tolong jaga kata-katamu. Saat ini juga kami bisa menangkapmu karena melawan petugas."
+
+Pria bertubuh tegap itu meludah ke tanah, lalu berkata, "Lalu kenapa? Kulihat kau orang Han, tapi kau mau bekerja sebagai 
+anjing bangsa Mongol! Akan kutunjukkan bagaimana seharusnya memperlakukan orang seperti kalian!"
+
+Ucapan itu disambut dengan sorak-sorai oleh para pengunjung pasar yang berkerumun untuk menyaksikan kejadian itu. 
+Komandan itu mulai marah, mukanya memerah, dan ia siap menebas kaki meja di hadapannya, yang digunakan untuk meletakkan 
+barang-barang dagangan kios.
+
+Tepat pada saat itu, Yin Li maju sambil menahan lengan si komandan sebelum golongnya menghantam meja. Secara naluriah, 
+komandan itu berusaha meneruskan gerakannya, tetapi ia terkejut ketika menyadari tangan yang kelihatannya lebih kecil 
+dari tangannya sendiri itu ternyata mencekal pergelangan tangannya dengan sangat kuat, dan telapak tangannya mulai 
+mati rasa. Ketika ia berpaling untuk melihat siapa orang yang dengan berani menghalangi gerakannya, ia lebih kaget lagi 
+ketika menyadari bahwa pemilik tangan itu ternyata hanya seorang gadis muda berusia dua puluhan, yang wajahnya dipenuhi 
+bekas luka. Ia segera menduga bahwa gadis ini pastilah memiliki ilmu silat yang tidak bisa diremehkan.
+
+Yin Li segera melepaskan cekalannya, dan saat itu Han Lin secara diam-diam menunjukkan tanda pengenal Ki Seung Nyang 
+kepada si komandan yang ingin bertanya kepada Yin Li. Air muka komandan itu berubah menjadi tak jelas, tapi ia tidak 
+berani bertanya lebih jauh.
+
+Yin Li berbalik kepada pria bertubuh tegap dan kasar yang saat itu sedang menatapnya dengan penuh perhatian. Ia segera 
+berkata, "Dage, kalau kau hanya ingin pamer kungfu, lain kali aku dengan senang hati akan meladenimu bermain-main. Tapi 
+kalau kau sengaja memprovokasi orang seperti tadi, bukankah kau hanya akan merusak suasana pasar ini?"
+
+Ia menoleh kepada para petugas yang menagih pajak sambil bertanya kepada komandan mereka, "Berapa jumlah yang harus 
+dibayar pemilik kios ini?"
+
+Komandan itu berkata, "Dia sudah menunggak pajak selama tujuh bulan. Laporannya ada di sini." Ia mengeluarkan selembar 
+kertas berisi perincian yang harus dibayar oleh pemilik kios itu.
+
+Yin Li berpaling kepada Han Lin dan berkata, "Han Lin, kau bereskan urusan ini segera!"
+
+Han Lin membungkuk dan berkata, "Baik, Xiaojie!" Ia lalu mengajak para petugas dan pemilik kios untuk masuk ke kios dan 
+berunding di situ.
+
+Kemudian Yin Li berpaling kepada pria bertubuh tegap itu tanpa mengatakan apa-apa. Orang itu berkata, "Sebaiknya kau 
+tidak mencampuri urusanku, atau aku akan bersikap kasar kepadamu."
+
+"Eh, Dage," kata Yin Li dengan santai. "Kupikir ini sebetulnya hanya urusan pemilik kios ini dan para petugas itu. 
+Bagaimana bisa menjadi urusanmu?"
+
+Kesabaran orang itu tampaknya mulai habis. Nada bicaranya jadi agak tinggi, "Kuperingatkan sekali lagi, jangan campuri urusanku. 
+Aku tidak ingin menyakitimu!"
+
+Yin Li tertawa, lalu berkata, "Ini agak lucu. Ternyata kita sama. Aku juga tidak ingin menyakitimu."
+
+Para pengunjung pasar mulai bertepuk tangan meriah. Mereka merasa sebentar lagi akan terjadi keributan seru.
+
+Pria itu naik darah mendengar nada bicara Yin Li. "Baiklah," katanya. "Jangan bilang aku tidak memperingatkanmu."
+Ia bergerak maju sambil mengulurkan tangan kanannya untuk menangkap lengan Yin Li. Bagaimanapun juga, ia tidak bermaksud 
+bertindak kasar kepada seorang gadis muda yang ukuran tubuhnya jauh lebih kecil ketimbang dirinya, dan menjadi bahan 
+tertawaan orang-orang di pasar. 
+
+Tetapi ternyata Yin Li hanya perlu memiringkan tubuhnya sedikit ke kiri, dan pria itu menangkap angin. Dengan penasaran 
+ia meneruskan gerakannya karena tangan kiri Yin Li tepat berada di depan tangan kanannya. Sayangnya ia lagi-lagi 
+menangkap angin. Yin Li menggerakkan kaki kirinya setengah putaran untuk menghindari tangkapan lawan. 
+
+Sekarang para penonton mulai menyoraki adegan itu dengan gembira. Pemandangan itu sebetulnya agak lucu, karena pria itu 
+bertubuh jauh lebih besar dan wajahnya agak menakutkan, sedangkan Yin Li bertubuh kecil dan lebih pendek. Tetapi dua kali pria itu menangkap angin, 
+dan mereka semua melihat bahwa gadis itu masih tenang-tenang saja, sama sekali tidak kelihatan takut.
+
+Sekarang pria itu tidak lagi merasa segan menghadapi Yin Li. Ia melayangkan tinjunya ke muka Yin Li menggunakan setengah 
+bagian tenaganya. Tetapi lagi-lagi serangannya gagal. Yin Li kembali menggeser kaki kirinya setengah putaran, dan tiba-tiba 
+ia sudah berada di belakang lawan.
+
+Merasa dipermainkan, pria itu lalu melancarkan pukulan bertubu=tubi ke arah muka Yin Li, dan semuanya hanya menemui tempat 
+kosong. Semakin penasaran, pria itu kemudian melancarkan dua tendangan beruntun ke arah muka dan perut Yin Li, 
+yang diikuti oleh sebuah hook kanan yang sangat keras. 
+
+Kedua tendangan itu memang hanya menyambar angin, tetapi pukulannya nyaris menerpa muka Yin Li dengan telak. Tetapi ia 
+tidak sempat merayakan kemenangannya, karena ternyata lawannya menyentuh bagian bawah siku kanannya yang sedang 
+bergerak dengan halus, dan ia merasa tangannya kesemutan. Gerakan itu terhenti tepat ketika tinjunya yang besar berada 
+sekitar satu inci di depan dagu Yin Li. Ia sangat terkejut ketika merasa tangan kanannya tidak bisa digerakkan.
+
+Untungnya sedetik kemudian ia merasa jari telunjuk gadis itu menyentuh beberapa titik di lengan kanannya, lalu lengan itu 
+kembali bisa digerakkan. Tetapi bukannya berterima kasih, ia menjadi lebih murka. Dengan sepenuh tenaga ia melayangkan hook kiri-kanan, 
+dan ketika semuanya menghantam angin, ia mengamuk sambil menyerang Yin Li bertubi-tubi secara tak terkendali. Sema gerakannya 
+menjadi ngawur dan tidak lagi memakai teknik bela diri yang benar.
+
+Sorak-sorai penonton semakin meriah ketika Han Lin keluar dari dalam kios bersama para petugas Dinasti Yuan. Mereka tidak 
+mempedulikan kehadiran orang-orang yang baru keluar itu, dan semakin memprovokasi kedua orang yang sedang berkelahi. 
+
+Tetapi Yin Li tidak ingin berkelahi lebih lama lagi. Ia bergerak setenah lingkaran untuk menghindari tendangan lawan, 
+lalu dengan ujung kaki kirinya ia menendang titik akupuntur Zhu Bin di betis kanan pria itu. Kemudian ia berbisik ke telinganya, 
+"Dage, jangan permalukan dirimu lagi. Aku tidak ingin mencari musuh, setelah ini kau boleh pergi dengan bebas."
+
+Setelah itu Han Lin berpaling kepada para pengunjung pasar yang sedang berkerumun sambil berkata, "Saudara-saudara, ini hanya 
+kesalahpahaman biasa. Semuanya sudah dibereskan. Kalian bisa bubar sekarang. Tidak ada yang menarik di sini."
+
+Para pengunjung itu bubar sambil bergumam tidak jelas di antara mereka sendiri. Banyak orang merasa kecewa karena tidak 
+bisa menonton pertunjukan yang menarik.
+
+Setelah semuanya tenang, Han Lin berkata kepada Yin Li, "Xiaojie, tadi Furen bilang ingin bicara dengan dia ini."
+
+Yin Li mengangguk, lalu membebaskan totokan di betis pria itu. Setelah itu Han Lin berkata lagi, "Kurasa kita bisa 
+mengajaknya makan bubur di dekat sini sambil menunggu Furen selesai menangani urusan lain itu. Kecuali kalau Xiaojie 
+ingin makan yang lain."
+
+"Kita ke situ saja," jawab Yin Li.
+
+Para petugas Dinasti Yuan itu secara diam-diam digiring oleh tiga pengawal yang lain ke kedai di mana Ki Seung Nyang sudah 
+menunggu sambil menyaksikan keramaian itu dari jauh. 
+
+Begitu melihat Ki Seung Nyang, mereka ketakutan, dan bermaksud memberi hormat sambil minta ampun, tetapi Ki Seung Nyang 
+segera memberi isyarat supaya mereka diam. "Tidak usah berlebihan, aku hanya ingin ngobrol sebentar. Setelah itu kalian 
+boleh pergi," katanya sambil menyuruh mereka duduk di hadapannya. Setelah mereka duduk, ia menambahkan, "Di sini 
+kalian boleh memanggilku Qi Furen."
+
+Semua petugas itu tidak tahu bagaimana harus bereaksi, jadi mereka hanya diam.
+
+Ki Seung Nyang menoleh kepada salah seorang pengawalnya, dan berkata, "Coba catat nama-nama mereka, dan di mana mereka 
+bekerja."
+
+Para petugas itu mengatakan nama mereka masing-masing dan juga kantor tempat mereka bekerja, dan pengawal itu 
+mencatatnya dengan patuh. Lalu Ki Seung Nyang berkata lagi, "Aku tidak akan mempermasalahkan berapa jumlah uang yang 
+pernah kalian terima dari para pemilik kios di sini, dan aku juga tidak akan meminta kalian menyerahkan uang itu."
+
+Sejenak mereka merasa agak lega, tetapi kemudian mereka merasa lebih waswas ketika mendengar nada bicara Ki Seung Nyang.
+
+"Jika kalian merasa gaji yang kalian terima selama ini tidak cukup, kalian bisa mengatakannya kepadaku sekarang," 
+kata Ki Seung Nyang dengan muka serius. "Aku akan menyuruh majikan kalian menaikkan gaji itu seperlunya."
+
+Ia menunggu jawaban mereka semua, tapi tak seorang pun berani bersuara. Karena itu ia melanjutkan, "Tetapi mulai sekarang, 
+aku melarang kalian menerima uang seperti ini lagi — berapapun jumlahnya. Ini bisa dipahami?"
+
+Para petugas itu serempak menjawab, "Bisa, bisa."
+
+"Bagus," kata Ki Seung Nyang. "Berarti lain kali jika aku sampai menemukan laporan yang menyebutkan nama kalian 
+untuk kesalahan seperti ini, aku tidak perlu lagi memperingatkan. Kalian boleh pergi sekarang!"
+
+Kata-kata itu artinya adalah, jika lain kali Permaisuri Qi sampai memergoki mereka menerima uang lagi, maka leher mereka 
+akan putus tanpa pemberitahuan.
+
+Para petugas itu undur diri dengan patuh. Tetapi Ki Seung Nyang berkata kepada komandan mereka, "Kau tinggal dulu, aku 
+ingin bicara."
+
+Komandan itu duduk tanpa berani menatap Ki Seung Nyang. Ia diam menunggu sampai Ki Seung Nyang bicara, "Aku tahu 
+pajak yang ditetapkan Dinasti Yuan saat ini memang agak tinggi, tetapi bukan begitu tingginya, sampai semua orang tidak 
+sanggup membayar! Jadi jika jumlah yang ditagih itu melampaui apa yang seharusnya, sudah pasti di tengah-tengahnya ada 
+banyak pihak yang ingin menerima uang lebih. Aku yakin kau pun memahami hal ini."
+
+Setelah berpikir agak lama, komandan itu akhirnya berkata, "Furen memang benar."
+
+"Aku tahu kalian sebenarnya petugas yang baik, dan kalian tidak sembarangan bertindak kasar," lanjut Ki Seung Nyang 
+lagi. "Tapi jika kalian menerima uang itu, selanjutnya kalian akan sulit menjawab jika ada orang lain yang dengan 
+sengaja ingin memprovokasi seperti tadi. Aku akan mengusut persoalan ini sampai tuntas, dan mamastikan bahwa jumlah yang 
+harus kalian tagih memang adalah jumlah yang sebenarnya ditetapkan oleh pemerintah." Ia menoleh kepada An Shubiao, lalu 
+berkata lagi, "Mulai besok, setiap hari kau harus datang melapor kepadaku di alamat yang akan diberikan ini sebelum 
+mulai bertugas." An Shubiao memberikan alamat penginapan Ki Seung Nyang.
+
+Ki Seung Nyang melanjutkan kata-katanya, "Dan katakan kepada semua anak buahmu supaya tidak membesar-besarkan peristiwa 
+yang terjadi hari ini. Kau mengerti maksudku?"
+
+Komandan itu segera mengiyakan, dan Ki Seung Nyang kemudian menyuruhnya pergi.
+
+"Kita kembali ke penginapan," kata Ki Seung Nyang.
+
+Pria bertubuh tegap yang tadi berkelahi dengan Yin Li disuruh mengikuti mereka. Yin Li segera menotok beberapa titik 
+akupuntur untuk membuatnya diam dan tidak bisa menggerakkan kedua lengannya ketika ia ingin protes.
+
+Setibanya di kamar penginapan, Ki Seung Nyang berkata, "Ah Li, bebaskan totokannya!"
+
+Begitu merasa kedua tangannya kembali bisa digerakkan, orang itu segera maju untuk menyerang Ki Seung Nyang. Ketika merasa 
+tak ada orang di situ yang berusaha menghalangi niatnya, ia segera mengerahkan seluruh tenaganya dalam serangan itu. 
+Tetapi di luar dugaannya, dalam satu jurus pergelangan tangannya telah berhasil dicekal oleh Ki Seung Nyang, lalu 
+detik berikutnya ia dibuat kembali tidak bisa bersuara.
+
+Ki Seung Nyang berkata, "Seperti kau lihat sendiri, sebetulnya kau sama sekali bukan lawanku. Dan bahkan bukan lawan 
+anakku. Tapi aku merasa kau sebenarnya bisa melakukan sesuatu yang baik ketimbang berkoar-koar dan mencari masalah dengan 
+hanya mengandalkan ilmu berkelahi di pasar seperti tadi. Kalau kau kira bahwa kau sedang melakukan sesuatu yang baik untuk 
+rakyat, maka kau salah besar. Kalau kau sungguh ingin berjuang untuk rakyat, kuanjurkan supaya sekarang juga kau 
+pergi ke Xiangyang untuk bertemu dengan Zhang Jiaozhu. Katakan bahwa Bibi Qi yang menyuruhmu datang untuk bergabung. 
+Kau pasti akan diterima. Gunakan kesempatan itu untuk belajar baik-baik. Mulai sekarang jangan membuat kekacauan lagi!"
+
+Ketika mendengar Ki Seung Nyang menyebutkan 'Zhang Jiaozhu', orang itu terbelalak kaget. Ia ingin bicara, tapi 
+tak ada suara yang keluar. Ki Seung Nyang segera membebaskan totokannya. Pria itu cepat-cepat berlutut sambil berkata, 
+"Xiaoren pantas mati! Xiaoren tidak menyangka hari ini bisa bertemu dengan pejabat tinggi Ming Jiao."
+
+"Tak usah berlebihan," kata Ki Seung Nyang. "Mulai sekarang berhentilah menghasut rakyat! Jika mereka sampai celaka, 
+maka banyak orang pasti akan menyalahkan Ming Jiao! Kau pikir keadaan kacau seperti sekarang ini bagus ya? Ini sama sekali 
+bukan tujuan Ming Jiao! Ajak teman-temanmu ke Xiangyang, dan belajarlah yang benar."
+
+Pria itu mengiyakan sambil membenturkan dahinya berkali-kali ke lantai.
+
+"Aku bukan ketua Ming Jiao!" kata Ki Seung Nyang. "Jadi kau juga tidak perlu bersikap seperti ini. Aku akan senang 
+jika lain kali bisa mendengar bahwa kau sudah bertobat, dan banyak belajar dari keponakanku Zhang Wuji. Siapa namamu?"
+
+"Xiaoren bermarga Xin," jawab orang itu. "Bernama He. Xiaoren berasal dari Jiangnan."
+
+"Baiklah, kau boleh pergi sekarang," kata Ki Seung Nyang lagi. "Pikirkan nasihatku baik-baik."
+
+Xin He kembali membenturkan kepalanya tiga kali ke lantai, sebelum akhirnya minta diri.
+
+Setelah ia pergi, Ki Seung Nyang berkata, "Tak terasa, sekarang sudah siang. Kalian mau makan apa?"
+
+***
+
+Zhang Wuji sedang membaca surat yang baru diterimanya dari Nanjing ketika para pelayan masuk ke ruangan pribadinya 
+untuk mengantarkan makan siang bagi mereka. Di ruangan itu hanya tinggal Zhao Min, Yang Xiao, Fan Yao, Sima Han dan 
+Bei Jinyi.
+
+Surat itu tidak terlalu panjang.
+
+```text
+
+Zhang Jiaozhu Yang Budiman,
+
+Zaixia berpendapat bahwa sebaiknya kita hanya mengirim dua ribu pasukan Xu Da, 
+dan tidak perlu mengirimkan Chang Yuchun ke Kaifeng pada saatnya nanti.
+Ini penting, karena seandainya kita tidak bisa menarik pulang mereka nantinya, 
+maka kita tidak perlu kehilangan terlalu banyak orang.
+Selebihnya Zaixia setuju, gagasan Jiaozhu sungguh tepat.
+
+Zu Yuanzhang
+
+```
+
+"Sekarang semakin jelas bahwa Zhu Yuanzhang lebih berpihak kepada Jiaozhu," kata Yang Xiao setelah membaca 
+surat itu. "Dan kelihatannya dia ingin mengabaikan Liu Futong."
+
+Zhao Min tersenyum samar, lalu berkata, "Maksudmu dia berharap supaya Jiaozhu mendukungnya."
+
+Semua orang menyadari kalimat Zhao Min itu mengandung maksud tersembunyi. Zhang Wuji bertanya, "Apa maksudmu 
+sebenarnya?"
+
+"Apa bedanya antara Zhang Jiaozhu mendukungnya dan dia mendukung Zhang Jiaozhu? Bukankah ini semua kerja sama yang 
+baik?" tanya Bei Jinyi.
+
+Zhao MIn menjawab dengan tenang, "Zhu Yuanzhang bukan orang bodoh. Dia selama ini sangat memperhatikan langkah-langkah 
+Jiaozhu. Dan dia tahu pasti bahwa Jiaozhu tidak pernah menyetujui usulan seperti mendirikan Dinasti Song yang baru itu. 
+Selain itu dia juga tahu bahwa Zhang Jiaozhu tidak bermaksud menjadi seorang kaisar. Justru karena itulah dia sampai 
+kapanpun juga akan selalu mendekati Jiaozhu, supaya Jiaozhu _mendukungnya_."
+
+Yang Xiao berkata, "Maksud Xiao Furen adalah — mendukungnya untuk menjadi kaisar?"
+
+"Yang Zuoshi, akhirnya kau menyadarinya juga," kata Zhao Min sambil tersenyum.
+
+Semua orang terkesiap. Fan Yao berdiri dan berkata, "Jiaozhu, ini sangat berbahaya!"
+
+"Kenapa berbahaya?" tanya Zhang Wuji.
+
+"Kalau ini benar, berarti dia adalah musuh dalam selimut," kata Fan Yao.
+
+Zhang Wuji menggelengkan kepalanya. "Itu masih belum tentu," katanya. "Dan aku juga tidak akan mendukungnya memberontak 
+terhadap Han Lin'er. Kalau dia berpikir ke arah itu, dia salah."
+
+Bei Jinyi berkata, "Kalau seperti itu, aku jadi merasa orang ini bukan orang baik..."
+
+Zhang Wuji memandangnya dengan penuh perhatian, tetapi Bei Jinyi tidak mengatakan apa-apa lagi. "Bei Shijie, kenapa 
+kau berpikir begitu?"
+
+"Aku tidak tahu," kata Bei Jinyi. "Aku hanya merasa dia bukan orang baik."
+
+Zhang Wuji tahu bahwa Bei Jinyi tidak terlalu pintar, tetapi ia seringkali setuju dengan kata-katanya. Karena Bei Jinyi 
+tidak mau mengungkapkan alasannya, akhirnya ia berkata, "Baiklah, sekarang kita abaikan dulu soal itu untuk sementara. Aku 
+akan mengingat pendapat kalian dalam hati. Kita perhatikan isi surat itu. Apa kalian juga setuju?"
+
+Yang Xiao berkata, "Isi surat itu sendiri tidak salah. Memang mungkin saja setelah menduduki Kaifeng nanti Liu Futong 
+tidak akan mau mengembalikan pasukan Chang Yuchun ke Xiangyang."
+
+"Kau pikir Xu Da yang hanya membawa dua ribu orang itu cukup meyakinkan untuk berarak ke situ?" tanya Zhang Wuji lagi.
+
+Sebelum Yang Xiao sempat menjawab, pintu ruangan diketuk, dan seorang anggota Kai Pang masuk sambil membawa surat. Setelah 
+memberi hormat ia berkata, "Jiaozhu, ada surat balasan dari Kaifeng."
+
+"Sima Zhanglao, tolong bacakan untuk kita semua," kata Zhang Wuji.
+
+Sima Han segera membuka surat itu, lalu membacakannya lambat-lambat. Kemudian ia mengedarkan surat itu supaya bisa dibaca 
+sendiri oleh semua orang.
+
+"Wah, ini kabar baik!" kata Zhang Wuji dengan gembira. "Ternyata Zhu'er ada di Kaifeng, dan bersama dengan Bibi Qi! Aku bisa tenang sekarang."
+
+"Entah di mana Yin Yewang sekarang," kata Yang Xiao. "Dia sudah terlalu lama mencari anak ini."
+
+"Kalau dia tidak bisa menemukannya di sekitar Henan, pasti akan kembali ke Jiangnan," kata Zhang Wuji. "Di situ 
+banyak urusan setelah Waigong[^waigong] meninggal."
+
+[^waigong]: Waigong (外公) adalah sebutan bahasa mandarin bagi seorang kakek dari pihak ibu.
+
+Fan Yao berkata, "Kalau Qi Shimei masih tinggal di Kaifeng, berarti ini akan memudahkan surat-menyurat. Apalagi 
+setelah burung merpati kita bisa dikirimkan ke tempat di mana dia berada."
+
+"Betul," kata Zhao Min. "Dari sini ke Kaifeng hanya perlu sekitar dua shichen[^shichen], atau bahkan lebih cepat. 
+Kalau naik kuda jelas perlu seharian."
+
+Zhang Wuji mengambil selembar kertas, lalu menyiapkan kuas untuk menulis. Ia berkata, "Apa yang akan kita tulis untuk 
+Bibi Qi? Silakan kalian semua ikut memikirkan."
+
+ 
 
