@@ -240,7 +240,7 @@ Ah San tertawa terbahak-bahak mendengar jawaban itu.
 
 "Kupikir juga begitu," kata Zhang Wuji dengan santai sambil mengambil sepotong ubi lagi. Ia makan pelan-pelan sampai 
 beberapa saat sebelum melanjutkan, "Jika saja kita bertiga dilahirkan seratus tahun yang lalu, mungkin kita juga akan 
-menyaksikan sendiri para penduduk di sekitar Dadu pada saat itu akan bereaksi yang sama ketika ada orang menyuruh mereka membunuh 
+menyaksikan sendiri para penduduk di sekitar Dadu pada saat itu bereaksi sama ketika ada orang menyuruh mereka membunuh 
 Kubilai Khan."
 
 Dou Sujian melongo, dan tidak segera memahami arti uraian Zhang Wuji. Ah San berkata untuk melengkapi dan sekaligus menjawabnya, 
@@ -250,8 +250,208 @@ Tapi banyak orang mengatakan bahwa penderitaan itu adalah akibat ulah orang-oran
 diutus untuk mengelola wilayah itu, dan Kubilai Khan memberantas para bandit itu. Jadi bagi rakyat di sekitar situ, 
 Kubilai Khan tentu saja adalah pahlawan besar yang membebaskan rakyat."
 
+Dou Sujian berlutut sambil berkata kepada Zhang Wuji, "Untuk selama-lamanya orang bermarga Dou ini akan setia mengikuti 
+Jiaozhu! Jiaozhu sungguh bijaksana."
 
+Zhang Wuji membantunya bangkit berdiri sambil berkata, "Kalau begitu, sekarang kau membantu Ah Da, Ah Er dan Ah San 
+mengumpulkan semua laporan yang sudah mereka buat sampai sejauh ini. Amati baik-baik, apakah masih ada sisa-sisa pengikut 
+Chen Youliang di antara mereka. Setelah itu kau ikut kami pulang ke markas."
 
+Sementara mereka semua menyelidiki masalah yang timbul di perkemahan bekas prajurit asuhan Chen Youliang, Zhang Wuji 
+mengajak para penghni perkemahan satunya mengobrol. Mereka ternyata juga sempat mendengar ringkikan kuda di tengah malam, 
+tapi kemudian mereka berpikir bahwa itu pasti karena gangguan dari hewan-hewan kecilseperti tikus, tupai atau lainnya, 
+jadi mereka mengabaikannya. 
+
+Zhang Wuji kembali menekankan supaya mereka semua bisa bergaul dan bersahabat dengan prajurit lain yang sudah ada kota ini 
+sebelum mereka datang, dan supaya meraka selalu berbicara dalam bahasa Han dalam kegiatan sehari-hari. Untungnya 
+Wang Baobao sudah menyeleksi dengan ketat semua prajurit yang hendak dibawa ke Xiangyang, jadi kebanyakan dari mereka memang 
+berasal dari suku Han. Kalaupun ada beberapa orang yang berasal dari suku lain, mereka juga bisa berbahasa Han dengan baik.
+
+Sekitar tiga jam kemudian, mereka berhasil mengumpulkan sekitar lima puluh gambar yang cukup baik, dan bisa dijadikan 
+panduan untuk mengenali wajah beberapa orang yang melarikan diri dari perkemahan. Zhang Wuji mengajak Ah Da, Ah Er, Ah San 
+dan Dou Sujian kembali ke markas mereka di tengah kota. Ia juga mengingatkan komandan pasukan kiriman Wang Baobao yang 
+ada di situ, "Ba Mengtian, jangan lupa menyuruh anak buahmu mengambil bahan makanan dari markas!"
+
+Setibanya di ruangan pribadinya, ia lalu menyuruh mereka berempat menceritakan semua yang mereka ketahui dan temukan 
+di perkemahan itu kepada Sima Han, Yang Xiao dan Fan Yao untuk dibahas bersama.
+
+Sima Han berkata, "Para anggota kami pasti masih mengingat dengan baik wajah-wajah para pengikut Chen Youliang yang 
+pernah bersama mereka selama bertahun-tahun itu. Kita bawa saja gambar-gambar ini kepada mereka."
+
+"Kalau perlu cari orang yang bisa memperbanyak gambar-gambar itu untuk disebarkan kepada seluruh anggota Kai Pang, 
+di segala tempat," kata Fan Yao. "Ini akan mempersempit ruang gerak mereka."
+
+"Mereka pasi punya lebih banyak pengikut baru," kata Yang Xiao. "Bagaimana caramu mengatasinya?"
+
+"Sepanjang para pengikut lama tetap ada, maka mereka pasti akan bisa dilacak," jawab Fan Yao. "Biasanya orang-orang baru 
+akan selalu didampingi oleh senior mereka. Cara ini juga kita pakai di sini, kan?"
+
+"Bagus sekali," kata Zhang Wuji. "Kalau begitu kita harus juga melibatkan Wei Fuwang dan Zhou Dian dalam masalah ini."
+
+Yang Xiao berkata, "Sima Zhanglao, para anggota Kai Pang di Jiangxi atau Fujian pasti tahu di mana kedua orang ini berada. 
+Suruh mereka berdua segera melaporkan diri."
+
+"Baik," kata Sima Han.
+
+"Untuk sementara gambargambar ini harus terus diedarkan secara bergiliran di antara para pengawal di tempat ini," 
+kata Zhang Wuji lagi. "Ini termasuk Delapan Panah Dewa. Ah Da, kau yang mengatur ini semua."
+
+"Baik!" jawab Ah Da.
+
+"Aku juga menitipkan Dou Sujian kepada kalian. Dia masih baru di sini, kau harus membimbingnya," kata Zhang Wuji.
+
+Ah San sudah menyukai Dou Sujian sejak tadi. Ia berkata sambil menepuk bahu Dou Sujian, "Jiaozhu jangan kuatir, 
+serahkan saja kepada kami. Aku suka gaya anak muda ini."
+
+Sementara mereka sibuk mengurus pekerjaan baru akibat para pengikut Chen Youliang yang melarikan diri itu, di bagian 
+dapur Bei Jinyi sibuk memisah-misahkan segerobak ubi segar yang baru dikirim bersama sejumlah besar sayur dan buah-buahan 
+bagi para prajurit di bagian utara dan selatan. Meskipun ia sudah terbiasa mengurus pekerjaan semacam ini bersama Zhou Zhiruo 
+di Emei, tetapi karena jumlah yang dikirim sangat banyak, maka urusan yang seharusnya sederhana ini cukup menyita waktunya.
+
+Anak-anak perempuan yang membantunya di dapur belum terbiasa menangani pekerjaan semacam ini, tapi untungnya ada 
+Ah Zhu yang sangat terampil, meskipun kelihatannya lamban. 
+
+Baru saja Bei Jinyi ingin duduk untuk menarik nafas, segerobak besar karung dibawa masuk ke hadapannya. Ia mengusap keringat 
+di mukanya dengan ujung jubah sambil berseru, "Yuxian, coba kau urus karung-karung ini dulu. Biarkan teman-temanmu yang menyelesaikan 
+urusan itu!"
+
+Dongfang Yuxian adalah seorang anak perempuan tiga belas tahun yang manis dan pandai bicara. Gerak-geriknya sangat lincah, 
+ia mampu menyelesaikan segala tugas yang diberikan kepadanya dua-tiga kali lebih cepat ketimbang Ah Zhu. Tetapi sebagai 
+akibatnya pekerjaan itu kurang rapi, dan kadang-kadang ada yang tertinggal atau bahkan lupa dilakukan. Ia sudah dua kali 
+diomeli Bei Jinyi. Jadi begitu mendengar suara Bei Jinyi, ia cepat-cepat menyenggol teman-temannya sambil berlari 
+untuk menyambut si pembawa gerobak itu dan berkata, "Paman, tolong letakkan semuanya di situ, nanti kami yang akan 
+mengurusnya lagi."
+
+Mendengar itu, Bei Jinyi berkata, "Tidak, langsung pisahkan semua bahan yang akan dibawa ke bagian utara dan selatan itu 
+sekarang juga. Lalu makanan untuk anak-anak yang sedang magang di tempat Chang Yuchun itu harus segera kalian masak. 
+Tadi kulihat ada banyak kacang hijau tercampur dengan bayam, aku tidak mau melihat hal seperti itu lagi!"
+
+"Baik, Nona Bei!" kata Dongfang Yuxian.
+
+Ia mengajak belasan teman-temannya ikut melakukan pekerjaan itu. Diam-diam ia berbisik, "Katakan kepada teman kita, 
+kalaupun ada yang tercampur memang tidak apa-apa, asalkan ditumpuk lagi dengan sayuran. Pokoknya jangan kentara. Nanti aku 
+yang kena marah lagi. Nona Besar ini lebih bawel dari Furen." Ia menyeringai sambil mengedipkan sebelah matanya.
+
+Temannya menyelinap untuk memberitahu kelompok lain yang sedang mengerjakan tugas yang dimaksud.
+
+Bei Jinyi bermaksud menengok keluar dari pintu samping, karena saat ini para petugas yang mengambil bahan-bahan makanan 
+dari perkemahan seharusnya sudah datang. Ia hampir bertabrakan dengan seorang pria berpakaian militer di sebuah tikungan.
+"Aduh, kau mengagetkanku!" katanya.
+
+Komandan itu minta maaf dengan sopan, lalu berkata, "Namaku Ba Mengtian, aku sendiri yang akan membawa bahan-bahan 
+itu ke perkemahan. Tapi sebelumnya aku ingin menemui Jiaozhu. Kau tahu tempatnya?"
+
+Ba Mengtian bertubuh kekar, mukanya agak kotak dan berewokan, meskipun belum empat puluh tahun. Sekilas ia tampak 
+gagah dan berwibawa, tetapi ternyata nada bicaranya sangat halus. Bei Jinyi tidak jadi mengomel. Ia berkata dengan ramah, 
+"Kau salah arah. Dari sini kau kembali ke pintu samping yang tadi, lalu kau menuju ke pintu gerbang utama, ruangannya 
+ada di sebelah kiri. Pintunya selalu terbuka."
+
+Ba Mengtian agak bingung, ia berkata lagi, "Nona...?"
+
+"Namaku Bei Jinyi."
+
+"Rupanya Nona Bei," kata Ba Mengtian. "Aku agak bingung melihat terlalu banyak tikungan ini. Kalau Nona Bei sedang 
+searah, mungkin bisa menunjukkan jalannya?"
+
+"Aku memang sedang menuju ke pintu samping," kata Bei Jinyi.
+
+Mereka berjalan bersama sampai komandan itu melihat Zhang Yishang dan semua saudaranya yang sedang bertugas di pintu 
+samping yang dimaksud Bei Jinyi. Kemudian Bei Jinyi menunjukkan arah ke ruangan Zhang Wuji. Ba Mengtian mengucapkan terima kasih 
+dan segera berlari ke arah yang ditunjukkannya.
+
+Ia mengetuk pintu, lalu membungkuk hormat sambil meletakkan tangan di dada kepada Zhang Wuji, dan berkata, "Ba Mengtian menghadap Jiaozhu!"
+
+Zhang Wuji agak heran melihat kedatangannya. "Kenapa kau ke sini sendiri?" tanyanya. "Siapa yang menjaga di sana?"
+
+"Utusan dari Xiao Wangye baru tiba," jawab Ba Mengtian. "Mereka membawa puluhan ekor burung merpati yang bisa kita pakai 
+untuk mengantarkan pesan dengan cepat ke Henan. Tadi Zaixia menitipkannya kepada Delapan Panah Dewa di pintu samping." 
+Ia mengeluarkan selembar kertas yang terlipat rapi dari sakunya, lalu menyerahkannya kepada Zhang Wuji sambil berkata, 
+"Xiao Wangye juga menitipkan surat ini."
+
+ 
+```text
+
+Adikku,
+
+Burung-burung itu bisa kalian gunakan untuk mengantar pesan ke Henan.
+Usahakan supaya kalian membekali pihak ayah dengan cara yang sama dari Xiangyang.
+Kami sudah tahu Huanghou ada di mana, pastikan kita semua selalu berkirim pesan setiap hari,
+Tekanan dari utara semakin berat, tapi aku berusaha mengatasinya sebisaku.
+Pihak Nanjing memang bisa kita pakai untuk mengusik Zhang Sicheng atau Kaifeng, 
+tapi kau harus sangat berhati-hati, aku sendiri tidak mempercayainya.
+Mereka sedang membuat meriam mereka sendiri, dan kau tidak diberitahu.
+Usahakan untuk menarik 'otak' mereka ke pihakmu.
+
+Wang Baobao
+
+```
+
+Setelah membacanya sekilas, Zhang Wuji mengangguk dan menyerahkan surat itu kepada Yang Xiao dan Fan Yao, lalu 
+berkata kepada Ba Mengtian, "Aku mengerti. Suruh mereka menunggu di kemahmu, nanti malam aku ke situ lagi. Kau harus segera 
+kembali setelah selesai dengan semua urusanmu di sini. Kau yang harus mengendalikan semua pasukan di utara itu, 
+jangan sampai ada kejadian seperti semalam."
+
+Ba Mengtian mengiyakan, lalu minta diri untuk menunggu bahan-bahan makanan yang harus dibawanya ke perkemahan.
+
+Kening Yang Xiao dan Fan Yao berkerut setelah membaca isi surat dari Wang Baobao. Yang Xiao bertanya, "Ini maksudnya 
+Zhu Yuanzhang sedang membuat meriam sendiri? Apakah pihak istana tahu mengenai hal ini?"
+
+Tampaknya Zhang Wuji sedang memeras otak dan agak gelisah. Ia mondar-mandir di ruangan itu dan tidak segera menjawab. 
+Ketika akhirnya bersuara, ia hanya berkata singkat, "Kemungkinan besar tidak."
+
+"Entah siapa yang dimaksud dengan 'otak' di sini?" gumam Fan Yao. "Apa mungkin Liu Bowen?"
+
+Yang Xiao sangat kaget. "Liu Bowen? Bagaimana dia bisa ada di situ? Bukannya dia sudah dihukum mati?"
+
+Karena banyaknya persoalan yang harus diurus, mereka semua lupa menceritakan soal ini kepada Yang Xiao, karena itu 
+ia tidak tahu apa sesungguhnya yang terjadi. Fan Yao segera menceritakan apa yang diketahuinya.
+
+Diam-diam Yang Xiao semakin cemas setelah mendengar uraian Fan Yao. Sekali lagi ia sangat kaget bahwa Ki Seung Nyang 
+bisa melakukan langkah-langkah politik seperti ini. Ia tidak berani menilai hal ini sebenarnya baik atau buruk bagi 
+pihak mereka sendiri. Ia mendengar Zhang Wuji menjawab pertanyaan Fan Yao dengan singkat, "Tentu saja Liu Bowen."
+
+Saat ini Zhang Wuji mulai menyesali kepergian Zhao Min ke Hanyang. Ia tidak bisa menemukan alasan yang tepat untuk menarik 
+Liu Bowen ke Xiangyang. Seandainya saja Zhao Min ada di sini, dalam waktu singkat ia pasti akan menemukan cara yang 
+ajaib untuk melakukannya. Ia bertanya, "Kalian punya cara untuk menariknya ke sini?"
+
+Yang Xiao tahu bahwa merancang persenjataan adalah salah satu keahlian Liu Bowen. Jika memang terbukti bahwa saat ini 
+Zhu Yuanzhang sedang memproduksi meriam dan senjata-senjata lain, maka bisa dipastikan bahwa itu semua adalah hasil karya 
+Liu Bowen. Dengan demikian orang itu adalah orang yang sangat penting baginya, maka hampir tidak mungkin Zhu Yuanzhang akan 
+merelakannya begitu saja. 
+
+Ia berkata, "Jiaozhu tentu saja bisa menariknya ke sini kapan saja, tetapi jika kita melakukannya sekarang, maka 
+Zhu Yuanzhang pasti akan memandang kita sebagai lawan, dan bukan sebagai sekutu. Zaixia tidak tahu apakah saat ini kita 
+memang membutuhkan kehadirannya di tempat ini."
+
+"Hm," gumam Zhang Wuji sambil berpikir-pikir. Sekarang ia sudah punya cara cepat untuk menghubungi Wang Baobao, dan 
+informasi mengenai kondisi politik di istana pasti akan mengalir dengan cepat. Ia memutuskan untuk menunda dulu soal 
+Liu Bowen. Ia kemudian mengambil kuasnya, dan menulis surat balasan.
+
+```text
+
+Gege,
+
+Kami mengutus Minmin dan Zhiruo untuk menemui ayah di Nanyang, 
+supaya ayah tidak perlu datang ke Xiangyang sendiri, 
+yang sangat berbahaya bagi ayah maupun rencana besar kita. 
+Sekitar 5000 orang melarikan diri dari kemah utara, 
+yang dihuni oleh pasukan yang diasuh mantan pengemis itu.
+Mereka pasti akan kembali ke majikan mereka sendiri.
+Aku tidak tahu apakah kita harus mengambil alih istana di Hanyang.
+Keluarga mantan Kai Pang itu ada di tangan kita.
+Kami memperlakukan mereka dengan baik.
+Tapi orang itu pasti akan berusaha melarikan keluarganya ke Jiangxi.
+Nasihat Gege sangat kuhargai.
+
+Urusan Nanjing pasti akan kami perhatikan,
+tetapi sayangnya 'otak' itu belum bisa kami bawa ke Xiangyang.
+
+Zhang Wuji
+
+```
+
+Ia menyuruh ketiga orang lainnya memeriksa surat balasannya, lalu Sima Han segera mencari Zhang Yishang dan 
+saudara-saudaranya untuk mengirimkannya melalui burung merpati yang baru diantarkan Ba Mengtian.
 
 
 
