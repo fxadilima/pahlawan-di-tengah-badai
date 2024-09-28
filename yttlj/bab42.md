@@ -67,7 +67,7 @@ sebentar dengan ayah, tidak bisa melalui surat."
 Bei Jinyi berkata, "Mengapa tidak bertemu di Nanyang? Itu cukup dekat dengan Hanyang, dan sekarang Minmin sedang menuju 
 ke Hanyang. Mereka berdua bisa mewakilimu, kau tidak perlu ke sana sendiri, dan Wangye juga tidak perlu keluar dari sana."
 
-"Itu ide yang bagus," kata Zhang Wuji. "Kalian berdua punya ide lain?" Ia menoleh kepada Sima Han, Yang Xiao dan Fan Yao.
+"Itu ide yang bagus," kata Zhang Wuji. "Kalian punya ide lain?" Ia menoleh kepada Sima Han, Yang Xiao dan Fan Yao.
 
 "Kurasa itu memang yang terbaik," kata Fan Yao.
 
@@ -85,7 +85,7 @@ memikirkan pesan berikutnya mulai dari sekarang." Ia menyuruh Sima Han segera me
 
 "Aku harus segera membantu mereka di dapur," kata Bei Jinyi. "Pasukan di utara dan selatan masih memerlukan bantuan dari sini, kan?"
 
-"Betul," kata Zhang Wuji. "Kau harus memastikan bahwa persediaan makanan pasukan Chang Yuchun juga masih tersedia."
+"Betul," kata Zhang Wuji. "Kau harus memastikan bahwa persediaan makanan pasukan Chang Yuchun juga masih cukup."
 
 Setelah Bei Jinyi dan Sima Han pergi, Yang Xiao ingin mengatakan sesuatu yang sudah dipikirkannya sejak tadi, tetapi 
 kemudian ia membatalkannya.
@@ -180,7 +180,7 @@ meneruskan keterangan itu. Ia tampak sangat ragu.
 
 "Kau bisa mengatakan apapun yang ingin kau katakan," kata Zhang Wuji. "Aku tidak akan menhukummu."
 
-Saat itu Ah San masuk ke tanda itu, tetapi bermaksud keluar lagi ketika melihat bahwa Zhang Wuji sedang berbicara 
+Saat itu Ah San masuk ke tenda itu, tetapi bermaksud keluar lagi ketika melihat bahwa Zhang Wuji sedang berbicara 
 dengan Dou Sujian yang sedang berlutut. Zhang Wuji memanggilnya, "Ah San, tolong kau cari makanan kecil yang masih 
 tersisa di barak. Aku ingin mengobrol sebentar dengan kalian berdua di sini."
 
@@ -229,9 +229,9 @@ Ia bertanya, "Lalu apa yang terjadi?"
 "Xiao Furen bersama delapan anak buahnya itu pergi begitu saja," kata Zhang Wuji.
 
 Tentu saja ia tidak ingin menceritakan tentang pengalaman romantisnya dengan Zhao Min. Sebaliknya ia menambahkan, 
-"Bayangkan, jika kemudian salah seorang kawan kita di barakmu itu menceritakan cerita yang sama seperti yang diceritakannya 
-kepada kalian — kepada para penduduk desa yang tadi dibebaskan oleh Xiao Furen dan delapan anak buahnya — lalu menyuruh 
-mereka mencelakai Xiao Furen, menurutmu apa yang akan mereka lakukan?"
+"Bayangkan, jika kemudian salah seorang kawan kita di barakmu itu diceritakan kembali kepada para penduduk desa 
+yang tadi dibebaskan oleh Xiao Furen dan delapan anak buahnya — lalu menyuruh mereka mencelakai Xiao Furen, 
+menurutmu apa yang akan mereka lakukan?"
 
 Dou Sujian menjawab tanpa pikir panjang lagi, "Tentu saja mereka semua akan menolaknya! Bukan tidak mungkin orang itu 
 akan dilempari batu beramai-ramai oleh para penduduk desa!"
@@ -249,7 +249,6 @@ dan langsung pulang ke utara begitu saja. Akibatnya yang berkuasa di situ umumny
 Tapi banyak orang mengatakan bahwa penderitaan itu adalah akibat ulah orang-orang Mongolia. Setelah itu Kubilai Khan yang 
 diutus untuk mengelola wilayah itu, dan Kubilai Khan memberantas para bandit itu. Jadi bagi rakyat di sekitar situ, 
 Kubilai Khan tentu saja adalah pahlawan besar yang membebaskan rakyat."
-
 
 
 
