@@ -1,6 +1,6 @@
 # Mencari Keseimbangan
 
-![Ilustrasi Bab 42](/assets/images/empress-bayan.webp "Permaisuri Toghon Temur, Bayan Khutugh")
+![Ilustrasi Bab 42](/assets/images/maids.jpg "Situasi di Istana")
 
 Zhang Wuji ternyata sedang memikirkan hal lain. Ia mendesah dan berkata, "Surat Bibi Qi ini mengingatkan aku bahwa 
 Zhiruo saat ini seharusnya sudah kembali dari Hanyang, kalau semuanya sesuai rencana. Tapi nyatanya sampai sekarang 
@@ -1105,6 +1105,87 @@ Ganti semuanya dengan lima ratus anggotamu! Mulai sekarang, tempatkan orang pili
 
 Xu Da menyeringai lebar. "Siap!" bisiknya. Ia lalu menyelinap pergi, dan menyiapkan anak buahnya untuk menggantikan 
 semua pengawal istana.
+
+Sementara mereka semua sibuk memindahkan barang-barang dan manusia, Zhou Zhiruo dan Zhao Min memasuki istana Xu Shouhui 
+dan mulai meneliti setiap sudut dengan cermat untuk memastikan mereka tidak akan menemui sesuatu yang akan menjadi 
+malapetaka di kemudian hari. 
+
+Meskipun tidak kecil, tetapi istana itu tentu saja tidak bisa dibandingkan dengan istana Kekaisaran Dinasti Yuan 
+di Dadu, atau istana Dinasti Song di Kaifeng yang sudah terguling. Menurut perkiraan Zhao Min, tempat itu kira-kira 
+seluas sepuluh kali lipat dari markas yang mereka tempati di Xiangyang sekarang. Beberapa ruangan tampak seperti 
+ditinggalkan secara terburu-buru, tetapi di bagian lain tampak sangat rapi seolah tak tersentuh. Secara keseluruhan 
+hampir semua isi tempat ini masih lengkap seperti sediakala.
+
+Perhatian Zhao Min langsung tertuju pada sebuah ruangan yang berisi buku-buku. Tampaknya ini adalah perpustakaan.
+Ia memeriksa beberapa buku, lalu melihat alat-alat tulis yang masih tersusun rapi di sebuah meja menurut tempatnya 
+masing-masing. Tinta dan kuas seperti baru sebersihkan dan diisi. Kertas-kertas kosong tertumpuk rapi dan siap dipakai.
+
+Zhou Zhiruo mengajak kelima orang anak perempuan yang menjadi tangan kanannya untuk mengikuti mereka berkeliling. 
+Ketika melihat alat-alat tulis itu, ia berkata, "Meizi, kurasa kita harus menulis surat kepada Wuji Gege dan semua 
+orang di Xiangyang untuk melaporkan perkembangan baru ini. Bagaimana kalau kau yang menulisnya? Kau membawa merpati 
+dari Xiangyang, kan?"
+
+"Hanya dua ekor," kata Zhao Min. "Aku mengejar waktu ke sini. Tapi kita bisa menyuruh orang ke Xiangyang untuk membawa 
+lebih banyak. Dan tentu saja kita juga bisa membawa orang yang bisa melatih merpati dari Xiangyang, supaya kita bisa 
+membiakkan sendiri di sini. Tapi mengenai surat, sebaiknya kau yang menulisnya, karena kau tahu lebih banyak tentang 
+apa yang kau lakukan sendiri sejak awal. Aku justru ingin mendengar ceritamu tentang para pengungsi itu."
+
+"Baiklah," kata Zhou Zhiruo. "Di mana burung-burung itu sekarang?"
+
+Zhao Min menoleh kepada Jing'er, yang segera berkata, "Semuanya masih di dalam kereta yang kita bawa dari Xiangyang. 
+Furen ingin meletakkan mereka di mana?"
+
+"Kulihat di depan perpustakaan ini ada halaman yang cukup luas. Kau bisa membawa sangkarnya ke situ. Nanti kau harus melepaskannya 
+dari situ juga, supaya kalau dikirim kembali ke sini dari Xiangyang, mereka akan sampai di titik itu," kata Zhao Min.
+
+Jing'er segera keluar dari situ untuk mengambil kedua burung merpati yang dibawa Zhao Min dari Xiangyang.
+
+Sementara Zhou Zhiruo menulis surat, Zhao Min mengajak Sikong Jiumei dan Lu Xian berkeliling lebih jauh. Mereka akhirnya 
+tiba di sebuah pintu yang sepertinya adalah pintu samping dari ruangan yang sangat besar. Di bagian dalam ruangan itu, 
+tepat di tengahnya, ada sebuah kursi besar yang tampak agung dan berukir indah. Zhao Min berjalan mendekati pintu yang 
+diduganya sebagai pintu masuk ke ruangan itu. Saat ini pintu itu dalam keadaan tertutup rapat, dan dipalang dari dalam.
+
+Ketika membuka palang itu, ternyata ia langsung berhadapan dengan halaman utama yang sangat luas, yang akan mengantar 
+mereka keluar dari areal istana itu. Ia langsung menyadari bahwa ini adalah tempat Xu Shouhui mmengadakan rapat harian 
+dengan jajaran menterinya, dan kursi besar itu adalah singgasananya. 
+
+Dari tempat mereka berdiri, Zhao Min melihat Xu Da yang sudah berpakaian militer lengkap sedang mengatur tugas bagi 
+para prajurit yang akan ditempatkan di situ. Jarak dari situ ke lapangan tempat prajurit itu berbaris kira-kira seratus 
+lima puluh meter. Ia tidak ingin berteriak untuk bebicara kepada Xu Da, jadi ia menoleh kepada Sikong Jiumei dan berkata, 
+"Jiumei, cepat panggil Komandan Xu yang sedang mengatur pasukan itu. Suruh dia membawa enam orang ke sini."
+
+Sebelum Sikong Jiumei sempat bicara, Lu Xian mendahuluinya, "Furen, aku bisa berlari jauh lebih cepat dari anak 
+manja ini. Biar aku yang ke situ!" Ia menyeringai lebar. Setelah melihat Zhao Min mengangguk, ia segera berlari 
+untuk memamerkan kebolehannya.
+
+Zhao Min memandang punggung anak itu sambil tersenyum. Ia tahu sebelumnya Lu Xian sempat bertengkar dengan Sikong Jiumei. 
+Tetapi melihat cengirannya tadi, ia juga tahu bahwa masalah di antara mereka sekarang sudah beres. Ia bertanya, "Jiumei, 
+kau masih marah?"
+
+"Jiumei tidak marah," jawab Sikong Jiumei. "Cara Xian'er bicara memang selalu seperti itu. Setelah kami bertemu dengan 
+anak-anak pengungsi dari utara itu akhirnya dia minta maaf karena mendorong-dorong Jiumei."
+
+Zhao Min jadi teringat ketika pertama kalinya ia bertemu dengan Zhou Zhiruo. Saat itu ia kira-kira seusia Jing'er atau 
+Jiumei sekarang. Ia sudah mendengar tentang Zhou Zhiruo yang menusuk dada Zhang Wuji dengan pedang di Guangming Ding. Setelah 
+melihat kecantikan Zhou Zhiruo, ia lalu menggunakan kesempatan untuk mempermainkannya. Saat ini setelah melihat kecantikan 
+alamiah Sikong Jiumei, ia langsung memahami apa yang mendorong Lu Xian memusuhinya saat itu. Dalam hati ia tertawa. 
+Sekarang rasanya peristiwa itu sudah lama sekali berlalu, dan ia sangat menyesali tindakannya.
+
+Lamunannya buyar ketika Xu Da datang bersama enam orang prajurit muda. Ia berkata, "Xu Dage, tempat ini perlu dijaga. 
+Jangan biarkan orang sembarangan masuk dan duduk di tahta itu."
+
+Xu Da menoleh kepada enam prajurit muda itu dan berkata, "Kalian lihat, tempat ini perlu dibersihkan setiap hari. 
+Biarkan para petugas masuk dan bekerja sampai selesai. Tapi jangan biarkan orang lain masuk, apalagi sampai duduk di situ!
+Mengerti?"
+
+Keenam orang itu serempak mengiyakan. Lalu Xu Da menempatkan mereka di tiga pintu yang ada di ruangan itu. Dan menyuruh 
+mereka mengatur sendiri giliran jaga.
+
+Mereka menutup pintu ruangan itu, lalu berjalan mengitarinya dari luar. Xu Da bertanya, "Jadi kalian akan tinggal di sini?"
+
+"Untuk sementara ya," kata Zhao Min. "
+
+
 
 
 
