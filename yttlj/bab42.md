@@ -618,13 +618,17 @@ melarikan diri ketika diganggu oleh anak laki-laki majikan mereka, dan ditolong 
 yang secara kebetulan lewat di dekat rumah itu. Setelah mengalami beberapa masalah lain, akhirnya mereka bertemu 
 dengan Ma Xiuying, dan sejak itu mereka mengikutinya.
 
-Zhou Zhiruo punya perhatian khusus kepada kedua anak ini. Masing-masing bernama Chen Shuang, yang selalu dipanggil Shuang'er, 
+Zhou Zhiruo punya perhatian khusus kepada kedua anak ini. Masing-masing bernama Murong Shuang, yang selalu dipanggil Shuang'er, 
 dan yang lain bernama Sikong Jiumei. Keduanya punya kecantikan yang sangat alamiah, dan anak-anak perempuan yang lain 
 banyak yang merasa iri kepada mereka karena hal ini. Karena merasa senasib dan seperjuangan, mereka berdua adalah sahabat baik.
 
 Ayah Sikong Jiumei bernama Sikong Ma, seorang buruh tani yang bekerja bagi mantan bangsawan Dinasti Song, sebelum akhirnya 
 mengikuti keluarga Toqto'a. Ia membantu Toqto'a di dalam proyek Sungai Kuning, karenanya Sikong Jiumei mendengar banyak cerita tentang 
 keluarga Toqto'a, yang bukan semuanya diketahui umum. 
+
+Shuang'er sebatang kara sejak kecil. Seorang pelayan wanita di rumah majikannya secara kebetulan melihat Shuang'er 
+sedang mengemis di pasar, lalu mengajaknya pulang, dan memohon kepada majikan mereka supaya Shuang'er boleh tinggal 
+di situ.
 
 Zhou Zhiruo secara kebetulan mendengar Sikong Jiumei sedang berdebat sengit dengan Lu Xian dan Lingshan tentang 
 orang-orang Mongolia. Di satu pihak, karena orang tua mereka tewas dalam banjir besar akibat meluapnya Sungai Kuning, 
@@ -1112,7 +1116,7 @@ malapetaka di kemudian hari.
 
 Meskipun tidak kecil, tetapi istana itu tentu saja tidak bisa dibandingkan dengan istana Kekaisaran Dinasti Yuan 
 di Dadu, atau istana Dinasti Song di Kaifeng yang sudah terguling. Menurut perkiraan Zhao Min, tempat itu kira-kira 
-seluas sepuluh kali lipat dari markas yang mereka tempati di Xiangyang sekarang. Beberapa ruangan tampak seperti 
+sepuluh kali lipat dari luas markas yang mereka tempati di Xiangyang sekarang. Beberapa ruangan tampak seperti 
 ditinggalkan secara terburu-buru, tetapi di bagian lain tampak sangat rapi seolah tak tersentuh. Secara keseluruhan 
 hampir semua isi tempat ini masih lengkap seperti sediakala.
 
@@ -1183,14 +1187,129 @@ mereka mengatur sendiri giliran jaga.
 
 Mereka menutup pintu ruangan itu, lalu berjalan mengitarinya dari luar. Xu Da bertanya, "Jadi kalian akan tinggal di sini?"
 
-"Untuk sementara ya," kata Zhao Min. "
+"Untuk sementara ya," kata Zhao Min. "Ini memang sangat memudahkan kita. Di sini kita tidak punya tempat yang bisa dijadikan 
+markas tetap, jadi anggap saja istana ini adalah markas kita. Kukira Xu Shouhui tidak akan kembali ke sini. Dan lagi, tempat ini 
+memang paling aman untuk menyembunyikan keluarga Chen Youliang itu, mereka tidak akan mengira bahwa kita akan ke sini. Kau sudah 
+menemukan sisa anak buahnya?"
 
+"Belum," kata Xu Da. "Tapi sisa lima ratus orang anak buahku di luar sana selalu berpatroli. Jadi cepat atau lambat 
+mereka pasti akan tertangkap."
 
+"Hm," kata Zhao Min. "Berarti kau menempatkan lebih dari seribu orang di sini?"
 
+"Ya," kata Xu Da. "Tapi lima ratus orangku yang di luar semuanya adalah pilihan, aku yang melatih mereka sendiri. 
+Karena itu kita bisa menangkap tujuh puluh orang itu semudah menangkap tikus."
 
+Zhao Min berkata dengan muka serius, "Kalau begitu aku akan... Ya?" Seorang prajurit mendatangi mereka untuk melapor 
+kepada Xu Da.
 
+"Lapor, Komandan! Seorang pria sedang menunggu di pintu gerbang sambil membawa kereta. Dia menyerahkan surat ini 
+untuk salah satu dari Furen." katanya sambil menyerahkan sebuah gulungan kertas.
 
+Zhao Min mengambil gulungan kertas itu, lalu membacanya. Ternyata itu adalah sebuah laporan tahunan, yang dilengkapi 
+dengan daftar nama-nama berikut perincian panjang, dan diakhiri dengan sejumlah kesimpulan. Ia melihat stempel yang 
+tertera di atas nama orang yang menandatangani surat itu adalah resmi. 
 
+Ia kemudian menggulung kembali surat itu, dan berkata kepada Sikong Jiumei, "Jiumei, antarkan ini kepada Furen! Katakan 
+bahwa aku sedang memeriksa uang yang dibawa. Sebentar lagi petugas akan mengantarnya ke situ."
+
+Setelah Sikong Jiumei pergi, Xu Da yang masih terpesona bertanya, "Uang?"
+
+"Betul," kata Zhao Min sambil tersenyum. "Aku baru memikirkan cara untuk menghasilkan uang bagi tempat ini. Sekarang 
+uangnya mendatangi kita! Rupanya ini dari pejabat setempat. Dia pasti melihat kita bergerak memasuki istana, lalu 
+menarik kesimpulan bahwa Jiaozhu sudah mendudukinya. Sekarang dia secara sukarela mengirimkan segala laporannya ke sini, 
+berikut uangnya!"
+
+Xu Da tertawa terbahak-bahak, dan Lu Xian ikut cekikikan mendengar kesimpulannya.
+
+"Aku heran," kata Xu Da. "Kenapa mereka tidak mengikuti Xu Shouhui pergi ke Jiangxi?"
+
+Zhao Min berpikir sejenak, lalu berkata, "Pasti sebagian dari mereka mengikutinya ke Jiangxi. Tapi orang yang baru 
+mengirim laporan ini tidak yakin bahwa Xu Shouhui masih akan bertahan sebagai kaisar, karena itulah ketika melihat kita 
+masuk ke istana, dia segera berpaling ke pihak kita!"
+
+Ia berpaling kepada Lu Xian. "Xian'er, kau ikut dengan Komandan Xu! Xu Dage, kau pastikan bahwa kita memang menerima sejumlah 
+ini." Ia menulis sebuah angka di tanah menggunakan ranting pohon. "Setelah itu suruh anak buahmu membantu Xian'er membawa 
+semuanya ke perpustakaan. Xian'er sudah tahu tempatnya. Katakan kepada kurir itu bahwa kita sudah menerima laporannya, dan 
+akan meneruskannya kepada Kaisar."
+
+"Siap!" 
+
+Setelah keduanya pergi, Zhao Min bergegas menuju ke perpustakaan untuk menemui Zhou Zhiruo. Ketika tiba di situ, 
+ia melihat Zhou Zhiruo hanya didampingi oleh Jing'er. Ia bertanya, "Kemana yang lain?" 
+
+"Aku menyuruh Jiumei dan Shuang'er memeriksa semua tempat yang belum kita datangi," kata Zhou Zhiruo. "Lingshan 
+sedang mengatur teman-temannya yang akan bertugas di dapur. Kita bisa segera memakai dapur istana ini. Persediaan beras 
+ternyata masih banyak, begitu juga biji-bijian dan tepung terigu. Tadi aku juga menyuruhnya membeli semua bahan makanan 
+yang tidak ada di sini. Setelah ini kita bisa makan malam, meskipun sudah terlambat."
+
+Zhao Min baru menyadari bahwa perutnya lapar. Ia tertawa, lalu berkata, "Aku memang sudah sangat lapar. Jing'er, 
+bukankah tadi kau membawa makanan dari penginapan?"
+
+Jing'er berkata sambil menunjuk ke arah meja di belakangnya, "Hanya tersisa sedikit buah-buahan ini. Kalau Furen mau, 
+aku akan menyuruh orang membeli bakpao di luar. Kelihatannya makan malam kita masih agak lama."
+
+"Tidak perlu," kata Zhao Min sambil mendatangi meja itu dan mengambil sebuah pisang.
+
+Lu Xian masuk bersama beberapa pengawal yang mengangkat tiga buah peti besi yang berat. Ia berkata, "Furen, semuanya 
+ada di sini." Ia menyuruh pengawal membuka tutup peti.
+
+Di dalamnya penuh dengan uang perak dan emas sampai ke atas. Di setiap peti ada beberapa lembar kertas berisi catatan.
+
+"Kalian menemukan gudang atau tempat lain yang bisa dipakai untuk meletakkan semua ini?" tanya Zhao Min.
+
+"Di sebelah kanan ruangan ini penuh dengan peti yang berisi peralatan dapur," kata Jing'er. "Mungkin bisa kita 
+pakai untuk sementara."
+
+Zhou Zhiruo berkata, "Baik, bawa semuanya ke situ! Pastikan ruangan itu selalu dalam keadaan terkunci, dan kau yang 
+menyimpan kuncinya."
+
+Jing'er menyuruh para pengawal pergi bersamanya sambil membawa semua peti itu ke ruangan yang dimaksud.
+
+Tiba-tiba Shuang'er dan Sikong Jiumei berlari memasuki ruangan sambil tersenyum lebar. Mereka berusaha mengatur nafas 
+dan saling mendahului melapor, "Furen, Furen!"
+
+"Ada apa?" tanya Zhou Zhiruo sambil tertawa. "Kalian menemukan harta karun?"
+
+Shuang'er berkata, "Kami baru menemukan pakaian wanita yang sangat mewah. Kelihatannya itu disiapkan untuk seorang 
+permaisuri atau selir kaisar. Semuanya masih baru, belum pernah dipakai. Dan banyak juga seragam untuk para pelayan 
+perempuan dan laki-laki, semuanya juga belum pernah dipakai. Pakaian yang mewah itu tampaknya sangat pas untuk Furen. 
+Sayangnya tidak ada yang cocok untuk Xiao Furen."
+
+Zhao Min tertawa terbahak-bahak. Ia berkata, "Mungkin aku akan meminjam baju perang dari pasukan Xu Da."
+
+"Sebetulnya itu juga ada," kata Shuang'er lagi. "Dan ukurannya sangat pas untuk Xiao Furen, tapi mungkin itu untuk 
+laki-laki."
+
+Zhou Zhiruo bertanya, "Apa lagi yang kalian temukan?"
+
+"Ada dua buah kursi yang mirip singgasana, tapi agak lebih kecil dari yang tadi kita lihat di ruangan besar itu," jawab 
+Sikong Jiumei. "Kursi itu masih baru. Kelihatannya kedua kursi itu sangat pas jika diletakkan di sebelah kiri-kanan 
+singgasana yang tadi kita lihat."
+
+Zhou Zhiruo melirik Zhao Min dengan pandangan bertanya.
+
+"Ini agak aneh," kata Zhao Min. "Kita tidak pernah mendengar bahwa Xu Shouhui punya seorang permaisuri, atau bermaksud 
+mengangkat seorang permaisuri. Kalau selir, mungkin ada."
+
+Sebuah ide melintas di benak Zhou Zhiruo. Ia bertanya, "Hanya dua?"
+
+"Yang kami lihat memang hanya ada dua di situ," jawab Sikong Jiumei. "Tapi masih ada beberapa tempat yang belum kami 
+periksa."
+
+"Kalian pastikan dulu. Periksa baik-baik ruangan lain. Rasanya ini penting," kata Zhou Zhiruo. "Kalau lewat di ruangan 
+sebelah, suruh Jing'er segera kemari!"
+
+"Apa yang sedang kau pikirkan?" tanya Zhao Min setelah kedua gadis itu pergi.
+
+Kening Zhou Zhiruo berkerut. "Apa mungkin ini ulah Chen Youliang?" katanya, seolah sedang bicara sendiri.
+
+"Rasanya bukan," kata Zhao Min. "Dia tidak punya peluang untuk membawa semua itu ke sini."
+
+Jing'er masuk bersama dengan Lingshan, yang segera berkata, "Furen, makan malam sudah siap."
+
+Zhou Zhiruo menggulung surat yang tadi ditulisnya, lalu berkata, "Jing'er, segera kirimkan surat ini ke Xiangyang. 
+Mungkin kau harus melihat bagaimana Xiao Furen melepaskan burung itu, setelah itu kau melakukannya sendiri."
 
 
 
