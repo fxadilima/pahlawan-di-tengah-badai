@@ -306,10 +306,79 @@ kami semua pasti akan membantumu."
 
 Zhang Wuji berkata, "Terima kasih, Yin Liushu, Wuji pasti mengingat semua nasihatmu."
 
-
+Malam itu mereka semua begitu bersemangat, dan membahas perkembangan baru di Hanyang sampai lewat tengah malam. Bei Jinyi menyuruh para pelayan 
+membuat makanan kecil untuk menemani diskusi itu.
 
 ***
- 
+
+[^shaobing]: Shaobing (烧饼) adalah roti bundar pipih, yang umumnya bertabur wijen di bagian atasnya. Di dalamnya bisa diisi bebagai jenis _stuffing_, atau bisa jadi kosong.
+
+
+Sarapan pagi Yin Li di Kaifeng hari itu adalah mie kuah dengan daging domba yang pedas dan berbumbu. Ia makan dengan lahap, berkali-kali memuji 
+kelezatan makanan itu. Ia memperhatikan Ki Seung Nyang yang sedang asyik membaca surat dari Xiangyang yang baru diterimanya, sambil makan 
+beberapa jenis makanan ringan dan minum secangkir susu.
+
+Tampaknya ia sangat senang membaca surat itu. Beberapa kali ia menganggukkan kepala sambil bergumam, "Hm!" lalu menerskan bacaannya. 
+Didorong rasa penasaran, Yin Li mengintip apa yang sedang dibacanya, tapi ia tidak mengenali siapa yang menulis surat itu, jadi ia lalu kembali 
+pada makanan di atas meja. Tiga potong shaobing[^shaobing] yang ada di hadapannya sungguh menggoda. Tanpa malu-malu ia mengambil sepotong dan 
+mulai menggigitnya. Ternyata di dalamnya berisi kacang merah. Ia makan perlahan-lahan sambil minum susunya. 
+
+Ki Seung Nyang meletakkan surat yang sudah selesai dibacanya di atas meja. Melihat mangkuk Yin Li sudah kosong, ia berkata, "Kalau masih lapar, 
+habiskan saja shaobing itu. Aku akan memesan lagi lainnya."
+
+Yin Li menggeleng. "Shaobing dan mie itu sudah cukup," katanya. "Aku hanya menunggu Bibi selesai membaca surat."
+
+"Kau ingin tahu apa isi surat itu?" tanya Ki Seung Nyang. Ia mendorong surat itu ke arah Yin Li.
+
+Yin Li membacanya, lalu bersiul kaget sambil berkata, "Zhou Jiejie dan Minmin menduduki istana?"
+
+Ki Seung Nyang hanya mengangguk sambil tersenyum tipis, sementara Yin Li meneruskan bacaannya sambil menggigit roti.
+
+Ia bertanya, "Menurutmu tindakan mereka benar atau salah?"
+
+"Aku tidak tahu," jawab Yin Li. "Menurutku kalau mereka tidak ke situ, pasti ada orang lain yang akan ke situ. Kalau istana itu ditinggalkan, 
+maka yang datang biasanya orang jahat."
+
+"Hm, kau benar," kata Ki Seung Nyang. "Kalau tidak ada pemerintah, maka yang berkuasa adalah yang terkuat, dan biasanya bandit. Menurutmu apa yang 
+bisa terjadi setelah ini?"
+
+"Pasti akan ada banyak orang yang ingin merebut istana itu," jawab Yin Li.
+
+Ki Seung Nyang tertawa. "Jadi itu yang kau perhatikan?" tanyanya. "Coba baca lagi selanjutnya. Ternyata yang terjadi adalah, orang mulai mengirimkan 
+laporan dan uang kepada mereka."
+
+"Aah, Bibi benar!" kata Yin Li sambil menepuk lututnya sendiri. "Apa berarti pejabat lainnya juga akan berbuat sama?"
+
+"Kalau saat ini tidak, maka kita harus membuat mereka melakukannya," kata Ki Seung Nyang sambil tersenyum. "Yang perlu kita bantu adalah membuat 
+mereka percaya bahwa Zhou Zhiruo mampu mengelola kota itu dengan baik!"
+
+Ia mengambil kuas dan sehelai kertas kosong, lalu mulai menulis.
+
+```text
+
+Wuji,
+
+Rakyat Hanyang meminta kalian bekerja bagi mereka, 
+wujudkan harapan mereka, kirimkan pasukanmu untuk memperkuat Hanyang.
+Biarkan tetanggamu berpikir ribuan kali sebelum menyerang.
+Jika pengelola kota itu berpihak kepada kalian, 
+maka kita tahu kemenangan sudah di tangan.
+Jika Bozhou tidak mengusik Hanyang, berarti mereka akan terus ke Kaifeng, 
+dan kita jalan seperti semula.
+Jika sebaliknya, maka dari Hanyang mereka harus berarak keluar menuju Kaifeng, 
+dan kita tetap menang. 
+Kau sendiri harus tetap di Xiangyang.
+
+Bibi Qi
+
+```
+
+
+
+
+
+
+
 
 
 
