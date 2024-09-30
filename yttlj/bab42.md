@@ -64,18 +64,12 @@ kedatangannya diketahui orang lain."
 Zhang Wuji berkata, "Betul, aku juga berpikir begitu. Kalian punya usul mengenai hal ini? Sebetulnya aku memang ingin bicara 
 sebentar dengan ayah, tidak bisa melalui surat."
 
-Bei Jinyi berkata, "Mengapa tidak bertemu di Nanyang? Itu cukup dekat dengan Hanyang, dan sekarang Minmin sedang menuju 
-ke Hanyang. Mereka berdua bisa mewakilimu, kau tidak perlu ke sana sendiri, dan Wangye juga tidak perlu keluar dari sana."
+Bei Jinyi berkata, "Mengapa tidak bertemu di Nanyang? Nanyang cukup dekat dengan Xiangyang, dan dekat juga dengan Xiangyang, 
+jadi Wangye tidak perlu ke Xiangyang. Kita bertemu di Nanyang."
 
 "Itu ide yang bagus," kata Zhang Wuji. "Kalian punya ide lain?" Ia menoleh kepada Sima Han, Yang Xiao dan Fan Yao.
 
 "Kurasa itu memang yang terbaik," kata Fan Yao.
-
-"Tidak perlu berdua ke Nanyang," sela Yang Xiao. "Harus ada yang tetap di Hanyang. Aku punya firasat sebentar lagi 
-akan terjadi sesuatu di sana."
-
-"Kalau begitu biarkan Minmin yang menemui ayah," kata Zhang Wuji. "Kudanya jauh lebih cepat, jadi dia bisa segera kembali 
-ke Hanyang begitu selesai bicara dengan ayah."
 
 Semua orang beranggapan ide itu adalah yang terbaik. Zhang Wuji segera menyuruh Fan Yao menambahkan pesan supaya Ki Seung Nyang 
 mencegah Chaghan Temur pergi ke Xiangyang.
@@ -431,7 +425,7 @@ Liu Bowen. Ia kemudian mengambil kuasnya, dan menulis surat balasan.
 
 Gege,
 
-Kami mengutus Minmin dan Zhiruo untuk menemui ayah di Nanyang, 
+Kami mengusulkan supaya kami bertemu ayah di Nanyang, 
 supaya ayah tidak perlu datang ke Xiangyang sendiri, 
 yang sangat berbahaya bagi ayah maupun rencana besar kita. 
 Sekitar 5000 orang melarikan diri dari kemah utara, 

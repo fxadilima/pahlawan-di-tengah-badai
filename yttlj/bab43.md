@@ -6,4 +6,8 @@ Ketika rombongan Zhou Zhiruo yang membawa keluarga Chen Youliang sedang menuju k
 Zhang Wuji sedang menikmati makan malam bersama Yang Xiao, Fan Yao, Bei Jinyi dan Sima Han.
 
 
+[^gaharu]: Chen Xiang (沉香)
+[^xiangyang]: Xiang Yang (襄陽)
+
+
 
