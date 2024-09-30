@@ -240,7 +240,7 @@ menemukan Nona Yang ketika mereka dalam pelarian, kalian juga tidak tahu di mana
 "Waktu ayah Shi Bangzhu yang sekarang tewas di tangan Cheng Kun dan Chen Youliang, kami bahkan tidak tahu. Entah bagaimana 
 Shi Furen bisa menemukan Nona Yang saat itu," jawab Sima Han.
 
-"Berarti sebetulnya Shi Hongsi tahu di mana dia berada," kata Zhang Wuji. "Masa..."
+"Berarti sebetulnya Shi Hongshi tahu di mana dia berada," kata Zhang Wuji. "Masa..."
 
 Kalimatnya terputus. Saat itu ia melihat Zhou Zhiruo tiba-tiba terisak, lalu berkata, "Kenapa sih kau begitu 
 ingin menemukan Nona Yang ini?"
