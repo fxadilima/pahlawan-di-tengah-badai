@@ -954,7 +954,7 @@ Tiba-tiba Tajkis berkata, "Kalian tahu apa yang kupikirkan saat ini?"
 Yang Xiao memandangnya dengan curiga. "Kurasa rencanamu harus ditunda..."
 
 "Justru tidak boleh ditunda," sela Tajkis. "Sekarang inilah kesempatan yang paling bagus." Ia merendahkan suaranya,
-dan mengajak yang lain untuk mendekat, "Kita langsung ke Dadou malam ini juga."
+dan mengajak yang lain untuk mendekat, "Kita langsung ke Dadu malam ini juga."
 
 Fan Yao hampir berteriak. "Kau gila ya?"
 
@@ -1235,7 +1235,7 @@ Peng Yingyu dengan cepat menghabiskan bakpaonya, dan berkata sambil tertawa, "Pi
 ada di ibukota ini, apalagi setelah tahu kalian membuka sebuah kedai."
 
 "Buddha memberkati kami," jawab Tajkis. "Itu semua karena doa Dashi. Semuanya ada di depan mata tanpa usaha." Ia kemudian
-memasang muka lebih serius. "Betulkan Dashi terkejut melihat kami?"
+memasang muka lebih serius. "Betulkah Dashi terkejut melihat kami?"
 
 Tawa Peng Yingyu menjadi lebih keras mendengar pertanyaan Tajkis. "Mata Tajkis ternyata memang jeli," katanya. "Kau
 benar, Pinsheng sengaja mencari kalian di sini. Beberapa hari yang lalu Pinsheng kebetulan bertemu dengan seorang anggota
@@ -1361,7 +1361,7 @@ Ki Seung Nyang bertanya, "Apa yang diceritakan mengenai Goryeo?"
 meneliti beberapa bagian sejenak. "Tapi ini terlalu panjang untuk diceritakan sekarang. Kita perlu waktu agak lama
 untuk menyusunnya menjadi tulisan dalam bahasa Han yang mudah dibaca orang. Sepertinya nama ini..." Ia menunjuk 
 salah satu kelompok karakter di dalam dokumen itu. "adalah nama Raja Chungnyeol..." Ia mengerutkan alisnya tanda sedang
-berpikir keras, sebelum melanjutkan, "Saat Kubilai menaklukkan Goryeo, Raja Chungneol yang saat itu belum naik tahta
+berpikir keras, sebelum melanjutkan, "Saat Kubilai menaklukkan Goryeo, Raja Chungnyeol yang saat itu belum naik tahta
 melamar salah satu putri Kubilai Khan untuk menjadi istrinya, dan Kubilai setuju. Sejak itu raja-raja Goryeo diharuskan
 menikahi keluarga Dinasti Yuan, dan mengangkat wanita yang ditunjuk itu menjadi permaisuri."
 
@@ -1380,7 +1380,7 @@ memenuhi kewajiban politik."
 
 Tajkis melipat catatan yang sedang dibacanya dengan rapi, lalu membungkusnya baik-baik dengan kain. Ia berkata,
 "Kita harus menyisihkan waktu untuk menerjemahkan tulisan ini ke dalam bahasa Han, dan berusaha mencari sisa tiga
-buku dari Jawi Al-Tawarikh itu."
+buku dari Jami Al-Tawarikh itu."
 
 Mereka semua tercengang mendengar kalimat terakhir itu. "Masih ada _tiga_ buku lagi selain ini?"
 
@@ -1404,7 +1404,7 @@ ke Guangming Ding."
 kungfu. Kita akan menerjemahkan tulisan ini ke dalam bahasa Han dan Goryeo sekaligus!"
 
 Ki Seung Nyang bertepuk tangan dengan gembira. Sejak tadi uraian Tajkis telah membangkitkan rasa ingin tahunya, dan 
-sekarang masih ditambah dengan belajar kungfu dan pergi ke Guangming Ding bersama mereka semua. 
+sekarang masih ditambah dengan belajar kungfu, lalu pergi ke Guangming Ding bersama mereka semua. 
 
 "Pinsheng ingin ikut ke Guangming Ding bersama kalian, tapi saat ini ada masalah mendesak yang harus Pinsheng selesaikan
 di Hangzhou[^hangzhou]," kata Peng Yingyu sambil merangkapkan kedua telapak tangannya.
@@ -1416,7 +1416,15 @@ ajaran mereka di luar Guangming Ding, dan hanya akan datang jika ada undangan kh
 menarik tangan Ki Seung Nyang sambil berkata, "Qi Shimei, ayo kita buat bakpao berisi kacang dan bakcang manis berisi
 kedelai sebagai bekal untuk Peng Dashi sebelum berangkat."
 
-"Sebelumnya Pinsheng mengucapkan terima kasih kepada Nona Yin dan Nona Ki," kata Peng Yingyu sambil tersenyum senang.
+"Sebelumnya Pinsheng mengucapkan terima kasih kepada Nona Yin dan Nona Ki," kata Peng Yingyu sambil tersenyum senang. 
+Sejenak ia menatap Ki Seung Nyang dengan penuh perhatian, lalu bergumam sendiri, "Ini agak aneh..."
+
+Ki Seung Nyang cekikikan, lalu bertanya, "Kenapa, Dashi? Kau masih ingin memesan makanan lain?"
+
+Tetapi Peng Yingyu berkata, "Tadi Pinsheng merasakan aura 'Sang Naga' terpancar keluar tubuh dari Nona Ki."
+
+Tajkis dan Ki Seung Nyang tertawa terbahak-bahak. "Rasanya Dashi sedang bermimpi," kata Ki Seung Nyang. "Mana ada binatang yang bernama naga. 
+Aku yakin naga itu hanya cerita rakyat untuk membohongi anak kecil."
 
 Tajkis tersenyum sambil berkata, "Kita berangkat malam ini juga. Tapi aku juga ingin membawa bekal banyak-banyak untuk
 menemani perjalanan panjang kita ke Guangming Ding!"
@@ -1430,7 +1438,7 @@ Para anggota Panji Lima Elemen Ming Jiao juga bersenjata lengkap seperti layakny
 
 Di pintu gerbang barat, mereka mengatakan bahwa Tajkis adalah putri bangsawan Persia yang sedang berkunjung ke ibukota 
 untuk menyampaikan pesan dari ayahnya. Sekarang dalam situasi darurat akibat serangan dari utara, Tajkis harus segera
-meninggalkan Dadou untuk kembali ke barat.
+meninggalkan Dadu untuk kembali ke barat.
 
 Semua orang tahu bahwa Ilkhanate Persia adalah wilayah Hulagu Khan, adik kandung dari Kubilai Khan, tetapi sebenarnya
 saat ini Dinasti Yuan maupun Karakorum Mongolia sudah nyaris kehilangan kendali atas Persia. Meskipun begitu, Ilkhanate
@@ -1448,7 +1456,7 @@ Dalam hati Yang Xiao berpikir, "Kau sedang mencari masalah sendiri." Tapi ia ber
 Tuan Putri."
 
 Para pengawal itu memberi isyarat supaya mereka segera lewat. Mei Jian yang diam-diam memungut sebutir kerikil mendekatkan
-kudanya ke dekat kereta yang membawa Tajkis, lalu memberikan kerikil itu kepadanya lewat jendela.
+kudanya ke kereta yang membawa Tajkis, lalu memberikan kerikil itu kepadanya lewat jendela.
 
 Setelah kereta Tajkis lewat, tiba-tiba pengawal yang sebelumnya berkomentar merasa lutut kanannya kesemutan, dan sebelum
 menyadari apa yang terjadi, ia telah berlutut menghadap ke arah kereta yang sedang berlalu bersama Tajkis. Kawan-kawannya

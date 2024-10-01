@@ -1092,8 +1092,10 @@ Ketika mereka lewat di deretan kios yang menjual bahan-bahan pakaian, mata Ki Se
 antara beberapa petugas Dinasti Yuan yang sedang berdebat dengan salah satu pemilik kios di situ. Ia menarik tangan Yin Li untuk 
 mendekat, dan mengamati apa yang sedang terjadi.
 
-Ia melihat salah satu perwira itu sedang berkata, "Laoban, hari ini kau sungguh harus membayar, karena kami tidak bisa 
+Ia melihat salah satu perwira itu sedang berkata, "Laoban[^laoban], hari ini kau sungguh harus membayar, karena kami tidak bisa 
 lagi menunda laporan kepada atasan kami."
+
+[^laoban]: Lao Ban (老板) kira-kira adalah panggilan yang sama seperti 'Boss!'.
 
 Pemilik kios itu berbisik kepada seorang pegawainya, yang segera masuk, dan tak lama kemudian keluar lagi sambil 
 menyelipkan sesuatu ke tangannya. Pemilik kios itu berkata kepada perwira di hadapannya, "Komandan, saat ini kami sungguh 
@@ -1116,13 +1118,13 @@ masih bersitegang itu. Mereka mendengar pemilik kios itu berkata, "Pajak yang ka
 tidak sanggup membayarnya. Bukankah begitu, Saudara-saudara?" Ia menoleh kepada beberapa pemilik kios lain, yang adalah tetangganya.
 
 Seruannya itu dengan segera didukung beramai-ramai oleh hampir semua orang yang hadir di situ. Beberapa orang dari mereka 
-bahkan mulai memaki-maki Dinasti Yuan, dan mulai mengeluarkan kata-kata kotor untuk memaki kaisar. 
+bahkan mulai memaki-maki Dinasti Yuan, dan mengeluarkan kata-kata kotor untuk memaki kaisar. 
 
 Melihat reaksi ini, para petugas itu dengan segera menghunus goloknya dan berkata dengan lantang, "Hei, hei, hei! 
-Kami tidak ingin ribut, tapi kami harus melaksanakan tugas. Jadi kalau kalian terus memaksa, aku akan terpaksa menggunakan 
-kekerasan untuk menertibkan kalian."
+Kami tidak ingin ribut, tapi kami harus melaksanakan tugas. Jadi kalau kalian terus memaksa, aku akan menggunakan kekerasan 
+untuk menertibkan kalian."
 
-Seorang pria yang bertubuh tegap dan mengenakan ikat kepala merah keluar dari kerumunan dan menghadapi komandan itu 
+Seorang pria yang bertubuh tegap dan mengenakan ikat kepala merah keluar dari kerumunan untuk menghadapi komandan itu 
 sambil menggulung lengan bajunya dan berkata, "Kau kira kami takut melawanmu, hanya karena kalian bekerja sebagai 
 Anjing Pemerintah ya?"
 
@@ -1133,14 +1135,14 @@ Komandan itu berkata, "Tolong jaga kata-katamu. Saat ini juga kami bisa menangka
 Pria bertubuh tegap itu meludah ke tanah, lalu berkata, "Lalu kenapa? Kulihat kau orang Han, tapi kau mau bekerja sebagai 
 anjing bangsa Mongol! Akan kutunjukkan bagaimana seharusnya memperlakukan orang seperti kalian!"
 
-Ucapan itu disambut dengan sorak-sorai oleh para pengunjung pasar yang berkerumun untuk menyaksikan kejadian itu. 
+Ucapannya disambut dengan sorak-sorai oleh para pengunjung pasar yang berkerumun untuk menyaksikan kejadian itu. 
 Komandan itu mulai marah, mukanya memerah, dan ia siap menebas kaki meja di hadapannya, yang digunakan untuk meletakkan 
 barang-barang dagangan kios.
 
-Tepat pada saat itu, Yin Li maju sambil menahan lengan si komandan sebelum golongnya menghantam meja. Secara naluriah, 
+Tepat pada saat itu, Yin Li maju sambil menahan lengan si komandan sebelum goloknya menghantam meja. Secara naluriah, 
 komandan itu berusaha meneruskan gerakannya, tetapi ia terkejut ketika menyadari tangan yang kelihatannya lebih kecil 
 dari tangannya sendiri itu ternyata mencekal pergelangan tangannya dengan sangat kuat, dan telapak tangannya mulai 
-mati rasa. Ketika ia berpaling untuk melihat siapa orang yang dengan berani menghalangi gerakannya, ia lebih kaget lagi 
+mati rasa. Ketika ia berpaling untuk melihat siapa orang yang dengan berani menghalangi gerakannya. Ia lebih kaget lagi 
 ketika menyadari bahwa pemilik tangan itu ternyata hanya seorang gadis muda berusia dua puluhan, yang wajahnya dipenuhi 
 bekas luka. Ia segera menduga bahwa gadis ini pastilah memiliki ilmu silat yang tidak bisa diremehkan.
 
