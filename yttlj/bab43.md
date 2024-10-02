@@ -997,7 +997,7 @@ Ming Yuzhen
 
 "Wah, apa ini?" kata Zhou Zhiruo. "Mereka menyerahkan Hanyang kepada kita?"
 
-Zhao Min tampak sedang berpikir keras sambil membaca surat itu beberapa kali. Setelah beberapa saat ia berkata, "Sekarang kau boleh merasa 
+Zhao Min tampak sedang berpikir keras sambil membaca surat itu berkali-kali. Setelah beberapa saat, ia berkata, "Sekarang kau boleh merasa 
 lega. Surat ini secara jelas menyebutkan bahwa Xu Shouhui sendiri yang menyerahkan Hanyang kepada Wuji Gege. Dengan begitu tidak akan ada 
 masalah bagi kita untuk tinggal di sini. Tapi dua tanda tangan dan uang itu sangat menarik."
 
