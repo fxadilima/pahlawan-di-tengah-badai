@@ -947,6 +947,117 @@ Lingshan tertawa dan berkata, "Sebetulnya Lingshan tidak bisa membuat yang seper
 
 Zhao Min menelan sisa makanan di mulutnya, lalu minum seteguk arak. Ia bertanya, "Ya?"
 
+"Kau belum menjawab pertanyaanku," kata Zhou Zhiruo.
+
+"Oh, aku sudah bilang," kata Zhao Min, tanpa rasa bersalah. Ia menghabiskan sisa bakcangnya, lalu minum lagi seteguk arak, sebelum melanjutkan, 
+"Saat ini tidak akan ada yang menyerang Hanyang. Coba lihat, Liu Futong ingin menyerang Kaifeng, sedangkan Chen Youliang masih di Jiangxi. Siapa yang 
+ingin ke sini?"
+
+"Nyatanya kemarin dia mengirim orang ke sini," kata Zhou Zhiruo.
+
+"Hanya seratus orang goblok," kata Zhao Min lagi. Ia mengambil bakcang kedua, yang tampaknya agak lebih besar. Ia berkata, "Zhou Jiejie, kalaupun 
+kau masih kuatir Chen Youliang akan mengirim orang ke sini, sebaiknya kau makan dulu sekarang. Aku sudah punya rencana untuk mengatasinya. Bagaimana 
+kau bisa melawannya kalau kau tidak makan?"
+
+Akhirnya Zhou Zhiruo mengambil sebuah shaobing bertabur wijen, dan ternyata berisi daging babi. Ia bertanya, "Jing'er, kau mengisinya dengan 
+bahan yang sama seperti bakcang itu ya?"
+
+Jing'er tertawa. "Iya, ini ide Lingshan. Furen suka?"
+
+"Lumayan," kata Zhou Zhiruo. "Jangan lupa membagikan dua makanan ini kepada Tou Furen."
+
+"Mereka memasak makanan mereka sendiri," kata Lingshan. "Tapi kami memang sudah mengantarkan cukup banyak makanan dari kita kepada mereka. 
+Tadi pelayan mereka bilang bahwa Yang Furen dan Lou Furen sudah mulai sembuh. Mereka minta dibuatkan bubur."
+
+"Ah, itu kabar baik," kata Zhou Zhiruo. "Menurut An Shifu bubur itu juga harus dihaluskan."
+
+"Sudah kami beritahu, dan kami juga membantu pelayan mereka membuatnya," kata Lingshan.
+
+Lu Xian masuk bersama Shuang'er sambil membawa dua buah kotak. Ia berkata, "Furen, barusan ada tamu dari Jiangxi."
+
+"Apa?" kata Zhou Zhiruo kaget. "Suruh mereka tunggu di pintu gerbang!"
+
+"Hanya satu orang," jawab Lu Xian. "Dia sudah pergi. Hanya menitipkan sebuah surat dan dua kotak ini untuk Furen."
+
+Mereka membuka tutup kotak, dan ternyata isinya deretan uang emas. Zhou Zhiruo buru-buru membaca surat yang diserahkan oleh Lu Xian.
+
+```text
+
+Yang Terhormat Zhou dan Zhao Furen,
+
+Kami mohon maaf karena tidak sempat mengirimkan laporan tepat waktu.
+Dengan ini Kaisar secara resmi menyerahkan pengelolaannya Hanyang kepada Zhang Jiaozhu.
+Perubahan situasi menyebabkan kami terpaksa tinggal di Longxing.
+Semua serah terima yang berkaitan akan kami kirimkan setelah ini.
+
+Atas nama Penasihat Agung Tianwan, Zou Pusheng
+Ming Yuzhen
+
+```
+
+"Wah, apa ini?" kata Zhou Zhiruo. "Mereka menyerahkan Hanyang kepada kita?"
+
+Zhao Min tampak sedang berpikir keras sambil membaca surat itu beberapa kali. Setelah beberapa saat ia berkata, "Sekarang kau boleh merasa 
+lega. Surat ini secara jelas menyebutkan bahwa Xu Shouhui sendiri yang menyerahkan Hanyang kepada Wuji Gege. Dengan begitu tidak akan ada 
+masalah bagi kita untuk tinggal di sini. Tapi dua tanda tangan dan uang itu sangat menarik."
+
+"Sepertinya aku pernah mendengar nama ini — Zou Pusheng," kata Zhou Zhiruo. 
+
+"Entah Wuji Gege atau salah satu orang Ming Jiao yang menyebutnya," kata Zhao Min. "Dia salah satu pendengar setia Peng Yingyu, boleh dibilang 
+adalah muridnya. Jadi Xu Shouhui sebelumnya juga menolak nasihatnya tentang Chen Youliang. Ini berarti saat ini Xu Shouhui sudah menyadari 
+kekeliruannya."
+
+"Dan uang itu maksudnya sebagai isyarat bahwa dia ingin memperbaiki hubungannya dengan Ming Jiao?" tanya Zhou Zhiruo.
+
+"Kurasa bukan," jawab Zhao Min. "Coba lihat, orang bernama Ming Yuzhen ini siapa?"
+
+Zhou Zhiruo berusaha mengingat-ingat, tetapi beberapa saat kemudian ia menggelengkan kepalanya. "Aku tidak pernah mendengar Wuji Gege 
+menyebutkan namanya. Mungkin dia salah satu orang kepercayaan Xu Shouhui atau Zou Pusheng."
+
+"Kau benar," kata Zhao Min. "Aku juga tidak pernah mendengar namanya. Tapi isi surat itu sama sekali tidak menyinggung soal uang itu."
+
+"Maksudmu uang itu sebenarnya diselipkan oleh Ming Yuzhen sendiri?" tanya Zhou Zhiruo.
+
+"Kemungkinan besar begitu," kata Zhao Min lagi. "Sejak pagi kita sibuk menerima tamu, tapi kurir itu ternyata sama sekali tidak menunggu 
+kita. Dia langsung pergi begitu saja. Bukankah ini aneh? Aku bahkan merasa jangan-jangan dia sendiri yang mengantarkan semua ini."
+
+Zhou Zhiruo memeriksa surat itu beberapa kali. Ia bergumam, "Surat ini mustinya memang asli. Ada stempel Tianwan di atas tanda tangan itu."
+Setelah berpikir beberapa saat lagi, ia lalu bertanya, "Apa mungkin stempel ini palsu? Aku tidak pernah melihat stempel mereka. Kau pernah?"
+
+"Aku juga tidak pernah, tapi kita bisa menyelidikinya dengan mudah," kata Zhao Min. "Suruh saja Xu Da mendatangi beberapa pejabat yang 
+bisa mengenalinya. Mereka pasti tidak akan berani berbohong."
+
+"Kalau begitu surat ini betul-betul asli," kata Zhou Zhiruo.
+
+"Dan aku sangat yakin si pengantar uang dan surat ini adalah seorang militer, atau setidaknya pengawal pribadi yang sangat dipercaya 
+oleh Xu Shouhui maupun Zou Pusheng," kata Zhao Min. "Mereka sedang berada di Longxing[^longxing]. Jika ingin mengantar surat semacam ini 
+kepada kita, dan tidak ingin diketahui oleh Chen Youliang, maka yang paling masuk akal adalah mengutus orang semacam militer, pengawal, 
+atau bahkan seorang pesilat."
+
+[^longxing]: Longxing adalah Nanchang di dunia modern. Kota ini berdekatan dengan Danau Poyang.
+
+"Dan _mengapa_ Ming Yuzhen ingin mendekati kita, dengan cara mengirimkan upeti semacam ini?" tanya Zhou Zhiruo. "Bukankah ini di luar 
+sepengetahuan atasannya?"
+
+Mereka berdua tiba pada kesimpulan yang sama. Akhirnya Zhou Zhiruo yang mengatakannya, "Berarti Ming Yuzhen ini punya rencana tersembunyi."
+
+Zhao Min segera menyuruh Lu Xian mengambil alat-alat tulis, dan berkata, "Jing'er, simpan baik-baik kedua kotak ini! Beri tanda dengan nama 
+Ming Yuzhen di atasnya."
+
+Jing'er dan Shuang'er pergi untuk menaruh kedua kotak itu di tempat penyimpanan yang sudah mereka rapikan.
+
+Zhao Min dengan cepat menulis sebuah surat pendek, lalu berkata, "Kita harus segera mengirimkan surat Xu Shouhui ini bersama surat kita 
+ke Xiangyang. Mungkin di situ mereka bisa menemukan orang yang mengenal Ming Yuzhen, dan ikut memikirkan surat aneh ini."
+
+***
+
+
+
+
+
+
+
+
 
 
 
