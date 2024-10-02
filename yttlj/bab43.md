@@ -673,11 +673,279 @@ bahwa Zhang Wuji sebenarnya tidak mengerti apa-apa tentang ajaran Ming Jiao. Sel
 tindakan Miejue Shitai menghabisi begitu banyak orang di Guangming Ding, maupun cara Wei Yixiao menghisap darah manusia sampai mati.
 Jadi akhirnya ia mendengarkan juga cerita Ki Seung Nyang dengan tekun, sambil menunggu-nunggu bagian cerita yang menarik hatinya.
 
+Ki Seung Nyang melanjutkan ceritanya, "Setelah berhasil mengumpulkan banyak pengikut, Peng Yingyu akhirnya menemukan sosok yang dicarinya 
+dalam diri Xu Shouhui, jadi atas anjurannya Xu Shouhui kemudian diangkat menjadi Kaisar Tianwan. Peng Yingyu juga mengangkat salah seorang 
+pengikut setianya yang lain, yaitu Zou Pusheng, menjadi penasihat Xu Shouhui. Ia sendiri kembali ke Ming Jiao, dan hanya kadang-kadang muncul 
+untuk memberikan nasihat jika diperlukan."
 
+Ia menarik nafas panjang sebelum melanjutkan, "Di wilayah lain, yang terjadi pada Han Shantong kira-kira sama. Tetapi Han Shantong memilih sendiri 
+penasihatnya, yaitu Liu Futong, yang sebelumnya adalah seorang pejabat Dinasti Yuan." Ia kembali menatap kedua wanita itu secara bergantian 
+sebelum bertanya, "Menurut kalian, siapa pemimpin sebenarnya di kedua wilayah itu?"
 
+Ding Minjun segera menjawab, "Peng Yingyu!"
 
+Yin Li tampak ragu, tetapi akhirnya berkata, "Zou Pusheng dan Liu Futong."
 
+Ki Seung Nyang berkata, "Pendapat kalian masing-masing ada benarnya. Sekarang kita abaikan dulu mengenai Xu Shouhui. Cerita tentang Han Shantong 
+agak lebih mudah dipahami, karena kemudian ia sendiri meninggal. Saat itu putranya, Han Lin'er, masih kecil, dan mereka mengangkatnya menjadi 
+Kaisar, untuk menduduki tahta ayahnya. Peng Yingyu sekarang sudah meninggal. Yang ada hanya Liu Futong. Apa yang kalian lihat sekarang?"
 
+"Berarti Liu Futong-lah yang sesungguhnya berkuasa," kata Ding Minjun.
+
+"Memang betul," kata Yin Li. "Tapi situasinya agak lain ketika Han Shantong masih hidup."
+
+"Sekarang kalian mulai memahami dengan baik keadaan yang sebenarnya," kata Ki Seung Nyang.
+
+Diam-diam ia sangat menyukai jawaban Yin Li. Ternyata apa yang diharapkannya dari Yin Li semakin mendekati kenyataan. Ia berkata, "Ah Li, 
+bukankah sekarang ini pertanyaanmu sudah terjawab?"
+
+Yin Li mengangguk. "Aku baru mengerti," kata Yin Li. "Dulu Popo sering menceritakan tentang El Temur dan Jendral Bayan, tapi aku tidak mengerti. 
+Saat Kaisar masih kecil, tentu saja dia tidak bisa mengelola negara, karena itu orang yang mengelolanya adalah El Temur. Begitu juga Han Lin'er setelah 
+ditinggal mati ayahnya, yang berkuasa adalah Liu Futong. Setelah mereka dewasa, tentu saja akhirnya orang-orang ini tidak diperlukan lagi. Jadi mereka 
+tidak bodoh, hanya belum mengerti bagaimana melakukan tugasnya. Sama seperti ayah Han Lin'er, dia juga tidak bodoh."
+
+"Tentu saja Han Shantong tidak bodoh," kata Ding Minjun sambil tertawa. "Justru dia sangat cerdik. Kata-katanya itu akan menarik banyak pengikut dari 
+dua sisi yang berbeda. Menjadikan dirinya sendiri titisan Buddha, lalu berikutnya 'Raja Terang' — itu sungguh cerdik! Rakyat memang mudah dipengaruhi 
+dengan cara seperti ini. Karena itulah guruku selalu mengatakan bahwa ajaran Ming Jiao sesat."
+
+Mendengar ucapan Ding Minjun, Ki Seung Nyang tertawa terbahak-bahak. 
+
+Yin Li berkata, "Gurumu membunuh ribuan anggota Ming Jiao dengan Yitian Jian, menurutku dia sendiri juga sesat!"
+
+"Bukannya kau sendiri membunuh ibu tirimu, karena itulah ayahmu ingin membunuhmu? Dengan begitu kau juga sesat!" kata Ding Minjun tak mau kalah.
+
+Ki Seung Nyang tidak mengenal Miejue Shitai secara pribadi, tetapi ia memang sering mendengar sepak terjangnya. Sebaliknya, ia sudah mendengar 
+cerita tentang Yin Li membunuh ibu tirinya sendiri dari Zhou Zhiruo. Ia mengerti apa yang mendorong Yin Li melakukannya. Sementara ia masih 
+berpikir-pikir tentang apa yang harus dikatakannya untuk melerai mereka berdua, Han Lin masuk ke ruang tamu sambil membawa barang-barang yang 
+berasal dari penginapan. Ia kemudian berkata, "Sudahlah! Kalian tidak perlu bertengkar lagi gara-gara masalah itu. Aku punya sesuatu untuk kalian 
+berdua."
+
+Ia lalu berkata kepada Han Lin, "Bawa buku-buku itu ke sini!"
+
+Dari beberapa jilid buku itu, Ki Seung Nyang memilih dua buku yang cukup tebal, lalu memberikannya kepada Yin Li dan Ding Minjun, masing-masing satu. 
+Ia berkata, "Kedua buku itu kutulis sendiri dengan tanganku. Ini adalah hasil terjemahan dari sebuah kitab sejarah yang ditulis oleh penulis 
+Persia, Rashid al-Din. Buku aslinya ditulis dalam bahasa Persia, dan adalah tulisan kuno yang sulit dibaca. Tajkis — maksudku Jinhua Popo — menerjemahkannya 
+ke dalam bahasa Han, dan saat itu kami semua diharuskan menuliskan terjemahan itu dalam bahasa Han. Jadi sementara mendengarkan uraian Tajkis, 
+masing-masing orang menulis dengan kata-katanya sendiri. Dalam hal ini hasil pekerjaan Yang Xiao tentu agak lain dengan tulisanku, meskipun kami 
+mendengar dari sumber yang sama. Bahkan Tajkis sendiri juga harus memeras otak ketika menerjemahkan buku aslinya, karena tulisan kuno itu susah 
+dibaca. Aku ingin kalian membacanya, lalu menuliskan apa saja yang kalian pahami dari kedua buku ini. Aku tidak memaksa kalian membacanya cepat-cepat. 
+Aku justru berharap kalian mengerti, dan mendapatkan sesuatu dari situ. Karena nantinya semua pertanyaan kalian itu, dan juga apa yang kalian perdebatkan 
+barusan, akan terjawab dengan sendirinya setelah kalian memahaminya."
+
+Yin Li biasanya tidak suka membaca buku. Tetapi ketika ia membuka beberapa halaman, dengan segera ia merasa tulisan Ki Seung Nyang itu sangat mudah 
+dipahami, karena menggunakan istilah dan kalimat yang mereka gunakan sehari-hari. Tak terasa ia mulai tertarik dan membaca setengah halaman tanpa bicara.
+
+Ding Minjun tentu saja sudah terbiasa membaca kitab-kitab Miujue Shitai di Emei. Gurunya mengharuskan mereka semua membaca segudang kitab yang 
+seringkali sulit dipahami. Karena itu ia juga langsung tertarik membaca tulisan Ki Seung Nyang.
+
+Untuk sementara keduanya asyik membaca dan perdebatan sengit itu terhenti. Tetapi beberapa saat kemudian Ding Minjun berkata, "Furen, tapi 
+Minjun masih belum mengerti apa hubungan semua yang dikatakan oleh para pejabat itu dengan Zhang Wuji dan Ming Jiao."
+
+"Kita tunggu sampai teman-temanmu yang lain menyelesaikan tugas mereka," kata Ki Seung Nyang. "Sebelum semuanya lengkap, aku sendiri juga masih 
+menduga-duga."
+
+Ia baru selesai bicara, ketika anggota Ming Jiao yang sedang berjaga di luar itu mengetuk pintu, lalu masuk sambil membawa laporan, "Nona Ding, 
+teman-teman kita yang lain sedang menunggu di tepi danau. Mereka ingin segera bertemu."
+
+"Ah, bagus sekali!" kata Ding Minjun dengan gembira. "Suruh mereka kemari."
+
+Sekitar sepuluh orang murid Emei Pai dan sepuluh orang anggota Ming Jiao memasuki ruangan itu tak lama setelah Ding Minjun bicara. Mata Ki Seung Nyang 
+langsung tertarik pada beberapa ekor burung merpati yang mereka bawa. Ia berkata, "Burung-burung itu kalian bawa dari Xiangyang, kan? Suruh Han Lin 
+dan teman-temannya merawat mereka baik-baik! Mulai saat ini kalian semua harus tinggal di rumah ini. Inilah pos kita di Kaifeng."
+
+Ding Minjun bertanya, "Yang lain belum datang?"
+
+"Oh, masih ada yang lain?" tanya Ki Seung Nyang. "Baik, sementara kita menunggu teman-teman kalian yang lain, kalian tulis semua laporan dari 
+masing-masing orang yang kalian datangi itu. Satu nama di kertas tersendiri!"
+
+Ding Minjun memimpin tugas itu, dan minta disediakan lebih banyak kuas dan tinta untuk mempercepat pekerjaan mereka. Karena di rumah itu mereka 
+hanya menemukan dua buah kuas lain yang ditinggalkan oleh pemilik rumah, maka Ki Seung Nyang menyuruh salah seorang pengawalnya yang lain untuk membeli
+lebih banyak di pasar. 
+
+Ding Minjun kemudian memisahkan laporan-laporan itu berdasarkan nama, seperti instruksi Ki Seung Nyang sebelumnya. Pekerjaan itu mereka selesaikan 
+dalam waktu kurang dari satu jam. 
+
+Setelah melihat sekilas hasil kerja mereka, Ki Seung Nyang membaca laporan tentang beberapa orang yang menarik perhatiannya. Kemudian ia 
+meletakkan tiga laporan di tempatnya semula, dan berkata, "Tiga nama ini sudah kukenal. Mereka sering menghadiri rapat bersama Kaisar, tetapi 
+jabatan mereka tidak terlalu tinggi. Mereka semua adalah sekutu dari Bolad Temur, yang berambisi untuk menguasai Majelis."
+
+Ding Minjun terkejut. Ia bertanya, "Berarti mereka sangat berbahaya?"
+
+"Betul," kata Ki Seung Nyang. "Tapi dua orang dari mereka sudah agak lama ingin membelot. Hanya saja, mereka tidak tahu akan berpihak kepada siapa.
+Karena sekarang mereka mendekati Zhang Wuji, maka berarti mereka berharap untuk bekerja sama di masa depan. Saat ini mereka pasti tidak berani 
+mengatakannya terus terang. Jadi menurutku mereka bisa kita kendalikan."
+
+"Yang seorang lagi?" tanya Yin Li.
+
+Ki Seung Nyang memisahkan dua nama yang disebutkan sebelumnya, lalu menunjuk selembar laporan dengan jarinya. Ia menoleh kepada Yin Li dan 
+Ding Minjun sambil berkata, "Mengenai orang ini aku akan membahasnya dengan kalian berdua setelah ini."
+
+Ding Minjun menandai dua laporan, dan memisahkan satunya ke kelompok lain.
+
+An Shubiao masuk ke ruang tamu sambil berkata, "Furen, makan siang sudah siap."
+
+***
+
+Sejak pagi ruang rapat Zhang Wuji di Xiangyang sangat sibuk. Mereka semua bekerja sama dengan Yu Daiyan untuk menggambar peta besar berdasarkan 
+gambar-gambar yang dibuat semalam. Peta itu digambar di atas kain putih yang sangat lebar, dan masing-masing wilayah diwarnai dengan warna merah, 
+kuning, hijau dan biru. Gambar itu juga dilengkapi dengan catatan dan nama-nama yang penting, sehingga orang yang melihatnya lebih mudah memahami 
+apa yang sedang terjadi. 
+
+Ketika Bei Jinyi masuk untuk mengumumkan bahwa makan siang bagi mereka sudah siap, mereka segera menggeser meja ke tempat semula, lalu Zhang Wuji 
+berkata, "Kita makan di sini saja. Bei Shijie, tolong suruh mereka membawanya kemari."
+
+Mereka makan dengan gembira sambil mengamati hasil kerja mereka sejak pagi. Zhang Wuji berkata, "Yu Sanbo, kau membuatnya jadi sangat jelas dan bisa 
+dimengerti semua orang."
+
+"Setidaknya pamanmu ini masih bisa melakukan sesuatu yang berguna untuk membantu kalian," kata Yu Daiyan sambil tersenyum dan menggigit bakpaonya.
+
+Ah Da masuk sambil membawa gulungan kertas kecil dan berkata, "Gongzi, ini surat dari Kaifeng."
+
+Zhang Wuji segera membaca surat dari Ki Seung Nyang dengan penuh perhatian. Isi surat itu membuatnya ia lupa makan nasinya. Ia lalu mengedarkan 
+surat itu kepada semua orang sambil bergumam, "Entah apa maksud Bibi Qi kali ini..."
+
+Sebelum semua orang mengomentari isi surat Ki Seung Nyang, beberapa orang anggota Kai Pang masuk bersama-sama dengan Zhang Songxi yang tampak 
+jelas baru tiba dari Wudang. Sima Han dan Yang Xiao segera bangkit dan meninggalkan makanan mereka untuk melayani laporan yang masuk dari para 
+anggota Kai Pang itu, sementara Zhang Wuji dengan gembira menyambut kedatangan Zhang Songxi.
+
+"Zhang Sibo! Cepat sekali kau tiba di sini!" katanya. "Kami sedang makan siang, sebaiknya Paman juga ikut makan bersama."
+
+Tetapi mata Zhang Songxi langsung tertarik pada gambar besar di sebelah kiri kursi ketua Zhang Wuji. Ia mengamatinya dari jarak sangat dekat 
+dengan penuh perhatian. "Ini sungguh luar biasa," katanya sambil menelusuri garis dari Xiangyang menuju ke Hanyang. "Pantas saja Liting 
+begitu bersemangat. Kurasa sampai sekarang dia belum tidur." Ia menunjuk titik yang melambangkan kota itu dengan telunjuknya sambil 
+melanjutkan, "Menurutku kita harus segera membangun tempat penampungan pengungsi ini baik-baik. Ini adalah kekuatan kita. Dari sini kita 
+bisa membangun kekuatan di sepanjang jalan menuju ke Xiangyang ini."
+
+Yang Xiao dan Sima Han sedang menyusun semua laporan yang baru mereka terima sambil memisahkan semuanya menjadi beberapa kelompok. 
+
+Yang Xiao berkata, "Ini semua adalah laporan yang baru masuk dari beberapa orang yang sedang menyelidiki sumber sumbangan untuk kita di 
+berbagai tempat. Sebagian besar yang baru masuk berasal dari para pendekar Kunlun Pai, dan ada tiga laporan dari Kongtong Pai."
+
+Mereka mulai berkerumun di sekeliling meja itu untuk membaca laporan-laporan yang baru masuk dengan penuh minat. Beberapa laporan dari para pendekar 
+Kunlun Pai yang sedang berada di sekitar Fengxian menyebutkan kekuatiran para penyandang dana itu mengenai seorang militer yang bernama Li Siqi, 
+dan yang sedang berada di sekitar Xi'an menyinggung seseorang yang bernama Zhang Liangbi. Sementara murid Kunlun Pai di kelompok lain melaporkan dari 
+Chongqing tentang orang lain yang bernama Ming Yuzhen. 
+
+Zhang Wuji tidak pernah mendengar semua nama itu, dan ia segera beralih pada laporan dari Kongtong Pai di Jiangnan. Ternyata orang-orang yang 
+berasal dari wilayah yang mereka tangani akhirnya ditemukan kaitannya dengan Nona Yang. Zhang Wuji segera memisahkan sepuluh laporan dari 
+Kongtong Pai yang telah mereka terima itu, lalu berkata, "Semua ini tidak bermasalah sama sekali. Kita tidak perlu memusingkannya."
+
+Mereka baru kembali menikmati makan siang yang sempat tertunda itu setelah menghabiskan waktu lebih dari satu jam untuk memilah-milah 
+semua laporan yang masuk. Zhang Wuji bertanya kepada Sima Han, "Masih adakah sumbangan yang masuk setelah semua orang yang bertugas itu berangkat?"
+
+"Sangat banyak," kata Sima Han. "Kemungkinan besar kita harus mengirim lebih banyak orang ke Henan, karena sebagian besar yang baru masuk 
+berasal dari wilayah itu. Memang ada yang masih di sekitar Kaifeng, tetapi belakangan banyak yang berasal dari tempat yang lebih jauh ke utara."
+
+Setelah berpikir sejenak, Zhang Wuji berkata, "Untuk sementara kau boleh mengirimkan daftar nama yang berasal dari Henan kepada Bibi Qi. 
+Kita tidak punya orang lagi untuk diutus menanganinya. Kurasa..." Ia menoleh kepada Ah Er yang baru masuk, lalu bertanya, "Ada apa?"
+
+"Gongzi, ada laporan lain dari Kaifeng," kata Ah Er.
+
+"Secepat itu?" tanya Zhang Wuji heran.
+
+Ia buru-buru membaca surat, yang isinya ternyata sangat pendek, dan bukan tulisan Ki Seung Nyang.
+
+```text
+
+Gongzi,
+Kami baru pindah ke sebuah rumah tak jauh dari penginapan,
+letaknya di tepi danau kecil.
+Tapi sebaiknya tunda dulu semua surat balasan smapai ada kabar dari kami.
+
+An Shubao, atas nama Qi Furen
+
+```
+
+"Wah, cepat sekali perubahan yang terjadi di Kaifeng," kata Zhang Wuji sambil memberikan surat itu kepada Fan Yao. Ia berkata kepada 
+Sima Han, "Daftar itu jangan dikirim dulu. Atau kau bisa mengirimnya melalui para anggota Kai Pang. Tetapi mereka harus agak repot, 
+karena kita belum tahu di mana tepatnya mereka tinggal."
+
+Mereka baru hendak duduk kembali untuk membahas perkembangan itu, ketika Li Sicui masuk membawa laporan lain.
+
+"Gongzi, ini surat dari Henan," katanya.
+
+```text
+
+Adikku,
+
+Ada seorang Kasim He akan dikirim ke Hanyang dengan membawa Titah Kaisar.
+Titah ini sangat penting untuk mendukung Zhou Zhiruo dan Minmin.
+Persiapkan segera sepuluh ribu pasukanmu yang berasal dari Henan itu,
+mereka harus menunggunya di luar kota Hanyang.
+Di situ mereka harus mengganti seragam yang mereka pakai dengan seragam resmi Kekaisaran.
+Mengenai seragam itu, semuanya bisa kau tanyakan kepada komandan pasukanmu.
+Ini terpaksa kita lakukan, karena kami tidak mungkin mengiringi kasim itu dari utara,
+mengingat jalan yang harus dilalui sangat berbahaya.
+Setelah kasim itu melakukan tugasnya, pasukanmu harus mengikutinya keluar.
+Berikutnya mereka harus kembali memakai seragam yang sebelumnya, lalu memasuki kota.
+Mereka akan ditempatkan di situ untuk mengawal kota itu.
+Gege akan mengirimkan sepuluh ribu pasukan dari Henan untuk menggantikan pasukanmu,
+tetapi kami harus menempuh jalur lain yang agak jauh.
+
+Wang Baobao
+
+```
+
+Sambil mengedarkan surat itu kepada semua orang, otak Zhang Wuji berputar cepat. Tanpa menunggu komentar orang lain, ia berkata kepada 
+Sima Han, "Cepat, panggil Ba Mengtian untuk segera menghadap!"
+
+Lalu ia berpaling kepada Yang Xiao dan berkata, "Yang Zuoshi, tolong tuliskan surat perintah kepada Zhu Yuanzhang di Nanjing. Isinya adalah semua 
+hal penting yang kusampaikan semalam kepada Wei Yixiao sebelum berangkat ke Hangzhou. Hal ini tidak boleh ditunda, dan tidak bisa dikirimkan melalui 
+burung merpati atau kurir. Semuanya itu harus kau bacakan sendiri di hadapannya sebagai perintah resmi dari Ming Jiao!" Ia menyerahkan tanda 
+pengenalnya untuk dibawa Yang Xiao, lalu menambahkan, "Tanda pengenalku ini akan mewakili kehadiranku."
+
+Yang Xiao menerima perintah itu tanpa berani bertanya. Saat itu juga ia berangkat sendirian ke Nanjing, karena apa yang dikatakan oleh 
+Zhang Wuji semalam sudah memenuhi kepalanya sepanjang hari. Sekarang juga ia bisa mengulanginya kata demi kata tanpa meleset sedikitpun.
+
+Tak lama setelah itu, sikap Zhu Yuanzhang dalam menghadapi orang lain akan berubah drastis. Kepada semua orang ia akan mengatakan bahwa 
+dirinya adalah seorang warga negara Dinasti Yuan. Tugasnya adalah untuk memulihkan dan menegakkan hukum, ketertiban dan keamanan bagi semua orang. 
+Ia menolak jika disebut sebagai seorang pemberontak.
+
+***
+
+Zhou Zhiruo sejak pagi telah menerima sedikitnya sepuluh orang tamu dari kota-kota lain di sekitar Hanyang. Alasan kedatangan mereka ternyata 
+sama persis seperti orang yang ditemuinya semalam, yaitu untuk mengantarkan laporan tahunan berikut pendapatan mereka.
+
+Merasa tidak memahami sama sekali tentang pengelolaan kota, sebagian besar pembicaraan itu diwakili oleh Zhao Min, yang sudah terbiasa 
+mengelola wilayahnya sendiri sebagai seorang Shao Min Junzhu. Ketika makan siang, ia melontarkan segala pertanyaan yang sejak tadi ada 
+di benaknya, "Ini maksudnya apa? Mengapa orang-orang di luar kota ini juga berbondong-bondong mengirimkan laporan kepada kita?"
+
+"Ini masih cukup wajar," kata Zhao Min. "Berita tentang kau memasuki kota ini memang akan cepat tersebar, jadi kalau satu pejabat berpihak 
+kepada kita, tak lama kemudian pejabat lain juga akan mulai memikirkan jalan yang sama. Ketika Xu Shouhui meninggalkan kota ini untuk 
+mengikuti Chen Youliang sampai ke Jiangxi, mereka semua pasti kuatir bahwa kota ini dan sekitarnya akan diduduki oleh para penjahat, 
+lalu kerusuhan akan timbul di mana-mana, yang sangat sulit diatasi. Jadi mereka memandangmu sebagai pemimpin baru, karena penduduk kota 
+ini mendukungmu."
+
+"Kau jangan takut," kata Zhao Min sambil tersenyum. "Aku sendiri menerima wilayahku ketika aku masih berusia dua belas tahun. Bagaimana aku 
+bisa melakukannya? Tentu saja ayahku dan Wang Baobao yang mengerjakan semuanya untukku. Tapi mulai saat itu aku belajar, sampai akhirnya aku bisa 
+mengelola wilayahku sendiri setelah usiaku lima belas tahun. Sekarang aku ada di sini, tapi kau sendiri perlu menampilkan diri setiap hari di depan 
+umum, supaya mereka merasa aman karena melihatmu. Jadi kita akan mengelola semua ini bersama-sama."
+
+"Tapi aku hadir di sini sebagai apa?" tanya Zhou Zhiruo. "Bukankah tadinya kita hanya datang ke Xiangyang? Itupun sampai sekarang aku masih 
+bertanya-tanya, bagaimana kita harus menjelaskan kehadiran kita di Xiangyang kepada orang lain jika ditanya?"
+
+Zhao Min tertawa. "Bukankah kau ingin menjadi Huanghou?" katanya.
+
+Zhou Zhiruo mendecakkan lidahnya dengan kesal. "Jangan bercanda lagi! Aku sangat serius."
+
+"Aku juga serius," kata Zhao Min. "Kita berdua hadir di sini untuk menertibkan kota. Kota ini tadinya adalah ibukota Kekaisaran Tianwan, tapi 
+ternyata ditinggalkan begitu saja setelah terjadi pemberontakan oleh Ni Wenjun. Jika tidak ada yang berkuasa di sini, maka Hanyang akan 
+diduduki bandit. Rakyat akan panik, lalu kekacauan itu akan menjalar sampai ke tempat lain, bahkan bisa sampai ke Xiangyang. Justru itulah 
+alasan kita datang ke Xiangyang. Jadi kau hadir di sini sebagai Zhou Furen dari Ming Jiao, karena Xu Shouhui sebenarnya adalah anggota 
+Hongjin Qiyi, yang berada di bawah naungan Ming Jiao. Begitu cara kita menjawab pertanyaan semua orang."
+
+"Bagaimana jika yang datang berikutnya adalah musuh?" tanya Zhou Zhiruo. "Di sini kita hanya punya pasukan Xu Da, yang tidak lebih dari dua 
+ribu orang. Bagaimana kau bisa mempertahankan tempat ini jika — katakanlah, Jiangxi — menyerangmu dengan membawa lima puluh ribu orang? 
+Setinggi apapun kungfumu, kau tidak akan mampu melindungi semua orang di kota ini hanya dengan mengandalkan dua ribu prajurit."
+
+"Percayalah, untuk sementara tidak ada yang akan menyerangmu," kata Zhao Min sambil makan bakcang besar berisi telur rebus dan daging babi. 
+"Wuaah, bakcang orang selatan benar-benar enak. Kenapa di Henan tidak ada yang seenak ini ya? Lingshan, siapa yang mengajarimu membuat bakcang seperti ini?"
+
+Lingshan tertawa dan berkata, "Sebetulnya Lingshan tidak bisa membuat yang seperti ini. Jing'er yang mengajarkan semuanya."
+
+"Meizi!" tegur Zhou Zhiruo.
+
+Zhao Min menelan sisa makanan di mulutnya, lalu minum seteguk arak. Ia bertanya, "Ya?"
 
 
 
