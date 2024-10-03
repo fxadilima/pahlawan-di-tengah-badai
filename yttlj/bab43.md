@@ -1051,11 +1051,94 @@ ke Xiangyang. Mungkin di situ mereka bisa menemukan orang yang mengenal Ming Yuz
 
 ***
 
+Semua orang yang baru berkumpul kembali dengan Ding Minjun setelah menyelesaikan tugas yang dibebankan kepada mereka sedang menunggu 
+perintah selanjutnya dari Ki Seung Nyang. Dalam waktu singkat dua puluh tujuh nama itu sudah selesai diwawancarai, dan hasilnya juga 
+sudah selesai ditulis dengan rapi.
 
+Sekarang Ki Seung Nyang sedang mengetuk-ngetuk meja dengan jarinya untuk membantunya berpikir. Di hadapannya ada dua lembar laporan. 
+Nama yang tertulis di situ adalah Tian Feng dan Wang Shicheng. Ia tahu pasti bahwa kedua orang ini adalah militer di tingkat menengah, 
+yang bekerja untuk Dinasti Yuan.
 
+"Cari dua laporan sebelumnya yang sudah kau tandai," kata Ki Seung Nyang kepada Ding Minjun.
 
+Kedua laporan itu ditandai dengan 'aman', tetapi Ki Seung Nyang segera mencoret tanda itu, lalu mengumpulkan keduanya bersama laporan 
+tentang Tian Feng dan Wang Shicheng yang baru masuk. Ia merasa kepalanya sakit setelah memaksa diri berpikir keras. Ia berkata, "Ah Li, 
+boleh Bibi pinjam tanganmu sebentar? Tolong urut beberapa titik di belakang kepala, aku merasa agak pusing."
 
+Yin Li sudah terbiasa melakukan tugas yang sama sejak kecil. Tajkis sejak dulu selalu mengalami batuk-batuk, dan hal itu menjadi lebih 
+parah jika mereka bepergian ke daerah dingin. Ia juga seringkali berpikir keras, lalu mengalami sakit kepala berat seperti Ki Seung Nyang 
+saat ini. Sambil mengurut titik-titik akupuntur yang dimaksud, dalam hati Yin Li semakin heran. Kedua wanita itu ternyata punya banyak sekali 
+kemiripan, meskipun tampang mereka jauh berbeda.
 
+"Hmm... Shijie sangat beruntung punya kau selama bertahun-tahun di sampingnya," kata Ki Seung Nyang sambil memejamkan mata menikmati 
+keterampilan tangan Yin Li. 
+
+Beberapa menit kemudian ia berkata, "Minjun, aku terpaksa merepotkanmu. Kau harus mengantarkan sendiri empat lembar ini ke Xiangyang. 
+Katakan kepada Zhang Wuji bahwa Tian Feng dan Wang Shicheng itu adalah militer yang nantinya akan menjadi ganjalan besar bagi kita. 
+Yang dua lainnya bukan militer, tetapi mereka membantu Tian Feng dan Wang Shicheng dari belakang. Meskipun begitu, Zhang Wuji harus 
+tetap menerima dana dari mereka semua — dan bahkan kita harus menghentikan semua penyelidikan yang berkaitan dengan empat nama ini. 
+Kita pasti akan terus mengamati mereka, tetapi bukan secara terang-terangan seperti sekarang. Biarkan mereka merasa aman, dan berpikir 
+bahwa rencana mereka berhasil. Semua itu tidak boleh kita sampaikan melalui surat, karena itulah kau harus berangkat secepatnya."
+
+Ding Minjun segera bangkit, lalu membungkuk hormat dan berkata, "Minjun akan berangkat sekarang juga."
+
+"Han Lin, siapkan dua orang Ming Jiao untuk berangkat bersama Nona Ding, jangan lupa siapkan juga biaya perjalanan mereka!" tambah Ki Seung Nyang.
+
+"Siap!"
+
+Setelah Han Lin pergi menyiapkan semua keperluan Ding Minjun, sakit kepala Ki Seung Nyang kembali menyerang. Ia sudah lama merasa lelah 
+menghadapi segala permasalahan Dinasti Yuan ini. Setelah akhirnya mereka berhasil menyingkirkan Jendral Bayan, memang keadaan tampak 
+tenang, tetapi ternyata tidak terlalu lama. Pada dasarnya semua militer tangguh saat ini adalah hasil didikan Dash Badalugh, dan orang 
+itu selalu memilih untuk bermain di belakang layar. Yang ditampilkan setelah Jendral Bayan tersingkir adalah putranya sendiri, Bolad Temur.
+Secara diam-diam ia kemudian memainkan kartunya yang tersembunyi, yaitu Chaghan. Tetapi karena Chaghan juga adalah anak didik Dash Badalugh, 
+hal ini selalu menjadi batu sandungan baginya. 
+
+Selain masalah ini, jika sedang mendengar atau membaca tentang Bayan, ia teringat akan Bayan lain di Goryeo, yaitu yang sekarang menjadi 
+Raja Gongmin. Untuk mengendalikan Goryeo, mereka mengirimkan seorang istri cantik, yang adalah putri Dinasti Yuan, meskipun bukan salah 
+satu putri Toghon Temur. Gongmin kurang lebih seusia dengan Zhang Wuji. Tetapi selama bertahun-tahun ternyata wanita itu tidak disentuhnya sama sekali, 
+dan belakangan mereka baru menyadari bahwa Gongmin punya beberapa skandal dengan _anak laki-laki_ di istananya. Melihat hal ini ia kemudian 
+mulai memutar otak untuk mencari jalan lain guna mengawasi pergerakan politik Gongmin. Sayangnya pada saat yang bersamaan, di Zhongyuan 
+timbul beberapa gerakan akibat ajaran Hongjin Qiyi, yang akhirnya tak terkendali lagi. Setelah itu Gongmin memanfaatkan peluang ini untuk 
+mulai berontak. Itu berawal dari membelotnya Yi Ja-chun dan putranya, Yi Seong-gye. 
+
+Ki Seung Nyang merasa tidak mampu menangani kedua urusan itu sekaligus. Ia lalu melepaskan masalah Goryeo dengan jalan mendorongnya ke depan 
+hidung Bolad Temur, orang itu memakan umpannya. Tetapi sayangnya Dash Badalugh tidak ikut terpancing, jadi sampai sekarang Chaghan 
+masih tetap di dalam cengkeramannya.
+
+Sore ini ketika Ki Seung Nyang membaca semua laporan yang terkumpul, ia menyadari bahwa orang kuat yang bermain di sini masih tetap adalah 
+Bolad Temur dan Dash Badalugh. Tetapi sekarang mereka memakai cara yang lebih canggih, dan ingin melibatkan Zhang Wuji secara tidak langsung. 
+Jika sebelumnya Cheng Kun dengan cerdik menyelipkan diri di antara Bolad Temur dan Chaghan, sekarang ini seorang Biksu Tibet yang bernama Hama 
+ikut membantu Bolad Temur merancang perangkap. Untungnya hal ini mereka ketahui sejak awal.
+
+Setelah beerapa saat merasakan pijatan Yin Li di tengkuknya, secara berangsur-angsur sakit kepalanya mulai menghilang. Ia duduk untuk makan 
+sepotong shaobing, lalu minum secangkir teh hangat, dan berkata kepada Yin Li, "Ah Li, sore ini juga kau pergi ke pasar untuk mencari 
+pakaian yang lebih pantas. Pilih sendiri warna kesukaanmu." Ia menoleh kepada beberapa murid perempuan Emei Pai, dan berkata, "Kalian bantu 
+Nona Yin memilih pakaian yang kelihatannya mewah. Tetapi sebelumnya kalian harus memesan babi panggang untuk dikirim ke alamat orang ini."
+Ia mengambil salah satu laporan yang telah disusun rapi oleh Ding Minjun sebelum pergi. "Suruh penjualnya mengantarkan pesanan itu atas nama 
+Shaoli Junzhu. Nona Yin akan menunjukkan di mana kalian bisa membeli makanan itu."
+
+Ketika Yin Li mendengar Ki Seung Nyang menyinggung tentang 'babi panggang', ia menjadi curiga, lalu berkata, "Bibi, aku tidak mau menikah 
+dengan anak penjual babi itu."
+
+"Bibi juga tidak menyuruhmu menikah dengan penjual babi," kata Ki Seung Nyang. "Kulihat anak itu tidak jelek. Aku hanya ingin membantunya 
+mendapatkan pekerjaan yang baik, dan sekaligus menghibur orang-orang di pasar."
+
+"Shaoli Junzhu ini siapa?" tanya Yin Li lagi.
+
+Ki Seung Nyang sedang mencicipi bakpao berisi kacang, yang tampaknya dibeli di pasar. Ia agak kecewa. "Kita harus memasak makanan kita sendiri. 
+Shaobing dan bakpao ini kurang enak," katanya. Tampaknya ia tidak mendengar pertanyaan Yin Li. Ia lalu menoleh kepada murid-murid perempuan Emei Pai 
+yang ikut berkumpul di situ sambil makan dan mendengarkan uraian Ki Seung Nyang. Ia berkata, "Mulai sekarang kalian membantuku mengurus makanan 
+untuk kita semua. Di Emei kalian juga terbiasa melakukan tugas semacam ini, kan?"
+
+Ia lalu mengambil sejumlah uang dan memberikannya kepada Yin Li sambil berkata, "Mereka pasti akan minta waktu lebih dari seminggu untuk menyelesaikan 
+pakaian itu. Tapi kalau kita berani membayar dua kali lipat dari harga yang disebutkan, mereka pasti bisa menyelesaikannya dalam sehari. Kalian 
+beli babi panggang utuh tanpa dipotong untuk pejabat itu, dan beli satu lagi untuk kita semua — aku jadi ingin mencicipinya."
+
+"Bibi belum menjawab pertanyaanku," desak Yin Li lagi. "Siapa itu Shaoli Junzhu?"
+
+Ki Seung Nyang berkata dengan santai, "Oh, itu nama barumu."
+
+***
 
 
 
