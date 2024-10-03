@@ -1,6 +1,6 @@
 # Bab 43
 
-![Ilustrasi Bab 43](/assets/images/chaghan-temur.jpg "Jendral Chaghan Temur")
+![Ilustrasi Bab 43](/assets/images/Yuan-Dynasty-12.jpg "Munculnya Shaoli Junzhu")
 
 Ketika rombongan Zhou Zhiruo yang membawa keluarga Chen Youliang sedang menuju ke istana Xu Shouhui, di Xiangyang
 Zhang Wuji sedang menikmati makan malam bersama Yang Xiao, Fan Yao, Bei Jinyi dan Sima Han.
@@ -449,7 +449,8 @@ Huang Shang semakin sulit menghindari desakan mereka."
 "Itu sudah kuperhitungkan," kata Ki Seung Nyang. 
 
 Ia minta disediakan alat-alat tulis dan kertas. Setelah semuanya datang, ia segera menulis beberapa karakter dengan huruf besar, lalu menyerahkannya 
-kepada si pemilik kedai sambil berkata, "Siapkan beberapa orang untuk pergi ke Hanyang dan sekitarnya, lalu mulai meniupkan berita semacam ini."
+kepada si pemilik kedai sambil berkata, "Siapkan beberapa orang untuk pergi ke Hanyang dan sekitarnya, lalu mulai meniupkan berita semacam ini.
+Di sepanjang perjalanan mereka juga boleh menyebarkan berita itu."
 
 Pemilik kedai itu membaca tulisannya, lalu mengangguk sebagai tanda mengerti. Ia segera beranjak dari ruangan itu untuk melaksanakan tugasnya.
 Tak lama kemudian ia kembali lagi, dan berkata, "Semuanya sedang dijalankan."
@@ -850,7 +851,7 @@ Ia buru-buru membaca surat, yang isinya ternyata sangat pendek, dan bukan tulisa
 Gongzi,
 Kami baru pindah ke sebuah rumah tak jauh dari penginapan,
 letaknya di tepi danau kecil.
-Tapi sebaiknya tunda dulu semua surat balasan smapai ada kabar dari kami.
+Tapi sebaiknya tunda dulu semua surat balasan sampai ada kabar dari kami.
 
 An Shubao, atas nama Qi Furen
 
@@ -1120,15 +1121,15 @@ Shaoli Junzhu. Nona Yin akan menunjukkan di mana kalian bisa membeli makanan itu
 Ketika Yin Li mendengar Ki Seung Nyang menyinggung tentang 'babi panggang', ia menjadi curiga, lalu berkata, "Bibi, aku tidak mau menikah 
 dengan anak penjual babi itu."
 
-"Bibi juga tidak menyuruhmu menikah dengan penjual babi," kata Ki Seung Nyang. "Kulihat anak itu tidak jelek. Aku hanya ingin membantunya 
-mendapatkan pekerjaan yang baik, dan sekaligus menghibur orang-orang di pasar."
+"Bibi juga tidak menyuruhmu menikah dengan penjual babi," kata Ki Seung Nyang. "Kulihat anak itu tidak jelek. Aku hanya ingin membantu 
+menjual dagangannya dan mendapatkan pekerjaan yang baik — sekaligus menghibur orang-orang di pasar."
 
 "Shaoli Junzhu ini siapa?" tanya Yin Li lagi.
 
-Ki Seung Nyang sedang mencicipi bakpao berisi kacang, yang tampaknya dibeli di pasar. Ia agak kecewa. "Kita harus memasak makanan kita sendiri. 
-Shaobing dan bakpao ini kurang enak," katanya. Tampaknya ia tidak mendengar pertanyaan Yin Li. Ia lalu menoleh kepada murid-murid perempuan Emei Pai 
-yang ikut berkumpul di situ sambil makan dan mendengarkan uraian Ki Seung Nyang. Ia berkata, "Mulai sekarang kalian membantuku mengurus makanan 
-untuk kita semua. Di Emei kalian juga terbiasa melakukan tugas semacam ini, kan?"
+Ki Seung Nyang sedang mencicipi bakpao berisi kacang yang dibeli di pasar, dan ia agak kecewa. Tampaknya ia tidak mendengar pertanyaan Yin Li. 
+"Kita harus memasak makanan kita sendiri. Shaobing dan bakpao ini kurang enak," katanya. Ia menoleh kepada murid-murid perempuan Emei Pai yang 
+berkumpul di situ sambil makan dan mendengarkan uraian Ki Seung Nyang. Ia berkata, "Mulai sekarang kalian membantuku mengurus makanan untuk 
+kita semua. Di Emei kalian juga terbiasa melakukan tugas semacam ini, kan?"
 
 Ia lalu mengambil sejumlah uang dan memberikannya kepada Yin Li sambil berkata, "Mereka pasti akan minta waktu lebih dari seminggu untuk menyelesaikan 
 pakaian itu. Tapi kalau kita berani membayar dua kali lipat dari harga yang disebutkan, mereka pasti bisa menyelesaikannya dalam sehari. Kalian 
@@ -1139,6 +1140,174 @@ beli babi panggang utuh tanpa dipotong untuk pejabat itu, dan beli satu lagi unt
 Ki Seung Nyang berkata dengan santai, "Oh, itu nama barumu."
 
 ***
+
+Zhang Wuji sedang melakukan inspeksi di barak militer Chang Yuchun, ketika seorang anggota Kai Pang mengantarkan surat yang ditulis Zhao Min.
+Ia buru-buru membuka surat itu dan membaca isinya, lalu membuka lembar kedua yang berisi surat dari Kekaisaran Tianwan. Ia lalu menoleh 
+kepada Fan Yao dan Chang Yuchun sambil bertanya, "Kalian pernah mendengar tentang seorang pria yang bernama Ming Yuzhen?"
+
+Kedua orang itu segera menggelengkan kepala. Fan Yao dan Chang Yuchun membaca kedua surat yang disodorkan Zhang Wuji. 
+
+"Mungkin dia hanya juru tulis Xu Shouhui," kata Chang Yuchun.
+
+Zhang Wuji mengajak keduanya pergi ke kemah Chang Yuchun untuk membicarakan hal itu. Ia tampak sedang berpikir-pikir sambil berjalan 
+menuju ke kemah itu. "Rasanya belum lama ini aku pernah mendengar namanya," gumamnya.
+
+Setibanya di situ, Chang Yuchun mengambil tiga mangkuk kosong dan menuangkan arak bagi mereka semua. "Kurasa sebulan lagi anak-anak yang 
+sedang magang itu bisa diserahi tugas-tugas kecil. Tampaknya mereka semua tidak sabar lagi untuk memakai seragam militer," katanya sambil 
+tertawa.
+
+"Tampaknya kau cukup berbakat untuk melatih anak-anak," kata Fan Yao. "Saat ini kita masih terus membutuhkan prajurit baru. Hanyang perlu 
+dukungan. Kita harus punya banyak pos yang menghubungkan tempat ini dengan Hanyang. Saat ini bahkan Yang Zuoshi harus pergi ke Hangzhou, 
+banyak urusan yang harus ditangani di luar."
+
+Mendengar kata-kata Fan Yao, tiba-tiba Zhang Wuji berkata, "Sekarang aku ingat, nama itu disebutkan di salah satu laporan yang kita terima! 
+Kurasa yang dari Kunlun Pai. Kita harus segera kembali ke markas!"
+
+Begitu tiba di ruangannya, Zhang Wuji segera memeriksa semua berkas yang mereka terima dari para pendekar Kunlun Pai, dan segera menemukan 
+beberapa laporan yang menyebutkan nama Ming Yuzhen. Semua nama itu berasal dari sekitar Chongqing dan Chengdu, yang terletak di sebelah barat 
+Xiangyang, yang berdekatan dengan perbatasan Tibet. Saat ini kawasan tersebut masih belum tersentuh oleh para anggota Hongjin Qiyi dan Ming Jiao.
+Orang-orang yang memberikan sumbangan itu berharap supaya Zhang Wuji mempertimbangkan untuk mengirim Ming Yuzhen ke situ. Tetapi tak ada laporan 
+yang menyebutkan bagaimana mereka mengenal orang itu. Mereka hanya pernah mendengar bahwa ada seorang anggota Hongjin Qiyi yang bernama Ming Yuzhen, 
+dan bahwa orang itu bisa dipercaya.
+
+"Kelihatannya Ming Yuzhen ini memang adalah anggota Hongjin Qiyi," kata Fan Yao. "Rasanya dia anggota baru, karena aku sendiri tidak pernah 
+mendengar namanya. Mungkin dia baru bergabung setelah Xu Shouhui menjadi kaisar."
+
+Yu Daiyan berkata, "Kalau begitu, bagaimana orang-orang di Chongqing dan Chengdu bisa mendengar namanya? Kedua wilayah itu jauh dari wilayah 
+kekuasaan Xu Shouhui. Dari sini ke Chongqing saja sudah cukup jauh, apalagi dari Hanyang."
+
+"Menurut surat Minmin dan Zhiruo ini, kurir itu langsung pergi, dan tidak ketemu mereka," sela Bei Jinyi. "Aku jadi punya firasat Ming Yizhen 
+ini punya niat tidak baik."
+
+Dari semua saudaranya, Zhang Songxi adalah yang punya kemampuan terbaik dalam menganalisa masalah. Ia berkata, "Pendapat Bei Shimei cukup masuk akal. 
+Sekarang kita perhatikan surat itu. Minmin mengatakan bahwa mereka menerima uang, tetapi surat itu sama sekali tidak menyinggung apa-apa mengenai 
+hal ini. Jadi kemungkinan memang Ming Yuzhen sendiri yang menyelipkan uang — atau bisa jadi dia sendiri yang mengantarkan surat — dan itu di luar 
+sepengetahuan Xu Shouhui maupun Zou Pusheng. Dengan cara ini bisa kita simpulkan bahwa Ming Yuzhen sedang menunggu tanggapan dari Zhou Zhiruo, 
+dan baru akan menampakkan diri setelah yakin bahwa pendekatannya akan ditanggapi secara positif. Seperti kita ketahui, bagi mereka saat ini 
+situasinya tidak aman. Chen Youliang memang tampaknya menyelamatkan mereka, tapi dari surat itu kita bisa melihat bahwa mereka lebih mempercayai 
+kita. Ini terbalik dari sikap Xu Shouhui sebelumnya yang tidak mau mendengarkan nasihat Ming Jiao. Jadi Ming Yuzhen sendiri mengharapkan bantuan 
+kita, tetapi dia tidak bisa mengatakan hal itu secara terang-terangan. Dia adalah bawahan Xu Shouhui, jelas dia tidak bisa meninggalkan jabatannya 
+begitu saja. Di pihak lain ia bisa merasakan bahwa posisi mereka sekarang di bawah angin, jadi sebenarnya dia sedang dalam dilema."
+
+"Ini seperti tidak ada kaitannya dengan orang-orang yang tinggal di Chongqing atau Chengdu," kata Yu Daiyan.
+
+"Menurutku kemungkinan besar orang-orang itu adalah para pendukung Ming Yuzhen," kata Zhang Songxi lagi.
+
+Yu Daiyan bangkit dari tempat duduknya, lalu mendekati peta besar yang mereka buat sebelumnya, dan menambahkan dua titik baru dengan nama 
+Chongqing dan Chengdu. Ia juga menggambar garis yang diperkirakannya sebagai perbatasan propinsi Hubei, lalu berkata, "Sebaiknya wilayah 
+di luar Hubei ini untuk sementara tidak kita tandai, tapi kita tuliskan di sini sebagai pengingat bahwa kemungkinan ini ada."
+
+"Yu Sanbo benar," kata Zhang Wuji. "Tapi Ming Yuzhen — atau mungkin Xu Shouhui — sudah mengirimkan uang ke Hanyang. Uang itu jelas bukan 
+pendapatan mereka yang disertai laporan, jadi kita tetap tidak bisa menerimanya begitu saja, tanpa melakukan apa-apa."
+
+Zhang Songxi sudah lama mengamati bahwa keponakannya ini punya hati yang terlalu lembut dan baik, dan seringkali hal itu dimanfaatkan oleh 
+orang-orang di sekitarnya tanpa disadarinya. Jika sikap seperti ini dibiarkannya, maka lama kelamaan akan menghalanginya untuk mengelola 
+sebuah wilayah besar seperti sebuah kota atau propinsi, apalagi kemudian sebuah negara, jika ia memang akan menjadi kaisar. Ia lalu berkata 
+dengan hati-hati, "Wuji, jika seseorang mengirimkan sumbangan kepadamu, tetapi tidak meninggalkan catatan atau apapun, sebenarnya dari 
+sisi hukum dan aturan umum yang berlaku, kau bebas untuk menggunakannya menurut kehendakmu sendiri. Apalagi jika kau memang sudah menyelidikinya, 
+dan tetap tidak menemukan apa maksud sebenarnya dia mengirimkan uang itu. Hal semacam ini sudah sering kami alami sendiri di Wudang. Asalkan 
+kita mengelola uang itu dengan benar, maka tidak ada orang yang akan mempertanyakan tindakanmu. Menurut Zhang Sibo, kalian bisa dengan 
+bebas menggunakan dana itu sesuai keperluan. Pada saat Ming Yuzhen itu akhirnya muncul, barulah kita pikirkan bagaimana kita harus melayaninya."
+
+Semua orang di situ membenarkan apa yang dikatakan Zhang Songxi.
+
+"Surat Minmin itu juga menyinggung bahwa mereka menerima banyak laporan yang sama dari para pejabat di sekitar Hanyang. Ini berarti pengelolaan 
+kota itu sendiri sebenarnya tidak memerlukan biaya tambahan yang sangat besar, karena mereka sudah punya pendapatan," kata Zhang Wuji.
+
+"Tetapi tempat penampungan pengungsi yang kondisinya menyedihkan itu menandakan bahwa uang yang tersedia tidak mencukupi untuk membantu 
+mereka," jawab Zhang Songxi. "Jadi mereka tetap memerlukan dana bantuan. Selain itu mulai sekarang Zhiruo dan Minmin harus bekerja keras, dan 
+meneliti para pejabat yang bekerja di kota itu. Aku sangat yakin mereka bukan semuanya bersih."
+
+"Itu sangat masuk akal," kata Fan Yao sambil tertawa. "Mungkin karena itulah mereka buru-buru mengirim laporan — untuk mengambil hati Zhou Furen."
+
+Zhang Wuji baru menyadari hal ini. Ia berkata, "Aku akan segera menulis surat untuk mengingatkan mereka."
+
+Yu Daiyan berkata, "Ada satu hal lagi. Kalian harus meneliti apakah pajak yang mereka tetapkan bagi semua orang tidak terlalu tinggi. Jika tidak 
+berhati-hati, maka rakyat akan tetap mengalami kesulitan. Ini bukan masalah gampang, karena kalian harus menetapkan angka yang seimbang, supaya 
+adil bagi semua orang."
+
+"Wuji mengerti," kata Zhang Wuji.
+
+Ia segera menulis surat yang cukup panjang untuk mengingatkan apa yang baru dikemukakan oleh kedua pamannya. Selain itu ia juga menuliskan penemuan 
+mereka sejauh ini mengenai Ming Yuzhen, dan menyuruh kedua istrinya supaya tetap menggunakan dana itu sesuai keperluan. Ia menambahkan informasi 
+tentang kabar yang tadi ditermanya dari Wang Baobao mengenai kedatangan Kasim He.
+
+Setelah selesai menulis surat itu, ia kemudian menyuruh Sima Han untuk mengirimkannya, berikut surat terakhir yang diterimanya dari Wang Baobao.
+
+Fan Yao berkata, "Jiaozhu, ada sedikit urusan yang sekarang jadi terasa mengganggu. Sejak kita tiba di sini, memang biaya untuk kita selalu ada, 
+karena kita menerima sumbangan yang sangat besar dari berbagai pihak. Tetapi ini tidak bisa kita anggap sebagai pendapatan, bukan seperti apa 
+yang terjadi di Hanyang."
+
+Zhang Wuji tertawa. "Jadi sekarang kau merasa iri melihat apa yang mereka terima d Hanyang?"
+
+Beberapa orang ikut tertawa. Tetapi Fan Yao berkata, "Maksudku tentu saja bukan itu. Sebenarnya jika kita ingat apa yang dikatakan Qi Shimei 
+melalui surat sebelumnya, kita memang harus mengembangkan kota ini, supaya kita juga punya penghasilan."
+
+"Nah, itu sudah agak lama kupikirkan," kata Bei Jinyi. "Tapi kita mau melakukan _apa_? Masa kita mau menarik pajak dari penduduk kota? Siapa yang 
+menyuruh kita melakukannya?"
+
+Yu Daiyan berkata, "Kita memang tidak boleh melakukannya, karena sampai sekarang ini masih ada pejabat resmi yang melakukannya. sejauh ini kita tidak 
+pernah mengatakan bahwa kita _menduduki_ Xiangyang — dengan maksud mengambil alih kepemimpinan. Jadi resminya memang wilayah ini masih tetap 
+adalah wilayah Dinasti Yuan."
+
+Tiba-tiba Zhang Songxi menyela, "Itu sangat menarik. Coba pikir, kau sudah beberapa waktu di sini, rakyat menyambut kedatangan kalian dengan 
+meriah, tapi tak satupun pejabat bereaksi. Mereka tidak mengusik kita, tapi juga tidak mengirim apa-apa kepada kita. Bukankah itu sangat 
+menarik?"
+
+"Oh, dalam hal ini Zhang Sibo kurang tepat, karena memang tidak mengikuti langsung dari awal," kata Zhang Wuji sambil memanggil salah seorang
+pelayan. Ia berkata, "Tolong cari catatan keuangan yang ditinggalkan Furen di kamarnya."
+
+Melihat bahwa pelayan yang dipanggil itu adalah Dongfang Yuxian, Bei Jinyi segera berkata, "Nah, biar aku pergi untuk menemaninya. Anak ini kurang 
+teliti."
+
+Tak lama kemudian mereka kembali ke ruangan itu bersama Ah Zhu, masing-masing orang membawa sekotak penuh kertas yang berisi tulisan tangan 
+Zhou Zhiruo dan Zhao Min.
+
+"Kami tidak tahu laporan mana yang kau maksud, jadi semuanya kami bawa ke sini," kata Bei Jinyi.
+
+Zhang Wuji hanya memerlukan waktu dua menit untuk menemukan beberapa catatan yang diinginkannya. Ia mengedarkan beberapa lembar kertas untuk 
+dibaca semua orang sambil berkata, "Ini semua nama adalah nama pejabat Tianwan yang mengirimkan dana ketika kami baru tiba di sini."
+
+Ia kemudian mencari sebuah tumpukan kertas lain yang ditandai Zhao Min, lalu kembali mengedarkannya, dan berkata, "Dan ini adalah para bangsawan 
+di Xiangyang dan sekitarnya, yang mengirimkan dana ke sini. Jika semuanya dijumlahkan, dana itu jumlahnya sangat besar. Tetapi mereka sama sekali tidak 
+mengatakan apa-apa tentang laporan resmi. Dan kami memang belum sempat menyelidiki semua nama itu."
+
+"Kau juga tidak bertemu dengan mereka semua atau orang yang mengantarkannya?" tanya Yu Daiyan.
+
+"Saat itu kami belum tiba di sini, jadi Sima Zhanglao yang menerimanya," jawab Zhang Wuji. "Menurutnya semua orang itu hanya melakukan tugas dari 
+majikan mereka, dan menitipkan catatan, lalu pergi."
+
+Ah Zhu membisikkan sesuatu ke telinga Bei Jinyi, lalu meninggalkan ruangan bersama Dongfang Yuxian. Bei Jinyi berkata, "Saudara-saudara, makan 
+malam kita sudah siap. Kurasa karena jumlah kita saat ini tidak terlalu banyak, kita bisa makan di sini. Aku sudah menyuruh mereka membawanya 
+ke meja makan itu, jadi kita tetap bisa membahas masalah ini sambil makan."
+
+Setelah para pelayan menyuguhkan makan malam bagi mereka, semua orang pindah ke meja makan dan kembali membahas masalah yang mereka bicarakan 
+sebelumnya. Saat itu Zhang Wuji mengambil sebuah hidangan yang terdiri dari aneka macam jenis sayur, ditambah dengan daging sapi dan udang. 
+Mata Bei Jinyi yang jeli melihat di antara sayur-sayuran itu ada cukup banyak kacang merah, dan ia merasa hidangan itu agak aneh. Tiba-tiba ia 
+menyadari bahwa ini pastilah keteledoran Dongfang Yuxian dan teman-temannya pada saat mencuci semua bahan. Ia hendak mencegah Zhang Wuji makan, 
+tetapi terlambat. Selanjutnya ia sangat heran ketika mendengar Zhang Wuji memuji-muji kelezatan makanannya. Akhirnya ia membatalkan niatnya untuk 
+mengangkat hidangan itu kembali ke dapur, dan diam-diam merasa lega.
+
+Perubahan air muka Bei Jinyi yang hanya setengah detik itu rupanya sempat dilihat oleh Zhang Wuji, dan ia bertanya, "Bei Shijie, kau ingin 
+mengatakan sesuatu?"
+
+Bei Jinyi agak kaget, tapi kemudian menjawab, "Tidak terlalu penting lagi. Cuma ada sedikit kacang merah tercampur di situ. Karena kau tidak mengeluh, 
+berarti memang tidak apa-apa."
+
+Zhang Wuji tersenyum dan berkata, "Bei Shijie sangat teliti. Tapi ini ternyata enak, kau harus mencicipinya sendiri. Aku tahu, anak-anak 
+ini memang kadang-kadang kurang teliti, tapi Bei Shijie harus memakluminya. Mereka baru sebentar di sini, lalu Zhiruo pergi ke Hanyang, dan 
+berikutnya Minmin menyusul. Jadi mereka memang belum terbiasa melayani banyak orang seperti ini." Ia kembali menyendok makanan itu banyak-banyak, 
+lalu menambahkan, "Tapi aku serius, ini enak."
+
+Zhang Songxi sejak tadi memikirkan tentang para pejabat yang mengirimkan uang itu, dan tampaknya tenggelam dalam pikirannya sendiri, padahal saat 
+itu semua orang sedang menyantap hidangan yang disajikan itu dengan gembira, dan masing-masing orang memuji makanan yang sedang mereka makan. 
+Ia sendiri hanya mengambil sedikit nasi, lalu makan pelan-pelan ditemani sayuran yang tadi dicicipi Zhang Wuji sambil terus berpikir-pikir.
+
+
+
+
+
+
 
 
 
