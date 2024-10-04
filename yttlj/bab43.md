@@ -1302,19 +1302,163 @@ lalu menambahkan, "Tapi aku serius, ini enak."
 Zhang Songxi sejak tadi memikirkan tentang para pejabat yang mengirimkan uang itu, dan tampaknya tenggelam dalam pikirannya sendiri, padahal saat 
 itu semua orang sedang menyantap hidangan yang disajikan itu dengan gembira, dan masing-masing orang memuji makanan yang sedang mereka makan. 
 Ia sendiri hanya mengambil sedikit nasi, lalu makan pelan-pelan ditemani sayuran yang tadi dicicipi Zhang Wuji sambil terus berpikir-pikir.
+Akhirnya tanpa sadar ia berkata kepada diri sendiri, "Apa artinya itu?"
 
+Wu Liubo memasuki ruangan dan mendekati Zhang Wuji sambil meletakkan tangan di dada, dan berkata, "Gongzi, ada seorang utusan dari pejabat 
+kota datang sambil membawa sejumlah peti, dan mengatakan ingin menemui Gongzi secara pribadi."
 
+Saat itu sempat melihat Zhang Songxi seolah-olah baru terbangun dari tidurnya, langsung bangkit dari kursinya, dan berkata, "Katakan supaya dia 
+menunggu di situ, kami sedang makan malam! Setelah itu kau segera kembali ke sini."
 
+Wu Liubo mengiyakan, dan segera beranjak keluar.
 
+Begitu ia keluar, Zhang Songxi segera berkata kepada semua orang lain, "Kita harus segera menyingkirkan semua ini, lalu menyuruh orang itu 
+membawa semua peti itu ke sini untuk menemui Wuji." Ia menoleh kepada Bei Jinyi. "Bei Shimei, aku terpaksa merepotkanmu."
 
+Bei Jinyi buru-buru memanggil sebanyak mungkin pelayan untuk membantu mereka merapikan meja dan membawa semua makanan kembali ke dapur. Ketika 
+Ah Zhu hendak merapikan meja lain yang dipenuhi lembaran kertas, Zhang Songxi melarangnya, "Biarkan semua kertas itu tetap di tempatnya!"
 
+Mereka kemudian mengambil posisi di sebelah kiri-kanan Zhang Wuji, yang duduk dengan anggun di kursi Ketua Ming Jiao. Zhang Wuji berkata kepada 
+Wu Liubo yang kembali ke ruangan itu tak lama kemudian, "Bawa dia kemari, berikut semua barangnya!"
 
+Tak lama setelah Wu Liobo keluar, ia kembali lagi bersama tujuh saudaranya untuk mengantar seorang pria bertubuh sedang, yang mengenakan setelan 
+pejabat kota, lengkap dengan topinya. Mereka mengangkat empat buah peti berat memasuki ruangan di belakang pria itu. 
 
+Pria itu membngkuk hormat kepada Zhang Wuji sambil berkata, "Selamat malam, Zhang Jiaozhu. Zaixia bernama Jiang Shiqin, diutus oleh Pejabat Li 
+untuk mengantarkan laporan tahunan kami. Li Daren minta maaf atas keterlambatan kami melapor, karena sebelumnya beberapa pejabat kami menghilang 
+setelah terjadi peristiwa yang menimpa kota Hanyang. Kami telah melaporkan semuanya kepada atasan kami, tetapi kemudian kami disuruh melapor kepada 
+Zhang Jiaozhu di sini."
 
+Otak Zhang Wuji berputar cepat. Ia segera teringat cerita Zhao Min yang sempat menyapa para pengawal di depan rumah seorang pejabat bermarga Li 
+ketika mereka memasuki kota ini. Ia berdehem, lalu berkata dengan ramah, "Ternyata kami mendapat kehormatan untuk menerima utusan dari Li Daren 
+malam-malam begini."
 
+Jiang Shiqin berkata, "Beberapa hari yang lalu, kami mendapat laporan dari petugas malam bahwa Furen sempat mampir dan menyapa mereka, sekedar 
+untuk beramah-tamah, dan menitipkan salam untuk Li Daren. Hari itu sebenarnya Li Daren ingin mengunjungi tempat ini dan menyapa Zhang Jiaozhu, 
+tetapi karena banyaknya penduduk kota yang meyambut kedatangan Zhang Jiaozhu di tempat ini, maka Li Daren memutuskan untuk menunggu hari yang lebih 
+baik, sambil menyiapkan semua laporan yang kami bawa malam ini."
 
+Dalam hati Zhang Wuji merasa lega bahwa Zhao Min sempat mampir ke tempat itu. Ia berkata dengan nada ringan, "Jiang Daren, aku bukan pejabat. 
+Kedatangan kami ke Xiangyang ini adalah karena prihatin, mengingat peristiwa yang terjadi sebelumnya di kota Hanyang. Aku hanya ingin memastikan 
+bahwa kota ini dalam keadaan aman dan tertib. Jadi kalian tidak perlu mengirimkan laporan ini kepadaku."
 
+"Zhang Jiaozhu sungguh rendah hati," kata Jiang Shiqin. "Kami bisa melihat dukungan para penduduk Xiangyang jauh-jauh hari sebelum Zhang Jiaozhu 
+sungguh-sungguh datang ke kota ini. Li Daren sendiri sempat bimbang pada saat beberapa utusan dari Panglima Chen datang kepada kami, dan mereka 
+mengatakan bahwa Kaisar mengutus mereka untuk menyapa Li Daren. Kami semua berpikir, di utara jelas ada seorang Kaisar Toghon Temur yang sudah 
+jelas adalah atasan semua orang. Lalu kemudian di Bozhou juga ada seorang Kaisar lain, sementara di Hanyang juga memiliki Kaisar mereka sendiri. 
+Dari letaknya, kota ini jelas paling dekat dengan Hanyang, maka dari itu Li Daren lalu berpikir untuk segera mengunjungi Tianwan dan mulai saat 
+itu kami akan melapor ke sana. Tetapi sementara menyiapkan semua berkas terkait, ternyata kami mendengar tentang peristiwa pemberontakan yang 
+terjadi di situ, dan selanjutnya istana ditinggalkan. Akhirnya Li Daren memutuskan untuk membatalkan rencananya, dan menunggu perkembangan baru."
 
+Sampai di sini Zhang Wuji menjadi ragu. Baik pihak Xu Shouhui maupun Han Lin'er sebenarnya terkait dengan Ming Jiao. Orang ini jelas sedang mengatakan 
+bahwa majikannya bimbang karena saat ini mereka masih punya Kaisar Toghon Temur di Dadu. Bukankah jika ia menerima apa yang mereka sodorkan, sama 
+saja seperti sedang menempatkan diri di posisi yang sama dengan kedua kaisar yang disebutkannya itu, padahal tadi ia sudah mengatakan bahwa 
+dirinya sama sekali bukan pejabat.
 
+Melihat keraguan Zhang Wuji, dengan segera Zhang Songxi berkata, "Jiang Daren, seperti yang tadi dikatakan oleh Zhang Jiaozhu sendiri, saat itu 
+guruku, Zhang Sanfeng — yang juga adalah kakek guru dari Zhang Jiaozhu — mendapat kehormatan untuk menerima kunjungan Huanghou. Secara kebetulan, 
+Huanghou mendengar keprihatinan kami akan nasib dari rakyat di kota Hanyang dan Xiangyang ini, yang menjadi tak menentu akibat rangkaian peristiwa 
+yang terjadi di beberapa tempat. Ternyata Huanghou juga sedang memikirkan hal yang sama, karena itu beliau segera merestui maksud dari Zhang Jiaozhu 
+untuk datang ke kota ini, guna mamastikan keamanan dan ketertiban bagi rakyat."
+
+Mata Jiang Shiqin berkedip sedikit. Ketika mendengar Zhang Songxi menyebutkan nama Zhang Sanfeng, lututnya agak gemetar. Di kalangan pendekar 
+Jianghu, Zhang Sanfeng sangat disegani karena kungfunya sulit diukur kedalamannya. Di pihak lain, para pemuka agama di negeri ini sangat menghormati 
+Zhang Sanfeng. Kata-katanya dianggap sebagai tolok ukur kebenaran. Dan ketika Zhang Songxi menyebutkan 'Huanghou', ia langsung tahu permaisuri 
+mana yang dimaksud. Permaisuri Bayan jelas tak pernah menonjolkan diri, dan tidak mungkin keluar dari istana untuk pergi ke Wudang. Sedangkan Permaisuri Qi, 
+sudah diketahui bahwa sebelum menjadi selir Kaisar Toghon Temur, ia adalah seorang pendekar wanita yang malang melintang di Jianghu. Tanpa keraguan 
+lagi, ia segera berkata, "Jika demikian, berarti Li Daren sudah mengambil keputusan yang tepat dengan melapor ke sini. Zaixia akan segera menyiapkan 
+semua berkas yang diperlukan untuk serah-terima pengelolaan kota secepatnya. Kami akan memberitahu Zhang Jiaozhu begitu semuanya siap."
+
+"Oh, tunggu sebentar," kata Zhang Wuji. "Jiang Daren, aku sudah mengatakan, bahwa aku sendiri bukan pejabat, dan tidak mengerti bagaimana harus 
+mengelola kota ini. Jadi untuk selanjutnya para pejabat yang bertugas akan tetap sama, karena aku tidak akan mengganti siapapun, kecuali jika 
+ditemukan pelanggaran serius yang membuat kita terpaksa melakukannya. Jadi dalam hal ini tidak akan ada serah-terima yang perlu dilakukan."
+
+Mereka sempat melihat bahwa diam-diam Jiang Shiqin menarik nafas lega begitu mendengar ucapan Zhang Wuji. Ia segera membungkuk hormat sambil 
+berkata, "Zhang Jiaozhu sangat rendah hati. Zaixia sungguh kagum. Sebenarnya semua pejabat di kota ini adalah bawahan Li Daren. Karena itu 
+bagi Zhang Jiaozhu semuanya menjadi lebih sederhana, karena kami akan memberikan laporan harian dan bekerja sama dengan Zhang Jiaozhu mulai 
+sekarang. Li Daren mengerti bahwa pasukan Zhang Jiaozhu tentu membutuhkan biaya yang tidak sedikit. Karena itu Li Daren sudah menyisihkan 
+anggaran bagi Zhang jiaozhu untuk mengelolanya. Semuanya sudah disertakan berikut laporan pendapatan atas pajak bagi kota ini."
+
+"Sampaikan salam kami kepada Li Daren," kata Zhang Wuji lagi. "Kami akan mengunjungi Li Daren secepatnya."
+
+Jiang Shiqin segera minta diri untuk melaporkan hasil kunjungannya kepada atasannya. Zhang Wuji menyuruh Wu Liubo untuk mengantarkannya 
+sampai ke pintu gerbang, dan menyuruh tujuh orang lainnya mengangkut semua peti itu ke meja yang mereka gunakan untuk bekerja.
+
+Setelah itu mereka segera sibuk memeriksa semua laporan itu, berikut sejumlah besar uang yang baru mereka terima dari kantor pejabat kota.
+Peti pertama yang dibuka ternyata disertai beberapa perincian dan catatan yang mengatakan bahwa uang itu dimaksudkan sebagai biaya bagi 
+empat puluh ribu pasukan Zhang Wuji yang ditempatkan di kota itu selama sebulan. Sementara kedua peti lainnya berisi sejumlah besar laporan lengkap 
+dan data-data penting penduduk kota Xiangyang, beserta pajak yang mereka terima selama setahun terakhir.
+
+"Mengapa kedua peti ini tidak langsung dibawa kembali?" tanya Zhang Wuji. "Bukankah aku sudah mengatakan bahwa mereka akan tetap bekerja seperti 
+biasa sebagai pengelola kota?"
+
+Zhang Songxi berkata, "Itu untuk membuktikan kepadamu bahwa jumlah yang tertulis di laporan itu memang sungguh ada."
+
+Yu Daiyan dan Bei Jinyi sedang meneliti beberapa lembar berkas yang berisi total pendapatan atas pajak dan jumlah pajak yang ditetapkan bagi 
+para penduduk kota. Yu Daiyan berkata, "Dari laporan ini, sebenarnya aku menilai pajak yang mereka tetapkan sangat masuk akal. Tapi angka ini 
+bisa jadi agak berat bagi para penduduk miskin."
+
+Bei Jinyi berkata, "Mungkin kita bisa mengatur sesuatu untuk menolong para penduduk yang benar-benar tidak mampu membayar pajak."
+
+Tetapi Zhang Songxi berkata, "Langkah itu akan menimbulkan pertanyaan bagi para penduduk yang lain. Cepat atau lambat malah bisa menimbulkan 
+masalah besar bagi kita. Memang betul kita harus menolong orang-orang miskin, tetapi kita tidak boleh melupakan keadilan bagi orang-orang lainnya."
+
+Zhang Wuji berpikir sejenak, lalu berkata, "Masalah ini tidak mudah diatasi. Sima Zhanglao, besok kita harus mengembalikan kedua peti ini kepada 
+Li Daren. Katakan bahwa kita sudah memeriksanya. Tetapi kita juga minta dibuatkan salinan dari semua laporan ini. Untuk saat ini, sebaiknya 
+kita salin sendiri bagian laporan yang kita anggap penting, dan kita akan mendiskusikannya sekarang juga."
+
+Malam itu mereka semua bekerja sampai larut malam. Bei Jinyi memilih beberapa pelayan perempuan untuk membantunya memilah-milah semua laporan menjadi 
+beberapa kelompok. Ia juga menyuruh semua pelayan lain untuk menyiapkan makanan-makanan kecil bagi mereka semua.
+
+Setelah lewat tengah malam, mereka dikejutkan oleh kedatangan Ding Minjun bersama dengan dua anggota Ming Jiao dari Kaifeng. Sambil mengatur 
+nafasnya, Ding Minjun menceritakan segala peristiwa yang dialaminya bersama teman-temannya di Kaifeng. Ia mengakhiri laporannya dengan 
+kesimpulan Ki Seung Nyang mengenai empat orang pejabat dan militer yang mereka temui itu.
+
+"Hm!" kata Zhang Wuji. "Ternyata apa yang terjadi di belakang layar jauh lebih rumit dari yang kubayangkan semula."
+
+Ia segera mengajak semua orang untuk memisahkan semua nama yang terkait dengan empat nama yang dimaksud oleh Ki Seung Nyang dari catatan 
+yang ditinggalkan Zhou Zhiruo. Pekerjaan itu memerlukan waktu sekitar satu jam. setelah itu ia berkata, "Mulai sekarang, jika ada lagi sumbangan 
+yang datang, dan berkaitan dengan nama-nama ini, lagsung saja dipisahkan, karena kita tidak perlu repot menyelidikinya untuk sementara."
+
+Ia kembli berpikir keras, karena sekarang ia menyadari bahwa jumlah sumbangan lain yang masuk disertai nama-nama baru bahkan lebih banyak dari 
+catatan yang dibuat oleh Zhou Zhiruo dan Zhao Min sampai sejauh ini. Padahal saat ini jumlah orang yang bisa membantunya bekerja malah jauh 
+berkurang. Untuk selanjutnya, bagaimana mereka harus mengatasi semua ini?
+
+Setelah beberapa saat, ia berkata, "Sima Zhanglao, besok kau pergi ke barak Chang Yuchun. Katakan supaya dia mengumpulkan semua pemuda yang 
+magang di situ, yang sudah berusia tujuh belas tahun atau lebih. Kita memerlukan sedikitnya seratus orang, tetapi tidak lebih dari lima ratus, 
+untuk kita tepatkan di sini. Pekerjaan militer bukan hanya mengayunkan pedang dan maju ke medan tempur. Urusan seperti ini juga sama pentingnya. 
+Pekerjaan yang akan mereka tangani adalah pekerjaan rahasia, dan tidak boleh sampai bocor keluar dari tempat ini." Ia berpaling kepada Bei Jinyi 
+dan Yu Daiyan, sambil berkata, "Yu Sanbo, Bei Shijie, jika tidak keberatan, aku ingin minta bantuan untuk memimpin anak-anak muda ini. Bei Shijie 
+bisa mengerahkan anak-anak perempuan yang cukup terampil untuk mengelola pekerjaan semacam ini, dan sudah pandai membaca dan menulis. Mereka 
+akan membantu anak-anak laki-laki itu dalam tugas mereka. Semuanya harus memakai seragam yang sama. Jadi mereka tida memerlukan seragam militer."
+
+Sima Han berkata, "Jiaozhu, seragam untuk mereka sebenarnya sudah siap." Ia memanggil anak buahnya untuk mengambil sebuah contoh seragam yang 
+dimaksud.
+
+[^phoenix]: Burung Phoenix dalam bahasa mandarin adalah Feng Huang (凤凰)
+
+Ternyata seragam yang dibuat itu berwarna putih, dan dilengkapi dengan sulaman bergambar naga dan burung phoenix[^phoenix] yang cukup menyolok. 
+Beberapa orang tertawa melihat gambar itu. "Bagaimana anak laki-laki bisa memakai jubah luar bersulam seperti ini?" kata Fan Yao.
+
+Bei Jinyi tersenyum lebar, lalu berkata kepada Dongfang Yuxian yang masih ada di situ bersama teman-temannya, "Yuxian, coba kau pakai jubah 
+dan topi ini."
+
+Ketika melihat penampilan Dongfang Yuxian, Yu Daiyan berkata, "Ini tidak jelek! Topi itu sungguh bagus, dan seragam itu membuatnya tampak 
+seperti seorang pejabat kecil yang belum ditemukan di mana-mana. Sulaman itu justru membuat orang merasa bahwa mereka semua adalah pejabat 
+yang sangat penting. Pinggiran merah itu menonjolkan semangat muda mereka."
+
+"Sebenarnya topi hitam itu dimaksudkan untuk anak laki-laki," kata Sima Han. "Seragam untuk anak laki-laki semuanya berwarna biru."
+
+"Nah, itu baru benar!" kata Fan Yao. "Tapi kau harus membuat lagi topi yang sama untuk semua anak perempuan yang akan bekerja di situ. 
+Dengan begitu kita dengan mudah akan mengenali mereka."
+
+"Baik," jawab Sima Han.
+
+Zhang Wuji tersenyum lebar, lalu berkata, "Sima Zhanglao, kau siapkan lima ruangan khusus sebagai tempat mereka akan bekerja. Karena pekerjaan 
+mereka adalah rahasia, maka semua ruangan itu harus dijaga ketat. Tempatkan Delapan Panah Dewa untuk menjaga tempat itu bersama orang-orang yang 
+mereka pilih untuk membantu mengawalnya secara bergiliran!"
+
+Sejak itu Zhang Wuji punya sekitar seribu anak-anak muda yang ikut menangani pekerjaannya sehari-hari. Semua orang di sekitar tempat itu mengenal 
+mereka sebagai 'Polisi Rahasia' Ming Jiao.
 
 
