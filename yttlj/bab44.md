@@ -218,14 +218,21 @@ Begitu Jing'er melihat Lu Xian dari kejauhan, ia segera memutar kudanya untuk ke
 Jiang He membuka pintu, dan memberi isyarat kepada kereta Kasim He yang sudah menunggu bersama seratus pengawal yang mengiringi mereka ke situ.
 Jing'er berkuda di depan kereta itu sambil memberi aba-aba supaya para penduduk membuka jalan. 
 
-Melihat Jing'er lewat bersa,a kereta yang mengantar utusan Kekaisaran, semua orang segera memberi jalan, dan mereka melenggang dengan mulus ke 
+Melihat Jing'er lewat bersama kereta yang mengantar utusan Kekaisaran, semua orang segera memberi jalan, dan mereka melenggang dengan mulus ke 
 pintu gerbang. Begitu keluar dari pintu gerbang, Jing'er segera melambaikan bendera putih yang tadi dibawanya dari istana untuk memberi isyarat 
-kepada Zhao Min, supaya menghentikan pertunjukan itu.
+kepada Zhao Min, supaya menghentikan pertunjukan itu. 
 
 Melihat isyarat itu, Zhao Min segera menggerakkan kedua tangannya sebagai tanda bahwa atraksi itu telah selesai. Pasukannya bergerak rapi sambil 
 meneriakkan yel-yel, dan membagi diri menjadi beberapa kelompok di kedua sisi jalan yang akan dilalui oleh kereta Kasim He. Setelah itu Jing'er 
 memberi isyarat kepada pengemudi kereta untuk mulai bergerak. Jing'er memberi isyarat lain supaya beberapa kereta yang mengangkut seragam para 
 prajurit itu juga mulai bergerak ke arah belakang pasukan Zhao Min. 
+
+Ketika kereta Kasim He keluar dari kerumunan penduduk kota melalui jalan sempit yang dibuka oleh pasukan Zhao Min, Jing'er melihat salah satu 
+anak buah Jiang He yang ditempatkan di dalam kereta untuk menggantikan ketiga kasim itu sengaja menjulurkan tangannya keluar dari jendela, 
+dengan maksud mengucapkan selamat tinggal kepada para penduduk kota Hanyang. Jing'er tertawa dalam hati, setelah melihat bahwa tak seorang pun 
+dari penduduk kota menanggapi lambaian tangannya. Mata semua orang sedang tertuju pada atraksi penutup Zhao Min. Mana ada orang yang tertarik pada 
+seorang kasim istana yang akan meninggalkan mereka untuk pulang ke utara? Jing'er berpikir, "Siapa yang akan menduga, bahwa Kasim He yang asli  
+sudah meninggalkan kota beberapa saat yang lalu, dan langsung menuju ke hutan di sebelah barat kota?"
 
 Barisan Zhao Min bergerak sangat rapi, semua orang yang sedang menonton di luar pintu gerbang sama sekali tidak menyadari, bahwa ketika kereta 
 yang tadinya membawa Kasim He datang itu meninggalkan pintu gerbang, dan mengikuti sekelompok pasukan pengawal, kelompok lain diberi aba-aba supaya 
@@ -233,12 +240,83 @@ bergerak melingkar untuk menutup pandangan para penonton. Pada saat itulah keret
 lalu barisan berikutnya segera bergerak mengikuti rombongan yang telah beranjak dari pintu gerbang kota Hanyang dengan dipimpin langsung oleh 
 Zhao Min.
 
-Baru pada saat itu para penduduk menyadari bahwa pertunjukan itu sudah bubar, dan rombongan Kasim He juga sudah meninggalkan Hanyang.
+Baru pada saat itu para penduduk menyadari bahwa pertunjukan itu sudah selesai, dan rombongan Kasim He juga sudah meninggalkan Hanyang.
 
-Xu Da bersama pasukannya sendiri bergerak mendekat ke pintu gerbang. Xu Da keluar dari barisan yang dipimpinnya beberapa meter, lalu 
+Xu Da bersama pasukannya sendiri bergerak mendekat ke pintu gerbang. Xu Da melangkah beberapa meter dari barisan yang dipimpinnya, lalu 
 mengumumkan kepada para penduduk kota bahwa atraksi militer itu sudah selesai, dan mereka harus segera membubarkan diri dengan tertib.
 
 ***
+
+Kabar mengenai peristiwa itu dengan cepat tersiar sampai ke Bozhou dan didengar oleh Liu Futong dan Han Lin'er. Kabar yang mereka dengar adalah mengenai 
+Shaomin Junzhu dan Walikota Zhou, tetapi Han Lin'er telah mendengar dari mata-matanya sendiri bahwa saat ini Zhou Zhiruo sedang berada di Hanyang.
+
+Saat ini Han Lin'er telah berusia menjelang tujuh belas tahun, tentu saja ia bukan anak kecil lagi. Sejak pertama kalinya ia bertemu dengan 
+Zhou Zhiruo, ia tidak dapat melupakannya sampai sekarang. Di matanya, Zhou Zhiruo seolah-olah bukan datang dari dunia ini. Dalam hatinya ia 
+agak menyesali fakta bahwa Zhou Zhiruo sudah saling mencintai dengan Zhang Wuji, yang baginya adalah seorang pahlawan besar. Meskipun begitu, 
+baginya mereka berdua memang sungguh adalah pasangan yang serasi, jadi ia cukup terhibur setelah tahu bahwa kedua orang itu sangat memperhatikan 
+keselamatannya, dan mengirimkan dukungan ketika ia sendiri kehilangan ayahnya.
+
+Setelah ia mendengar bahwa Zhou Zhiruo telah menjadi istri Zhang Wuji — ketua mereka — dan menempati kota Xiangyang, Han Lin'er ingin mengirim 
+utusan untuk mengucapkan selamat, tetapi Liu Futong tidak menyetujuinya, dengan alasan bahwa selain menikahi Zhou Zhiruo, ternyata Zhang Wuji 
+juga menikahi Zhao Min, seorang Putri Mongolia. Bukankah ini berarti Zhang Wuji seorang pengkhianat?
+
+Hal ini membingungkan bagi Han Lin'er. Ia menyelidiki semua itu, dan menemukan fakta bahwa Zhao Min ternyata telah diusir oleh ayahnya sendiri, 
+karena itulah ia dengan bebas bisa mengikuti Zhang Wuji. Terbukti, ada orang mengatakan bahwa Chaghan Temur tidak hadir pada saat mereka menikah.
+Han Lin'er tidak ingin berdebat dengan Liu Futong, dan menyimpan penemuan itu di dalam hatinya.
+
+Sekarang ia kembali mendengar bahwa Zhou Zhiruo telah menjadi Walikota Hanyang, dan serta-merta ia berkata, "Paman Liu, kurasa sekarang kita 
+harus memberi ucapan selamat kepada Walikota Zhou."
+
+"Huang Shang," kata Liu Futong dengan hati-hati. "Yang mengangkat Zhou Zhiruo menjadi walikota adalah Kaisar Mongolia — Toghon Temur, yang 
+berarti _musuh kita_. Bagaimana kita bisa mengucapkan selamat atas pengangkatannya? Kota itu sebelumnya adalah milik Hongjin Qiyi!"
+
+"Tetapi sekarang ini Nona Zhou adalah istri dari Zhang Jiaozhu, yang sekarang menduduki Xiangyang," jawab Han Lin'er. "Siapapun yang mengangkatnya 
+menjadi walikota, berarti Hanyang cepat atau lambat tetap akan menjadi milik Jiaozhu. Setahuku, tak ada orang yang mengangkat Jiaozhu sebagai apapun 
+di situ. Zhang Jiaozhu datang sendiri, begitu saja, dan langsung mendudukinya. Orang-orang di situ tidak ada yang menentangnya."
+
+Sampai di sini, Liu Futong tidak menjawab. Ketika pertama kalinya Zhang Wuji muncul, ia sendiri terpesona. Ia tak pernah melihat ada orang lain 
+yang memiliki karisma seperti Zhang Wuji. Tetapi akhirnya ia melihat bahwa Zhang Wuji sama sekali tidak punya ambisi maupun bakat untuk berkuasa 
+dari sisi politik. Ini sangat mengecewakannya. Untungnya hal ini tidak mengganggu rencananya sendiri dengan Han Shantong, yang sejauh itu sudah 
+berjalan. Dalam perkembangan, Han Shantong mulai tidak sejalan dengan pemikirannya, karena Han Shantong sangat terpengaruh oleh karisma Zhang Wuji.
+
+Setelah Han Shantong meninggal, rencananya kembali berjalan mulus, karena Han Lin'er masih kecil, dengan sendirinya sangat membutuhkan nasihatnya. 
+Tetapi seperti ayahnya, ternyata Han Lin'er juga sangat mengagumi Zhang Wuji, dan bahkan akhirnya juga mengagumi Zhou Zhiruo. Jika ia bersikap 
+menentang Zhang Wuji secara terang-terangan, maka banyak orang akan segera menyerangnya. Akhirnya ia sengaja mengangkat Zhu Yuanzhang menjadi 
+Kepala Daerah Jiangxi, karena ia tahu bahwa orang ini sebelumnya punya masalah dengan Zhang Wuji. Tetapi anehnya hubungan mereka berdua kelihatannya 
+malah semakin membaik. Sekarang ini Han Lin'er justru sedang mempertanyakan sikapnya kepada Zhang Wuji, dan ia tak punya pilihan lain kecuali 
+menjawab dengan cara sebelumnya, tetapi ia berusaha menekankan tentang soal lain, "Huang Shang, bukankah dengan begitu berarti tak ada orang yang 
+mengakui kekuasaan Zhang Wuji sendiri, sedangkan Huang Shang adalah penguasa Kekaisaran Song kita ini. Mengapa Huang Shang justru merendahkan 
+diri dengan mengagung-agungkan orang yang _bukan siapa-siapa_ ini?"
+
+Dalam hati Han Lin'er berkata, "Kau bilang aku Kaisar, tetapi nyatanya aku harus selalu menyetujui pendapatmu, lalu apa bedanya? Berarti bagimu, 
+_aku_ juga bukan siapa-siapa." Tetapi ia berkata, "Paman, aku mendengar bahwa Xu Shouhui sebenarnya sudah mengirimkan surat resmi, yang isinya adalah 
+menyerahkan istananya di Hanyang kepada Zhang Wuji. Bukankah dengan begitu Xu Shouhui masih mengakui Zhang Wuji _sebagai ketua_, meskipun 
+dia sendiri adalah Kaisar Tianwan? Jika Kekaisaran Tianwan, dan bahkan juga Kekaisaran Yuan, mengirimkan dukungan kepada Zhou Zhiruo, sementara 
+di sana rakyat sangat menyukainya, sedangkan kita ternyata sama sekali tidak mengirimkan apa-apa, bagaimana _rakyat_ akan memandang kita?"
+
+Di istana itu Liu Futong memiliki sebuah peta yang sangat besar, yang jauh lebih sempurna ketimbang hasil kerja Yu Daiyan dan kawan-kawan yang 
+dikerjakan secara terburu-buru. Mendengar kalimat Han Lin'er terakhir itu, Liu Futong mulai tergerak. Ia mendekati petanya, dan meneliti jalur 
+dari Bozhou sampai ke Hanyang, lalu melanjutkannya sampai ke Hangzhou, dan dari situ tangannya bergerak melalui Nanjing, hingga akhirnya kembali 
+ke Bozhou. Setelah memikirkannya lagi berulang-ulang, sekarang ia mulai menyadari bahwa ide Han Lin'er tadi sama sekali tidak buruk. Bahkan sekarang 
+ia mulai bisa membayangkan jika mereka bisa menyatukan wilayah itu menjadi bagian negeri Song mereka, maka ini adalah sebuah pencapaian yang 
+terasa lebih baik ketimbang mereka berusaha bergerak ke utara.
+
+Liu Futong lalu berkata, "Aku bisa melihat gagasan di balik usul Huang Shang tadi. Ini memang tidak jelek, dan kukira sudah saatnya kita berusaha 
+membangun hubungan baik dengan Xu Shouhui. Sekarang ini Xu Shouhui sedang berada di Jiangxi, dan aku yakin dia dalam keadaan tidak menguntungkan.
+Sebelumnya Chen Youliang memang pernah menyulitkan Huang Shang, jadi langkah ini sekaligus untuk menguji ketulusannya. Kita akan mengirimkan surat 
+bernada biasa saja, yang pasti akan mereka pahami sebagai langkah awal untuk membangun hubungan baik. Langkah selanjutnya akan kita pikirkan setelah 
+mendapat kabar dari utusan itu."
+
+Han Lin'er sangat gembira. Ia berkata, "Kalau begitu aku akan menulis surat ke Hanyang sekarang. Paman Liu menulis ke Jiangxi. Suratku juga hanya 
+berisi ucapan selamat biasa."
+
+Setelah surat-surat itu selesai ditulis, Han Lin'er membubuhkan stempel resmi mereka di atas keduanya. Mereka mengirimkan seorang utusan ke Hanyang, 
+dan seorang lagi ke Jiangxi.
+
+
+***
+
+
 
 
 
