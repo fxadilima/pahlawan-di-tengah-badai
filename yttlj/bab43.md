@@ -1420,7 +1420,7 @@ Ia segera mengajak semua orang untuk memisahkan semua nama yang terkait dengan e
 yang ditinggalkan Zhou Zhiruo. Pekerjaan itu memerlukan waktu sekitar satu jam. setelah itu ia berkata, "Mulai sekarang, jika ada lagi sumbangan 
 yang datang, dan berkaitan dengan nama-nama ini, lagsung saja dipisahkan, karena kita tidak perlu repot menyelidikinya untuk sementara."
 
-Ia kembli berpikir keras, karena sekarang ia menyadari bahwa jumlah sumbangan lain yang masuk disertai nama-nama baru bahkan lebih banyak dari 
+Ia kembali berpikir keras, karena sekarang ia menyadari bahwa jumlah sumbangan lain yang masuk disertai nama-nama baru bahkan lebih banyak dari 
 catatan yang dibuat oleh Zhou Zhiruo dan Zhao Min sampai sejauh ini. Padahal saat ini jumlah orang yang bisa membantunya bekerja malah jauh 
 berkurang. Untuk selanjutnya, bagaimana mereka harus mengatasi semua ini?
 
@@ -1430,7 +1430,7 @@ untuk kita tepatkan di sini. Pekerjaan militer bukan hanya mengayunkan pedang da
 Pekerjaan yang akan mereka tangani adalah pekerjaan rahasia, dan tidak boleh sampai bocor keluar dari tempat ini." Ia berpaling kepada Bei Jinyi 
 dan Yu Daiyan, sambil berkata, "Yu Sanbo, Bei Shijie, jika tidak keberatan, aku ingin minta bantuan untuk memimpin anak-anak muda ini. Bei Shijie 
 bisa mengerahkan anak-anak perempuan yang cukup terampil untuk mengelola pekerjaan semacam ini, dan sudah pandai membaca dan menulis. Mereka 
-akan membantu anak-anak laki-laki itu dalam tugas mereka. Semuanya harus memakai seragam yang sama. Jadi mereka tida memerlukan seragam militer."
+akan membantu anak-anak laki-laki itu dalam tugas mereka. Semuanya harus memakai seragam yang sama. Jadi mereka tidak memerlukan seragam militer."
 
 Sima Han berkata, "Jiaozhu, seragam untuk mereka sebenarnya sudah siap." Ia memanggil anak buahnya untuk mengambil sebuah contoh seragam yang 
 dimaksud.
@@ -1454,7 +1454,7 @@ Dengan begitu kita dengan mudah akan mengenali mereka."
 
 "Baik," jawab Sima Han.
 
-Zhang Wuji tersenyum lebar, lalu berkata, "Sima Zhanglao, kau siapkan lima ruangan khusus sebagai tempat mereka akan bekerja. Karena pekerjaan 
+Zhang Wuji tersenyum lebar, lalu berkata, "Sima Zhanglao, kau siapkan lima ruangan khusus sebagai tempat mereka bekerja. Karena pekerjaan 
 mereka adalah rahasia, maka semua ruangan itu harus dijaga ketat. Tempatkan Delapan Panah Dewa untuk menjaga tempat itu bersama orang-orang yang 
 mereka pilih untuk membantu mengawalnya secara bergiliran!"
 
