@@ -1,6 +1,6 @@
 # Bab 43
 
-![Ilustrasi Bab 43](/assets/images/Yuan-Dynasty-12.jpg "Munculnya Shaoli Junzhu")
+![Ilustrasi Bab 43](/assets/images/Yuan-Dynasty-1.jpg "Pekerjaan yang baik")
 
 Ketika rombongan Zhou Zhiruo yang membawa keluarga Chen Youliang sedang menuju ke istana Xu Shouhui, di Xiangyang
 Zhang Wuji sedang menikmati makan malam bersama Yang Xiao, Fan Yao, Bei Jinyi dan Sima Han.
