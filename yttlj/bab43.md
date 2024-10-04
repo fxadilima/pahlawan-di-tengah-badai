@@ -2,6 +2,8 @@
 
 ![Ilustrasi Bab 43](/assets/images/Yuan-Dynasty-1.jpg "Pekerjaan yang baik")
 
+## Lahirnya Para Pejabat Kecil
+
 Ketika rombongan Zhou Zhiruo yang membawa keluarga Chen Youliang sedang menuju ke istana Xu Shouhui, di Xiangyang
 Zhang Wuji sedang menikmati makan malam bersama Yang Xiao, Fan Yao, Bei Jinyi dan Sima Han.
 
@@ -1459,6 +1461,6 @@ mereka adalah rahasia, maka semua ruangan itu harus dijaga ketat. Tempatkan Dela
 mereka pilih untuk membantu mengawalnya secara bergiliran!"
 
 Sejak itu Zhang Wuji punya sekitar seribu anak-anak muda yang ikut menangani pekerjaannya sehari-hari. Semua orang di sekitar tempat itu mengenal 
-mereka sebagai 'Polisi Rahasia' Ming Jiao.
+mereka sebagai 'Polisi Rahasia' Ming Jiao. Mereka adalah pasukan kebanggaan Zhang Wuji, Yu Daiyan dan Bei Jinyi.
 
 
