@@ -248,13 +248,14 @@ mengumumkan kepada para penduduk kota bahwa atraksi militer itu sudah selesai, d
 ***
 
 Kabar mengenai peristiwa itu dengan cepat tersiar sampai ke Bozhou dan didengar oleh Liu Futong dan Han Lin'er. Kabar yang mereka dengar adalah mengenai 
-Shaomin Junzhu dan Walikota Zhou, tetapi Han Lin'er telah mendengar dari mata-matanya sendiri bahwa saat ini Zhou Zhiruo sedang berada di Hanyang.
+Shaomin Junzhu dan Walikota Zhou, tetapi Han Lin'er telah mendengar dari mata-matanya sendiri bahwa saat ini Zhou Zhiruo sedang berada di Hanyang, 
+jadi ia langsung bisa menyimpulkan bahwa 'Walikota Zhou' yang dimaksud itu pasti adalah Zhou Zhiruo.
 
 Saat ini Han Lin'er telah berusia menjelang tujuh belas tahun, tentu saja ia bukan anak kecil lagi. Sejak pertama kalinya ia bertemu dengan 
 Zhou Zhiruo, ia tidak dapat melupakannya sampai sekarang. Di matanya, Zhou Zhiruo seolah-olah bukan datang dari dunia ini. Dalam hatinya ia 
 agak menyesali fakta bahwa Zhou Zhiruo sudah saling mencintai dengan Zhang Wuji, yang baginya adalah seorang pahlawan besar. Meskipun begitu, 
-baginya mereka berdua memang sungguh adalah pasangan yang serasi, jadi ia cukup terhibur setelah tahu bahwa kedua orang itu sangat memperhatikan 
-keselamatannya, dan mengirimkan dukungan ketika ia sendiri kehilangan ayahnya.
+baginya kedua orang itu sungguh adalah pasangan yang serasi, jadi ia cukup terhibur setelah tahu bahwa mereka sangat memperhatikan keselamatannya, 
+dan mengirimkan dukungan ketika ia sendiri kehilangan ayahnya.
 
 Setelah ia mendengar bahwa Zhou Zhiruo telah menjadi istri Zhang Wuji — ketua mereka — dan menempati kota Xiangyang, Han Lin'er ingin mengirim 
 utusan untuk mengucapkan selamat, tetapi Liu Futong tidak menyetujuinya, dengan alasan bahwa selain menikahi Zhou Zhiruo, ternyata Zhang Wuji 
@@ -305,7 +306,12 @@ Liu Futong lalu berkata, "Aku bisa melihat gagasan di balik usul Huang Shang tad
 membangun hubungan baik dengan Xu Shouhui. Sekarang ini Xu Shouhui sedang berada di Jiangxi, dan aku yakin dia dalam keadaan tidak menguntungkan.
 Sebelumnya Chen Youliang memang pernah menyulitkan Huang Shang, jadi langkah ini sekaligus untuk menguji ketulusannya. Kita akan mengirimkan surat 
 bernada biasa saja, yang pasti akan mereka pahami sebagai langkah awal untuk membangun hubungan baik. Langkah selanjutnya akan kita pikirkan setelah 
-mendapat kabar dari utusan itu."
+mendapat kabar dari utusan itu." Ia menarik nafas panjang, lalu menambahkan, "Sebenarnya tindakan Chen Youliang menduduki Jiangxi itu juga harus 
+segera diurus. Kita sudah memberikan Jiangxi sebagai wilayah kekuasaan Zhu Yuanzhang, tetapi sampai sekarang dia sama sekali tidak menangani masalah ini."
+
+"Dia pasti ragu-ragu, karena kita belum mengeluarkan komentar resmi mengenai hal itu," kata Han Lin'er.
+
+"Baiklah," kata Liu Futong. "Kita akan mengirim utusan ke Jiangxi dan Hanyang untuk mengantar surat."
 
 Han Lin'er sangat gembira. Ia berkata, "Kalau begitu aku akan menulis surat ke Hanyang sekarang. Paman Liu menulis ke Jiangxi. Suratku juga hanya 
 berisi ucapan selamat biasa."
@@ -313,9 +319,145 @@ berisi ucapan selamat biasa."
 Setelah surat-surat itu selesai ditulis, Han Lin'er membubuhkan stempel resmi mereka di atas keduanya. Mereka mengirimkan seorang utusan ke Hanyang, 
 dan seorang lagi ke Jiangxi.
 
+***
+
+Ketika utusan yang dikirim oleh Han Lin'er dan Liu Futong belum mencapai setengah dari perjalanan mereka dari Bozhou menuju ke Jiangxi dan Hanyang, 
+Ding Minjun yang ditemani oleh seorang anggota Panji Lima Elemen Ming Jiao telah mencapai kota Hangzhou bersama tiga anggota Pasukan Muda Berseragam 
+dari Xiangyang. Ding Minjun hanya perlu beristirahat sehari sebelum Zhang Wuji mengirimnya untuk menemani Dou Sujian, Ah Zhu dan Dongfang Yuxian untuk 
+melaksanakan tugas pertama mereka dengan mengenakan seragam bersulam. Kungfu Dou Sujian masih sangat lemah, sedangkan kedua anak perempuan itu 
+jelas masih belum cukup dewasa. Kehadiran Ding Minjun dan seorang anggota Panji Api membuat Zhang Wuji merasa jauh lebih aman ketika melepas 
+mereka untuk bertugas dari Xiangyang.
+
+Ketika mereka tiba di markas besar Ming Jiao, Yang Xiao sedang berdiskusi dengan Leng Qian, Zhang Zhong, Yin Yewang dan Zhu Yuanzhang. Semua orang 
+sangat kaget melihat kehadiran mereka yang tanpa pemberitahuan terlebih dahulu. Tetapi mereka sangat terkesan ketika melihat penampilan tiga orang 
+anak muda yang mengenakan seragam bersulam itu. 
+
+Ding Minjun berkata, "Zhang Jiaozhu merasa bahwa urusan ini sangat penting dan mendesak, dan bersifat sangat rahasia. Karena itu kami tidak 
+memberitahu siapapun sebelumnya. Hal ini memang tidak bisa disampaikan melalui surat."
+
+Yang Xiao bertanya, "Urusan apa yang begitu mendesak dan rahasia, sampai Jiaozhu mengirim anak-anak muda ini kemari?"
+
+"Mereka bertiga memang anggota pasukan Jiaozhu yang baru," kata Ding Minjun. "Isi pesan-pesan itu sendiri, detilnya bahkan aku sendiri tidak tahu." 
+Ia berpaling kepada Dou Sujian. "Kalian bisa menyampaikannya sekarang."
+
+Dou Sujian, Ah Zhu dan Dongfang Yuxian maju selangkah sambil menyerahkan sebuah bungkusan yang mereka bawa kepada Yang Xiao. Dou Sujian berkata, 
+"Yang Zuoshi, ketiga paket ini berisi semua detil yang hanya boleh dibaca oleh kalian semua yang sekarang hadir di sini. Nama-nama yang ada di situ 
+semuanya sudah diteliti, tetapi Jiaozhu mengandalkan hasil penyelidikan kalian sebelum bisa menarik kesimpulan. Selain itu Jiaozhu masih menitipkan 
+tiga nama yang harus kalian selidiki di wilayah ini. Kami sudah menyelidikinya di wilayah lain, tetapi hasil dari kalian sangat penting."
+
+Ah Zhu maju ke sisi Yang Xiao, lalu mengambil kuas, mencelupkannya ke tinta, dan menuliskan tiga nama yang dimaksud di atas kertas kosong. Yang Xiao 
+hanya melihat tiga nama, 'Ming Yuzhen, Tian Feng, dan Wang Shicheng'. Setelah memastikan bahwa Yang Xiao telah mengingat ketiga nama itu, Ah Zhu 
+segera merobek kertas itu, lalu membakarnya.
+
+Ah Zhu menambahkan, "Jiaozhu sekali lagi menegaskan bahwa ketiga nama itu tidak boleh sampai bocor, yaitu bahwa kita sedang menyelidiki mereka. 
+Karena itulah aku diharuskan membakar tulisanku setelah Yang Zuoshi mengingatnya. Begitu juga bagi kalian. Kalian harus mendiskusikan semuanya 
+dalam rapat tertutup."
+
+Yang Xiao mengangguk, lalu berkata, "Sekarang kami memahami alasan Jiaozhu mengirim kalian ke sini. Masih ada pesan lain?"
+
+Dongfang Yuxian melangkah maju ke arah Zhu Yuanzhang, lalu berkata, "Sebelum menyampaikan perintah ini, kami bertiga harus mendengar sendiri 
+Zhu Dashuai bersumpah bahwa akan menjaga kerahasiaan misi ini sampai saat yang akan ditentukan oleh Jiaozhu. Jika Dashuai tidak bersedia, maka 
+kami tidak akan mengatakan apa-apa, tetapi Jiaozhu sama sekali tidak memaksa Dashuai."
+
+Zhu Yuanzhang segera berlutut sambil meletakkan tangan di dada, lalu mengucapkan sumpahnya dengan disaksikan oleh semua pejabat Ming jiao yang 
+hadir di situ. Dongfang Yuxian melanjutkan, "Jiaozhu secara resmi menunjuk Zhu Yuanzhang untuk melaksanakan misi yang berkaitan dengan dokumen 
+yang tadi telah kami serahkan. Misi ini akan dipimpin langsung oleh Yang Zuoshi di belakang layar, tetapi pelaksanaan di lapangan hanya akan 
+dilakukan oleh Zhu Dashuai. Para pejabat Ming Jiao lainnya sama sekali tidak boleh ikut bertindak. Surat penunjukan dan tanda pengenal khusus 
+ini sekarang diberikan kepada Zhu Dashuai, sebagai pegangan untuk Zhu Dashuai sendiri." Ia dengan sikap hormat dan resmi menyerahkan tanda pengenal 
+Zhang Wuji berikut surat penunjukan bagi Zhu Yuanzhang.
+
+Zhu Yuanzhang menerima surat dan tanda pengenal itu dengan sikap sangat hormat, lalu berkata, "Zhu Yuanzhang akan mempertaruhkan nyawa demi 
+melaksanakan perintah Jiaozhu!"
+
+Setelah itu, Dongfang Yuxian kembali ke tempatnya semula, di sisi kiri Dou Sujian. 
+
+Ding Minjun berkata, "Sekarang tugas kami sudah selesai, dan kami harus segera kembali ke Xiangyang. Jika kalian ingin menitipkan pesan, maka 
+kami akan membawanya pulang."
+
+Semua orang berunding sejenak, lalu Yang Xiao menulis sebuah surat pendek, dan memberikannya kepada Ding Minjun.
+
+Tim kecil itu segera minta diri untuk segera kembali ke Xiangyang. Misi pertama dari pasukan Zhang Wuji telah diselesaikan dengan baik.
+
+Dari Hangzhou diam-diam mereka berhenti di luar kota, lalu ketiga anak muda itu mengganti seragam mereka dengan pakaian biasa. Meraka tidak langsung 
+kembali ke Xiangyang, melainkan menuju ke Nanjing. Dalam perjalanan ke Hangzhou, mereka mampir di Hanyang untuk menyampaikan pesan dari Zhang Wuji. 
+Mereka sekarang sedang melaksanakan titipan tugas dari Zhou Zhiruo untuk menemui Ma Xiuying. Setelah semuanya beres, mereka langsung keluar dari 
+Nanjing, dan mengambil jalan pintas untuk kembali ke Xiangyang tanpa melalui Hanyang.
 
 ***
 
+Kira-kira dua minggu kemudian, di Kaifeng, Ki Seung Nyang menerima seorang pemuda tanggung dan dua orang anak perempuan, yang semuanya mengenakan 
+seragam bersulam. Mereka datang bersama Ding Minjun dan seorang anggota Panji Api Ming Jiao dari Xiangyang. Sebelumnya ia menerima sebuah surat 
+pendek dari Zhang Wuji yang menjelaskan tentang kedatangan ketiga anak muda itu. Karena itu, begitu melihat mereka datang, Ki Seung Nyang segera 
+menyuruh semua orang lain keluar.
+
+Ki Seung Nyang dan Yin Li mengamati dengan penuh perhatian penampilan ketiga anak muda itu, dari atas ke bawah, lalu berkata sambil tersenyum, 
+"Seragam yang kalian pakai sangat menarik. Siapa yang membuatnya?"
+
+[^mayor]: Walikota, Zhenzhang (镇长), Xiangzhang (乡长), atau Shizhang (市长). Karakter Zhen adalah kota yang terkecil di antara ketiga istilah tersebut, dan Shi adalah yang terbesar.
+
+Pemuda tanggung yang datang ke situ bernama Situ Peng. Dua bulan yang lalu ia merayakan ulang tahunnya yang ketujuh belas. Ia datang bersama 
+dengan para pemuda desa yang mengiringi rombongan Zhang Wuji dari Wudang. Ia sama sekali tak tahu siapa yang merancang seragam yang mereka 
+pakai saat itu, jadi ia hanya bisa menoleh kepada dua orang anak perempuan yang datang bersamanya dengan pandangan bertanya.
+
+Dongfang Yuxian menjawab mewakili yang lain, "Zhou Xiangzhang dan Shaomin Junzhu yang merancangnya, ketika mereka masih di Xiangyang. Saat itu 
+kami baru tiba dari Chang'an."
+
+Ketika mendengar Dongfang Yuxian menggunakan istilah 'Xiangzhang'[^mayor] untuk memanggil Zhou Zhiruo, dan Shaomin Junzhu bagi Zhao Min, Ki Seung Nyang 
+tersenyum lebar. Ia berpikir, "Sungguh cepat cara mereka mendidik anak-anak ini. Dalam waktu singkat mereka bisa bersikap formal seperti 
+orang dewasa." 
+
+Ia berkata, "Bagus, tapi selama di sini kalian tidak perlu bersikap kaku begini. Aku justru ingin kalian bersikap seperti biasa."
+
+Ah Zhu berkata, "Jiaozhu menyuruh kami membiasakan diri berbicara seperti ini jika sedang menghadapi orang lain."
+
+"Oh, itu betul! Bagus, bagus!" kata Ki Seung Nyang lagi. "Tapi Jiaozhu pasti sudah mengatakan bahwa kalian harus melakukan sesuatu bersamaku 
+selama di sini. Nah, untuk melakukannya, aku ingin kalian bersikap biasa. Bahkan bisa jadi kalian harus berpura-pura bodoh."
+
+Ding Minjun segera melihat, bahwa diam-diam Dongfang Yuxian menarik nafas lega. Ia berkata sambil tertawa, "Anak ini agak bandel, jadi sebaiknya 
+Furen berhati-hati. Pekerjaannya juga seringkali berantakan."
+
+"Hm," kata Ki Seung Nyang. "Sekarang aku ingin mendengar, apa saja yang akan dikirim dari selatan?"
+
+"Seratus orang anak laki-laki, dan seratus orang anak perempuan, semuanya sudah pandai membaca dan menulis," kata Ah Zhu. "Semuanya dipilih 
+sendiri oleh Zhou Xiangzhang dari tempat penampungan pengungsi itu. Mereka akan dikawal oleh dua puluh orang prajurit berpakaian biasa dari Hanyang. 
+Seharusnya mereka akan tiba di sini dalam satu-dua hari ini."
+
+Ki Seung Nyang tertawa senang. "Luar biasa!" katanya. "Berarti kita bisa segera mulai. Aku sedang menyiapkan tempat di dekat sini untuk mereka 
+bekerja. Dari luar tempat itu hanya akan terlihat sebagai tempat berjualan babi panggang dan kain. Mereka akan bekerja di dalam. Seorang anak 
+penjual babi di pasar adalah orang kita, tetapi dia hanya akan menjadi penghubung ke pihak lain, jadi jangan mengatakan sesuatu yang bersifat 
+rahasia kepadanya. Pemilik kios yang menjual kain di pasar itu juga adalah orang kita, tugasnya sama seperti penjual babi itu."
+
+Ia menoleh kepada Ding Minjun sambil berkata, "Murid-murid Emei Pai yang datang bersamamu itu sekarang sudah bisa kau ajak kembali ke Xiangyang. 
+Aku ingin minta bantuan Emei untuk mengurus hal yang sama seperti yang sedang kita tangani saat ini, tetapi khusus di wilayah utara. Kau bisa 
+menyampaikan hal ini kepada ketua kalian?"
+
+"Sejak Jing Xuan memimpin Emei, kami memang lebih banyak menerima murid baru yang rata-rata masih di bawah dua puluh tahun. Mereka akan 
+sangat cocok untuk membantu pekerjaan ini," kata Ding Minjun. "Minjun akan membicarakannya dengan Jing Xuan. Tapi untuk itu Minjun harus 
+kembali ke Emei untuk sementara."
+
+"Baik," kata Ki Seung Nyang. "Kau bisa menghubungiku setelah siap. Kau bisa membawa burung merpati dari tempat ini." Ia lalu menoleh kepada 
+yang lain. "Kalian masih punya hal lain untukku?"
+
+Situ Peng yang agak pemalu menyerahkan sebuah peti berisi dokumen-dokumen yang mereka bawa dari Xiangyang, lalu berkata, "Jiaozhu menitipkan 
+semua ini. Nama-nama yang ada di sini berasal dari utara, tapi tidak ada yang dari Kaifeng."
+
+"Bagus, untuk sementara kalian boleh beristirahat. Ganti pakaian kalian supaya jangan menarik perhatian. Han Lin akan memberikan pakaian yang sudah 
+disiapkan untuk kalian sementara ada di sini," kata Ki Seung Nyang. Ia berhenti sejenak, lalu menambahkan, "Jika sedang berjalan-jalan di pasar, 
+perhatikan baik-baik setiap kali kalian mendengar sesuatu tentang 'Shaoli Junzhu'."
+
+Ding Minjun agak heran. "Mungkin maksud Furen 'Shaomin Junzhu'," katanya.
+
+"Maksudku memang Shaoli Junzhu," kata Ki Seung Nyang dengan tenang. "Dia memang belum menampakkan diri, tapi sekarang ini ada di hadapan kalian."
+
+Ding Minjun segera menyadari, di situ hanya ada satu orang yang namanya mengandung 'Li', yaitu Yin Li, yang saat itu sedang cekikikan sambil 
+menatapnya. Ia berkata, "Ternyata kau."
+
+"Tidak usah iri," kata Yin Li sambil tertawa. "Kau hanya perlu merayu penjual babi. Bibi pasti akan membuatmu menjadi Junzhu."
+
+"Ah Li!" tegur Ki Seung Nyang. "Kalau kau terus mengganggu orang, aku akan mengirimmu ke istana. Setelah itu jangan berharap untuk keluar dari situ."
+
+Satu hal yang paling ditakuti Yin Li adalah terpaksa tinggal di satu tempat, dan tidak bisa bepergian. Karena itu ia segera menghentikan 
+gurauannya.
 
 
 
