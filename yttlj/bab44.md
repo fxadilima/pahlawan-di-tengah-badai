@@ -802,8 +802,8 @@ melihat surat itu dari jauh akan mengira bahwa stempel itu adalah milik Kaisar, 
 Para prajurit yang mendukung operasi itu datang dari pejabat yang dihubunginya melalui Mu Jiande, anak penjual babi di pasar, dengan memakai nama 
 Yin Li sebagai 'Shaoli Junzhu'. Setelah menerima seekor babi panggang utuh, pejabat itu kemudian menerima kedatangan Yin Li sebagai Shaoli Junzhu, 
 sambil menunjukkan tanda pengenal Permaisuri Qi. Dengan begitu pejabat itu langsung tahu bahwa Yin Li — entah seorang Junzhu atau bukan — memang 
-adalah orang kepercayaannya, yang sedang melaksanakan tugas atas namanya sebagai seorang permaisuri. Dengan begitu, pejabat itu lalu menggunakan 
-pengaruhnya untuk meminjam dua ratus orang prajurit untuk dikerahkan ke kantor Fang Diande.
+adalah orang kepercayaannya, yang sedang melaksanakan tugas atas namanya sebagai seorang permaisuri. Dengan begitu, pejabat itu kemudian tidak ragu 
+sedikitpun menggunakan pengaruhnya untuk meminjam dua ratus orang prajurit, yang dikerahkan Yin Li ke rumah dinas Fang Diande.
 
 Semua pesan dari pejabat itu disusun dengan cara unik, sesuai dengan perjanjian yang sudah ditentukan sebelumnya dengan Han Lin. Setelah menulis isi
 suratnya, ia akan membagi semua karakter itu menjadi kelompok yang terdiri dari empat kali empat. Masing-masing kelompok itu kemudian diputar 
@@ -814,6 +814,188 @@ apa yang dilakukan oleh pasukan rahasia Zhang Wuji di Xiangyang.
 
 Setelah Han Lin memberitahu kuncinya, Situ Peng, Ah Zhu dan Dongfang Yuxian, bisa menyelesaikan teka-teki itu dalam lima belas menit.
 
+## Mengelola Wilayah Kecil
+
+Ki Seung Nyang sama sekali tidak muncul ketika Fang Diande ditangkap. Ia sedang duduk tenang di rumah sambil menikmati beberapa jenis kue yang mereka 
+beli di pasar tadi siang, dan sesekali menyeruput teh hangat sambil berpikir-pikir. Setelah merasa kenyang, ia lalu tidur di kamarnya selama 
+dua jam. 
+
+Ia baru terbangun ketika mendengar pintu kamarnya diketuk. Ketika membuka pintu, ia melihat wajah Yin Li dan Dongfang Yuxian yang sedang tersenyum 
+lebar. Sebelum Ki Seung Nyang sempat bicara, mereka tak dapat lagi menahan diri, lalu tertawa terbahak-bahak, sambil masuk dan duduk di sekitar 
+meja bundar yang terletak di tengah kamar itu. Ki Seung Nyang hanya tersenyum sambil menggeleng-gelengkan kepalanya, karena sudah bisa menebak 
+apa yang terjadi.
+
+Lima menit kemudian barulah keduanya bisa menceritakan apa saja yang mereka alami sepanjang sore itu, di depan rumah dinas Fang Diande.
+
+Setelah cerita itu selesai, barlah Ki Seung Nyang bertanya, "Lalu bagaimana kalian akan menangani semua urusan di kantor itu, setelah Fang Diande 
+dan semua jajarannya ditangkap?"
+
+Baru saat itu Yin Li menyadari bahwa berikutnya dialah yang akan bertanggung jawab untuk mengelola semua urusan di kantor itu. Ia terdiam dan 
+tidak berani menjawab.
+
+Dongfang Yuxian berkata, "Bukankah selanjutnya kita akan memilih orang-orang baru untuk bekerja di situ?"
+
+Ki Seung Nyang tersenyum. "Anak ini selalu mencari cara gampang untuk menjawab segala hal," pikirnya. Ia kemudian berkata, "Dan bagaimana jika 
+yang datang mendaftar jumlahnya mencapai seratus ribu orang? Kalian ingin menanyai mereka satu per satu?"
+
+Dongfang Yuxian terdiam, karena ia memang belum pernah memikirkan pertanyaan itu.
+
+Ki Seung Nyang bangkit dari tempat duduknya, lalu menggandeng tangan keduanya, dan berkata, "Sekarang sudah waktunya makan malam. Sebaiknya 
+kalian bertiga masak nasi, atau ubi yang masih ada di dapur. Aku akan menyuruh An Shubiao membeli daging dan sayuran di pasar. Setelah dia pulang, 
+masak semua bahan itu menurut selera kalian. Kita rayakan semua itu sambil membicarakan cara mengelola wilayah yang tadinya dikerjakan oleh 
+Fang Diande dan jajarannya."
+
+Ia lalu memberikan sejumlah uang kepada An Shubiao dan Situ Peng untuk membeli bahan makanan di pasar. Kemudian ia menyuruh Han Lin mencatat jumlah pejabat yang 
+menjadi bawahan Fang Diande, para pengawalnya, dan semua orang lain yang ada di rumah dinas itu. Ia merasa lega bahwa mereka tidak meninggalkan tempat itu
+begitu saja, karena semua barang yang ada di situ — terutama sekali laporan-laporan dan arsip-arsip — semuanya penting bagi mereka. Ia menyuruh 
+Han Lin tetap di rumah itu, sementara dua orang pengawal pribadinya yang lain disuruhnya menjaga rumah dinas Fang Diande. Segera setelah An Shubiao 
+pulang dari pasar, ia juga menyuruhnya bersama Situ Peng pergi ke situ untuk merapikan semua catatan dan berkas-berkas penting yang mereka 
+tinggalkan.
+
+Sambil menunggu Yin Li dan kedua anak perempuan itu selesai memasak, ia lalu duduk di ruang makan sambil memejamkan matanya untuk menyusun 
+kalimat yang akan dikatakannya kepada mereka. Dari empat pengawal pribadinya itu, Han Lin adalah yang tertua, usianya sudah tiga puluh satu tahun, 
+dan sampai sekarang ia belum menikah. An Shubiao hanya setahun lebih muda. Mereka berdua jelas berasal dari suku Han. Tetapi Han Lin dilahirkan di 
+Henan, sementara An Shubiao berasal dari Jiangnan. Kedua orang lainnya masing-masing berasal dari Guangxi dan Goryeo, dan juga sudah menjelang tiga 
+puluh tahun. Mereka berdua mengikuti Ki Seung Nyang, Toghon Temur, Mei Jian dan Ah Luo, sejak sebelum Toghon menjadi Kaisar Dinasti Yuan ini.
+
+Setelah Yin Li dan kedua anak perempuan itu datang dengan masakan mereka, ia membuka matanya perlahan-lahan. Aroma masakan khas Jiangnan memenuhi 
+penciumannya. Ia berkata, "Hmm, kelihatannya kalian semua pandai memasak."
+
+Yin Li tertawa sambil meletakkan ubi rebus di meja, dan berkata, "Bibi, aku cuma bisa merebus ubi-ubi ini. Semua sayuran dan daging ini adalah 
+masakan Ah Zhu dan Yuxian."
+
+"Zhou Xiangzhang yang mengajar kami semua memasak," kata Ah Zhu terus terang. Sebenarnya ia lebih menyukai Zhao Min, tetapi soal memasak, ia 
+tetap harus mengakui kelebihan Zhou Zhiruo.
+
+"Di Xiangyang, tidak ada orang yang tidak menyukai masakan Zhou Xiangzhang!" tambah Dongfang Yuxian dengan penuh semangat. Ia memang sangat 
+menyukai masakan Zhou Zhiruo. Meskipun ia kurang teliti, tetapi kalau soal memasak, ia dengan cepat belajar dari Zhou Zhiruo. Selain Lingshan, 
+Dongfang Yuxian adalah murid kesayangan Zhou Zhiruo jika bicara soal memasak.
+
+"Baiklah," kata Ki Seung Nyang. "Malam ini kalian boleh merayakan kemenangan sebentar. Ayo kita makan!"
+
+Sambil menyendok nasi, Yin Li baru menyadari ketidakhadiran banyak orang. "Mana yang lain?" katanya.
+
+"Aku menyuruh An Shubiao dan lainnya membeli makanan mereka sendiri, karena mereka harus menjaga rumah dinas Fang Diande," kata Ki Seung Nyang. 
+"Kurasa Han Lin masih di depan, menulis laporan kegiatan mereka hari ini."
+
+Yin Li mengambil mangkuk, mengisinya dengan nasi sampai penuh, lalu menambahkan banyak sayuran dan daging ke atasnya. Ia berkata, "Biar aku 
+mengantar makanan ini untuknya."
+
+"Ternyata di balik sikapnya yang aneh, anak ini sebetulnya berhati lembut," pikir Ki Seung Nyang.
+
+Mereka makan malam sambil bercanda, tak terasa lebih dari separuh makanan itu habis tanpa jejak. Padahal semuanya disiapkan untuk sembilan orang, 
+sedangkan saat ini mereka hanya berlima.
+
+Tiba-tiba Ki Seung Nyang teringat akan sesuatu, lalu bertanya, "Para pelayan dan petugas kebersihan juga kau tangkap?"
+
+Yin Li sudah selesai makan, dan saat itu sedang minum arak. Dongfang Yuxian mewakilinya menjawab, "Karena para pengawal ingin melawan, akhirnya 
+Junzhu menangkap semua orang."
+
+"Hm, para pelayan dan petugas kebersihan tidak bersalah," kata Ki Seung Nyang. "Kurasa masih banyak orang lain yang tidak bersalah di sini. 
+Kalian harus segera membebaskan pelayan dan petugas kebersihan itu."
+
+"Baik, aku akan segera ke sana," jawab Yin Li. "Tadi aku hanya takut para penduduk akan melampiaskan kekesalan mereka, dan malah melukai 
+semua orang itu, karena itulah aku memutuskan untuk membawa mereka semua."
+
+"Jika kau biarkan terlalu lama, aku takut mereka akan dipindahkan ke tempat lain," kata Ki Seung Nyang sambil berpikir.
+
+"Mengapa?"
+
+"Karena ini memang aturan yang berlaku di Dinasti Yuan," kata Ki Seung Nyang lagi. "Sebaiknya kau cepat ke sana sebelum mereka dipindahkan.
+Setelah itu baru akan kuceritakan selengkapnya."
+
+Yin Li segera mengambil pedangnya, lalu memakai mantel merah yang dikenakannya tadi sore. 
+
+"Junzhu, biar kami berdua ikut!" kata Dongfang Yuxian. 
+
+Ketiganya segera berlari keluar dan menaiki kuda mereka, lalu berpacu ke kantor Penegak Hukum Kaifeng.
+
+Para petugas di situ sedang ramai membicarakan apa yang terjadi tadi sore. Ketika melihat kedatangan Yin Li, mereka buru-buru menyapa 
+sambil membungkuk hormat, "Junzhu!"
+
+Tanpa menunjukkan tanda pengenal apapun, Yin Li segera berkata, "Aku ingin menemui mereka semua!"
+
+Mereka dipersilakan untuk mengikuti beberapa petugas yang mengantarkan sampai ke sebuah tempat yang digunakan untuk menampung semua orang 
+yang akan diadili. "Kami menempatkan semuanya di satu blok," kata salah seorang petugas. "Para pelayan perempuan ditempatkan di blok lain."
+
+"Bawa aku ke situ!" kata Yin Li.
+
+Segera setelah mereka tiba di tempat itu, Yin Li berkata dengan nada tegas, "Bebaskan semua pelayan ini! Aku yang akan membawanya, mereka 
+akan tetap bekerja di situ, jadi kalian bisa menanyai mereka semua sewaktu-waktu, jika memang diperlukan!"
+
+"Baik, Junzhu!" jawab petugas itu, tanpa berani bertanya lagi.
+
+Petugas itu membuka pintu penjara, dan menyuruh semua pelayan perempuan itu keluar mengikuti Yin Li. Mereka memanggil beberapa pengawal untuk 
+mengiringi rombongan itu di sepanjang jalan.
+
+Yin Li berkata, "Bebaskan juga para petugas kebersihan! Tadi aku menyuruh kalian menangkap semuanya, supaya mereka tidak dilempari batu oleh 
+para penduduk kota. sebetulnya mereka tidak bersalah."
+
+"Baik!"
+
+Dari situ, mereka keluar melalui blok lain menuju ke deretan panjang yang menampung aneka macam orang yang melakukan kejahatan. Telinga mereka 
+mendengar berbagai suara, mulai dari yang memohon, memaki-maki, sampai yang menangis sambil berteriak-teriak. Semuanya terasa menyayat hati.
+Setibanya di deretan tempat para tahanan yang baru tiba dari rumah dinas Fang Diande, Yin Li bertanya, "Fang Daren juga ditahan di sini?"
+
+"Tidak," jawab seorang petugas. "Kami menempatkannya di bagian khusus."
+
+"Bagus," kata Yin Li lagi.
+
+Mereka melewati beberapa ruang yang berisi para pegawai Fang Diande. Telinga mereka segera mendengar suara memohon, menangis, dan ada yang memaki-maki 
+Shaoli Junzhu. Yin Li mengabaikan semuanya dan bertanya, "Mana para petugas kebersihan itu? Ini termasuk juga para petugas yang merawat kandang 
+kuda!" 
+
+"Semuanya ditempatkan di bagian paling ujung."
+
+"Bebaskan mereka semua!" kata Yin Li dengan tegas.
+
+Mendengar Yin Li mengatakan hal itu, semua tahanan yang berasal dari rumah dinas Fang Diande lainnya semakin keras memohon dan menangis. Tetapi Yin Li 
+mengabaikan mereka.
+
+Setelah semua orang yang disebutkannya dibebaskan, ia lalu berbalik dan bersiap untuk meninggalkan tempat itu. Ia berkata, "Ah Zhu, Yuxian. kalian 
+bawa mereka semua keluar, lalu kawal semuanya kembali ke rumah dinas. Suruh An Shubiao dan yang lain mengatur mereka di situ!"
+
+"Baik, Junzhu!" jawab kedua anak itu. Mereka mendahului Yin Li berjalan keluar.
+
+Suara teriakan dan rengekan itu semakin keras ketika mereka mendengar Yin Li akan pergi. Tiba-tiba telinga Yin Li mendengar suara salah satu dari 
+mereka memakinya, "Goblok! Seventar lagi kau akan berurusan dengan Bolad Temur!"
+
+Mendengar kalimat itu, Yin Li segera berbalik ke arah sumber suara, lalu melangkah cepat mendatangi ruangannya. Ia berteriak, "Apa katamu? 
+Coba ulangi sekali lagi!"
+
+Tetapi semua orang terdiam mendengar teriakannya. Yin Li menghantam beberapa jeruji dengan gagang pedangnya, lalu mengulangi kalimatnya 
+dengan suara lebih keras dan galak, "Tadi kau bilang apa? Aku tidak dengar! Coba ulangi!"
+
+Rupanya salah seorang petugas kebetulan melihat siapa yang mengatakan kalimat itu. Ia segera mendekat, lalu memukul jeruji penjara dengan tongkat 
+besinya sambil berkata, "Hei, kau! Cepat mendekat — Junzhu memanggilmu!"
+
+Sebagian orang buru-buru menyingkir untuk menghindari tudingan tongkat pengawas itu, hingga akhirnya hanya tersisa seorang pria bertubuh sedang, 
+yang masih mengenakan topi dan jubah seperti pejabat rendah Dinasti Yuan. Pengawas itu membentaknya, "Hei, cepat sini!"
+
+Merasa tak punya pilihan, ia kemudian mendekat, tetapi menjaga jarak sekitar satu setengah meter dari jangkauan tongkat pengawas itu.
+
+Yin Li mengambil obor dari tangan si pengawas, lalu memberi isyarat dengan tangannya supaya orang itu mendekat. Suasana menjadi hening ketika 
+orang itu maju selangkah dengan muka ketakutan. Lalu Yin Li berkata, "Siapa namamu?"
+
+Orang itu tidak menjawab, dan menundukkan kepalanya untuk menghindari tatapan Yin Li.
+
+"Kau tadi bilang apa?" ulang Yin Li. "Aku ingin mendengarnya lagi!"
+
+Ia mendekatkan obornya ke muka orang itu. Saat itu, di bawah cahaya obor, bekas-bekas luka di wajah Yin Li membuat orang itu mundur selangkah. 
+Tengkuknya terasa dingin. Ia cepat-cepat mengalihkan pandangannya ke arah lain.
+
+Yin Li berkata sambil tertawa ringan, "Sebenarnya aku ingin membantumu, tapi sayangnya kau tidak mau bekerja sama. Aku tidak bisa berbuat apa-apa."
+
+Ia berpaling kepada pengawas rumah tahanan itu sambil berkata dengan nada dingin, "Pisahkan orang ini dari semua orang lain!"
+
+"Baik, Junzhu!"
+
+Setelah itu Yin Li mengajak para ajudannya meninggalkan tempat itu tanpa menengok lagi.
+
+
+
 ***
+
+
 
 
