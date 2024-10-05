@@ -929,7 +929,7 @@ Petugas itu membuka pintu penjara, dan menyuruh semua pelayan perempuan itu kelu
 mengiringi rombongan itu di sepanjang jalan.
 
 Yin Li berkata, "Bebaskan juga para petugas kebersihan! Tadi aku menyuruh kalian menangkap semuanya, supaya mereka tidak dilempari batu oleh 
-para penduduk kota. sebetulnya mereka tidak bersalah."
+para penduduk kota. Sebetulnya mereka tidak bersalah."
 
 "Baik!"
 
@@ -958,7 +958,7 @@ bawa mereka semua keluar, lalu kawal semuanya kembali ke rumah dinas. Suruh An S
 "Baik, Junzhu!" jawab kedua anak itu. Mereka mendahului Yin Li berjalan keluar.
 
 Suara teriakan dan rengekan itu semakin keras ketika mereka mendengar Yin Li akan pergi. Tiba-tiba telinga Yin Li mendengar suara salah satu dari 
-mereka memakinya, "Goblok! Seventar lagi kau akan berurusan dengan Bolad Temur!"
+mereka memakinya, "Goblok! Sebentar lagi kau akan berurusan dengan Bolad Temur!"
 
 Mendengar kalimat itu, Yin Li segera berbalik ke arah sumber suara, lalu melangkah cepat mendatangi ruangannya. Ia berteriak, "Apa katamu? 
 Coba ulangi sekali lagi!"
