@@ -1,6 +1,8 @@
 # Bab 44
 
-![Ilustrasi Bab 44](/assets/images/seder-olam-synagogue-kaifeng.jpg "Sinagoga Seder Olam di Kaifeng")
+![Ilustrasi Bab 44](/assets/images/kaifeng-3.jpg "Kejutan di Kaifeng")
+
+## Kejutan di Kaifeng
 
 Dua hari kemudian, pagi-pagi sekali, Zhao Min dan Zhou Zhiruo tertawa ketika membaca surat dari Zhang Wuji yang menceritakan tentang 
 pasukan baru mereka di Xiangyang, yang terdiri dari anak-anak muda berseragam. Meskipun Zhang Wuji hanya menulis bahwa semua anak itu 
@@ -674,15 +676,15 @@ itu buru-buru masuk sambil membawa kedua benda yang diberikan Yin Li.
 
 Tak lama kemudian ia keluar lagi bersama seorang pria setengah baya, yang bertubuh gemuk, berwajah bulat, dengan tahi lalat cukup besar di atas 
 alis kanannya. Pria itu diikuti dari belakang oleh dua orang pelayan yang membawa nampan, yang diatasnya masing-masing dipenuhi oleh deretan 
-uang perak yang tersusun rapi. Ia segera mendekat ke arah Yin Li, lalu menyapa dengan sikap hormat yang dibuat-buat, "Rupanya kami mendapat 
-kehormatan untuk bertemu langsung dengan Shaoli Junzhu. Para pengawal kami masih baru, mereka belum tahu bagaimana seharusnya menyambut tamu 
-kehormatan seperti Junzhu." Ia menoleh kepada para pengawalnya, lalu membentak, "Kalian tidak segera minta maaf kepada Junzhu?"
+uang perak yang tersusun rapi. Ia segera mendekat ke arah Yin Li, lalu menyapa dengan sikap hormat yang dibuat-buat, "Rupanya Fan Diande hari ini 
+mendapat kehormatan untuk bertemu langsung dengan Shaoli Junzhu. Para pengawal kami masih baru, mereka belum tahu bagaimana seharusnya menyambut kedatangan 
+tamu terhormat seperti Junzhu." Ia menoleh kepada para pengawalnya, lalu membentak, "Kalian tidak segera minta maaf kepada Junzhu?"
 
 Yin Li segera berkata, "Fang Daren, kami tidak punya waktu untuk basa-basi seperti ini. Tadi aku sudah memberikan pilihan, tetapi Fang Daren 
 ternyata memilih untuk bicara di sini. Jadi sekarang juga aku akan menyelesaikan semuanya." Ia memberi isyarat kepada Situ Peng dan kedua gadis 
 kecil itu supaya maju ke dekatnya.
 
-Melihat itu, Pejabat Fang cepat-cepat menyuruh kedua pelayannya yang membawa nampan untuk maju mendekat. Ia berkata sambil tertawa, "Ah, Junzhu, 
+Melihat itu, Fang Diande cepat-cepat menyuruh kedua pelayannya yang membawa nampan untuk maju mendekat. Ia berkata sambil tertawa, "Ah, Junzhu, 
 ini hanya kesalahpahaman kecil. Kita bisa membicarakannya lain waktu. Dan kita pasti akan menyelesaikan semuanya dengan cara damai."
 
 Jumlah orang yang berkerumun untuk melihat kejadian itu semakin banyak. Mereka mulai berbisik-bisik ketika melihat uang yang terletak di kedua nampan 
@@ -695,8 +697,8 @@ sini sekarang!" Ia kembali kepada pejabat itu. "Dan mereka semua akan mulai bers
 Dongfang Yuxian segera mengajak para penduduk yang sedang menunggu di belakang barisan prajurit yang mengiringi mereka untuk mendekat. Ia meminta 
 kerumunan orang di situ memberi jalan dengan sopan.
 
-Saat itu Ah Zhu mengambil selembar kertas dari dalam kotak kayu yang dibawanya, lalu menunjukkannya kepada Pejabat Fang dengan muka dingin 
-tanpa mengatakan apa-apa. Setelah itu Situ Peng membuka gulungan kain kuning keemasan, dan membentangkannya di hadapan si pejabat, supaya 
+Saat itu Ah Zhu mengambil selembar kertas dari dalam kotak kayu yang dibawanya, lalu menunjukkannya kepada Fang Diande dengan muka dingin 
+tanpa mengatakan apa-apa. Setelah itu Situ Peng membuka gulungan kain kuning keemasan, dan membentangkannya di hadapan Fang Diande, supaya 
 pejabat itu bisa membaca isinya dengan jelas.
 
 Muka pejabat itu berubah pucat. Di atas kertas yang dipegang Ah Zhu, ia dengan jelas bisa membaca bahwa laporan itu ditulis dan ditandatangani 
@@ -710,7 +712,7 @@ Saat itu, Yin Li melihat bahwa kepala pengawal diam-diam memerintahkan kepada an
 kalian! Atau anak buahku akan segera bertindak. Jika kalian masih ingin bekerja di sini, sebaiknya kalian mengikuti perintahku mulai sekarang." 
 Ia berpaling kepada keempat pengawalnya. "Han Lin, ambil semua senjata mereka!"
 
-Han Lin bersama sekitar seratus prajurit segara bergerak untuk melucuti senjata para pengawal Pejabat Fang.
+Han Lin bersama sekitar seratus prajurit segara bergerak untuk melucuti senjata para pengawal Fang Diande.
 
 Yin Li menatap pejabat itu dengan muka serius sambil menggeleng-gelengkan kepalanya, lalu memberi isyarat kepada Ah Zhu. Setelah mengangguk hormat, 
 Ah Zhu kemudian membacakan apa yang tertera di atas kertas yang dipegangnya dengan suara nyaring dan jernih, supaya bisa didengar oleh semua 
