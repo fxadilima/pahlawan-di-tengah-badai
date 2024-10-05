@@ -428,7 +428,7 @@ penjual babi di pasar adalah orang kita, tetapi dia hanya akan menjadi penghubun
 rahasia kepadanya. Pemilik kios yang menjual kain di pasar itu juga adalah orang kita, tugasnya sama seperti penjual babi itu."
 
 Ia menoleh kepada Ding Minjun sambil berkata, "Murid-murid Emei Pai yang datang bersamamu itu sekarang sudah bisa kau ajak kembali ke Xiangyang. 
-Aku ingin minta bantuan Emei untuk mengurus hal yang sama seperti yang sedang kita tangani saat ini, tetapi khusus di wilayah utara. Kau bisa 
+Aku ingin minta bantuan Emei untuk mengurus hal yang sama seperti yang sedang kita tangani saat ini, tetapi khusus di wilayah barat. Kau bisa 
 menyampaikan hal ini kepada ketua kalian?"
 
 "Sejak Jing Xuan memimpin Emei, kami memang lebih banyak menerima murid baru yang rata-rata masih di bawah dua puluh tahun. Mereka akan 
@@ -459,6 +459,359 @@ menatapnya. Ia berkata, "Ternyata kau."
 Satu hal yang paling ditakuti Yin Li adalah terpaksa tinggal di satu tempat, dan tidak bisa bepergian. Karena itu ia segera menghentikan 
 gurauannya.
 
+Ki Seung Nyang menulis sebuah surat yang cukup panjang kepada Zhang Wuji, lalu menyerahkannya kepada Ding Minjun sambil berkata, "Aku memang 
+bisa mengirimkannya dari sini melalui burung merpati. Tetapi ini mengandung tulisan yang bisa membocorkan pergerakan kita, jadi aku menitipkannya 
+kepadamu. Untuk mencapai Emei, bukankah kau bisa mampir di Xiangyang sebentar?"
 
+"Tidak masalah," kata Ding Minjun. "Kemungkinan Bei Jinyi juga ingin menyampaikan pesan ke Emei."
+
+Ding Minjun segera minta diri untuk kembali ke Xiangyang.
+
+Sorenya, Ki Seung Nyang mengajak Yin Li dan ketiga anak muda yang baru datang dari Xiangyang itu berjalan-jalan ke pasar. Mereka disapa oleh 
+beberapa pemilik kios yang sementara itu sudah cukup akrab dengan Ki Seung Nyang dan Yin Li. Mereka membeli beberapa jenis makanan kecil yang 
+mereka tawarkan, lalu Ki Seung Nyang berkata kepada Yin Li, "Ah Li, kau ajak adik-adikmu membeli babi panggang untuk kita semua! Mama tunggu 
+kalian di kios yang menjual kain itu." Ia lalu memberikan sejumlah uang kepada Yin Li.
+
+Anak penjual babi panggang itu sedang melayani seorang pelanggan ketika mereka tiba di situ. Tanpa menunggu ia selesai melayani pelanggan, 
+Yin Li bertanya sambil tersenyum lebar, "Dage, pesanan ibuku sudah siap?"
+
+"Ah, rupanya Junzhu!" kata pemuda itu. "Ada, tapi belum kusiapkan. kalian tunggu sebentar."
+
+Ini adalah cara mereka berkomunikasi. Pemuda bernama Mu Jiande itu memanggil Yin Li dengan sebutan 'Junzhu', karena sebelumnya nama itulah yang 
+diketahuinya. Ia juga tahu bahwa orang-orang di pasar itu mengenalnya sebagai 'Yin Li', seperti yang disebutkan Ki Seung Nyang sendiri. Tetapi karena 
+ia kemudian mendapat sebuah pekerjaan istimewa dari seorang pejabat, yang menerima seekor babi panggang utuh dari ibu dan anak itu, dan pejabat 
+itu selalu menyebutkan nama Yin Li sebagai 'Shaoli Junzhu', maka ia kemudian merasa bahwa Yin Li sebenarnya memang adalah seorang Junzhu, sesuai 
+dengan nama yang dicantumkan sebagai pengirim hadiah untuk si pejabat. Cara Yin Li membayarkan pajak bagi salah seorang pemilik kios di dekat 
+tempat mereka berjualan sebelumnya ikut mendukung kesimpulannya.
+
+Mulai saat itu si pejabat akan mengirimkan seorang pesuruh ke tempat itu, dan membeli babi panggang, sambil menitipkan sebuah pesan yang harus 
+disampaikannya kepada Yin Li, jika mereka mampir di situ. Pesuruh itu akan memberikan sejumlah uang yang cukup besar, dan Mu Jiande sendiri 
+hanya perlu belajar bagaimana cara berkomunikasi. Mu Jiande tidak akan mengerti apa-apa, kalaupun ia sengaja membaca isi pesan yang disampaikan 
+si pejabat, demikian juga isi pesan yang disampaikan oleh Yin Li kepada si pejabat, karena pesan-pesan itu ditulis dalam bahasa sandi, yang hanya 
+bisa dimengerti oleh Ki Seung Nyang dan si pejabat itu sendiri.
+
+Setelah selesai melayani pelanggannya, Mu Jiande segera memotong-motong babi panggang untuk Yin Li, sambil menyelipkan pesan yang sudah dimasukkan 
+ke dalam kemasan obat yang terbuat dari lilin di antara potongan makanan itu. Tak lama kemudian, Yin Li membayar harga makanan itu, dan mereka pun 
+meninggalkan kios Mu Jiande.
+
+Setibanya di kios penjual kain yang dimaksud Ki Seung Nyang, mereka segera disambut oleh pemilik kios, "Junzhu! Furen menunggu di dalam, silakan 
+kalian masuk." Ia menyuruh anak buahnya mengantarkan Yin Li dan ketiga temannya masuk. Ia sendiri tetap di situ untuk menjaga kiosnya seperti biasa.
+
+Mereka ternyata dibawa ke sebuah ruangan lain yang lebih besar, dan di situ Ki Seung Nyang tampak sedang berbicara dengan Han Lin. Melihat 
+kedatangan mereka, Ki Seung Nyang hanya mengangguk, lalu menyuruh Han Lin meneruskan apa yang sedang dikatakannya, "Berarti di tengah-tengahnya 
+memang ada cukup banyak. Karena itu para pemilik kios ini semuanya merasa berat."
+
+"Baik, kalau begitu sore ini juga kita datangi," jawab Ki Seung Nyang. Sekarang juga kau bawa hasilnya ke rumah kita."
+
+Tanpa bicara lagi, Han Lin segera meninggalkan tempat itu. Setelah ia pergi, Ki Seung Nyang berkata kepada orang yang mengantarkan Yin Li 
+dan tiga anak muda lainnya ke situ, "Tolong sampaikan terima kasih kepada majikanmu, kami akan segera pulang. Sore ini juga kumpulkan semua orang 
+yang menyampaikan keluhan untuk menuju ke situ. Kami akan tiba sekitar dua jam sebelum makan malam. Mulai sekarang kalian boleh merasa lega, karena 
+Junzhu akan mengambil alih semua pekerjaan di situ."
+
+Orang itu tampak senang, lalu mengucapkan terima kasih atas nama majikannya. Ia mempersilakan mereka untuk mengikutinya menuju ke pintu belakang.
+Karena saat itu sudah hampir jam makan siang, maka mereka langsung pulang ke rumah yang disewa oleh Ki Seung Nyang sebagai pos bagi mereka di Kaifeng.
+Setibanya di ruang tamu, Ki Seung Nyang segera menyuruh Yin Li menyisihkan pesan yang disampaikan oleh pejabat setempat kepadanya melalui anak 
+penjual babi panggang. Hidangan itu langsung dibawa ke dapur untuk disiapkan sebagai tambahan makan siang bagi mereka semua.
+
+Dengan cekatan kedua anak perempuan itu membantu Yin Li mengatur makanan-makanan kecil dan buah-buahan yang mereka beli di pasar di atas piring, lalu 
+membawanya ke ruang tamu. Sementara itu, Han Lin dan tiga pengawal lainnya datang sambil membawa bakpao dan beberapa menu makan siang mereka lainnya. 
+Situ Peng juga membantu mereka mengaturnya di atas piring. Mereka semua kemudian membawa makanan itu ke ruang tamu.
+
+Ki Seung Nyang berkata dengan ringan untuk membuka rapat kecil itu, "Setelah murid-murid Emei dan Ming Jiao pergi, tempat ini menjadi sepi. 
+Kalian mungkin sudah terbiasa dikelilingi oleh banyak orang di Xiangyang, tapi kalian harus bisa menyesuaikan diri dengan perubahan situasi 
+apapun."
+
+Ternyata ketiga anak muda itu tidak semuanya sepakat dengan apa yang dikatakannya, Situ Peng hanya pemuda tanggung dari sebuah desa kecil di 
+dekat Perguruan Wudang yang didirikan oleh Zhang Sanfeng. Desanya tidak terlalu ramai, dan ia sendiri kurang pandai bergaul, jadi ia hanya 
+punya dua orang teman dekat yang setiap hari bekerja di sawah milik orang tua mereka masing-masing. Ketika rombongan Zhang Wuji berarak menuju 
+ke Xiangyang, ia dan kedua teman dekatnya dengan segera minta ijin kepada orang tua masing-masing untuk mengikuti mereka. 
+
+Orang tua Situ Peng sangat mengagumi Zhang Sanfeng, dan dengan tekun mengikuti nasihat orang tua itu, yang kadang-kadang berjalan kaki keluar 
+dari perguruannya untuk menyapa para tetangga. Ketika orang tua Zhang Wuji meninggal di Wudang, kabar itu didengar oleh para penduduk desa di sekitarnya. 
+Zhang Cuishan dan enam saudaranya dikenal sebagai Tujuh Pendekar Wudang, yang banyak menolong para penduduk miskin dan tertindas, jadi peristiwa 
+itu membuat mereka semua sangat berduka. Berita tentang kiprah Zhang Wuji yang membuat perubahan besar-besaran di Ming Jiao itu sudah agak 
+lama mereka dengar. Jadi ketika mendengar bahwa rombongan Zhang Wuji sedang berarak ke Xiangyang demi melindungi kota itu dari gangguan yang 
+mungkin timbul akibat pemberontakan Ni Wenjun di Hanyang, mereka tanpa ragu-ragu segera melepas anaknya. Hanya salah seorang teman baik Situ Peng 
+yang tidak mendapat ijin pergi, karena ayahnya sedang sakit, sementara ia sendiri hanya anak tunggal.
+
+Tidak seperti Ah Zhu dan Dongfang Yuxian, yang sebelumnya sempat membantu ketua Kai Pang saat ini, Shi Hongshi, di Chang'an, Situ Peng sama sekali 
+tidak merasa bahwa rumah besar itu sepi. Tetapi karena ia secara alamiah pendiam dan pemalu, maka ia juga tidak mengatakan apa-apa saat mendengar 
+ucapan Ki Seung Nyang.
+
+Meskipun Ki Seung Nyang adalah seorang permaisuri, tetapi saat itu ia ingin membuat suasana menjadi santai dan akrab bagi semua orang. Ia bahkan 
+duduk seenaknya sambil makan bakpao besar ditemani babi panggang tanpa memperhatikan sopan-santun yang biasa dilakukannya ketika berada di istana. 
+Melihat gayanya, tanpa malu-malu semua orang ikut makan dengan cara yang sama. Han Lin dan tiga pengawal lainnya sudah lama mengikuti Ki Seung Nyang 
+jika ia sedang keluar dari istana seperti ini. Mereka bisa membaca situasi, dan tahu persis sikap seperti apa yang harus mereka tunjukkan.
+
+"Ah Li, coba tunjukkan pesan yang kalian dapat tadi," kata Ki Seung Nyang sambil minum seteguk arak. "Kalian bertiga perhatikan baik-baik 
+apa yang ada di situ."
+
+Yin Li membuka lembaran pesan itu, lalu meletakkannya di atas meja.
+
+Begitu membacanya sekilas, Dongfang Yuxian segera berkata, "Ah, ini mirip seperti yang baru saja kita selidiki di Xiangyang!"
+
+"Begitukah?" kata Ki Seung Nyang terkejut. Ia lupa menggigit makanannya. "Ceritakan apa yang kalian lakukan!"
+
+Ah Zhu berkata, "Jiaozhu menemukan banyak kertas yang tertinggal di kemah sebelah utara. Sebelumnya sempat ada lima ribu orang prajurit melarikan 
+diri dari kemah itu. Kebanyakan memang hanya surat biasa, tetapi ada sekitar sepuluh lembar yang berisi surat dengan kalimat-kalimat kacau 
+seperti ini. Kami sebetulnya tidak tahu bagaimana harus mulai meneliti surat-surat itu, tetapi menurut Jiaozhu surat-surat itu pasti ditulis dengan cara 
+mengacak karakter-karakter yang dipakai dengan aturan tertentu, yang hanya bisa dipahami oleh penerimanya. Kebetulan Ah Peng memang pernah 
+menangani masalah semacam ini di kemah Komandan Chang."
+
+Ki Seung Nyang menatapnya dengan pandangan bertanya. Ah Zhu segera menoleh kepada Situ Peng.
+
+Merasa Ki Seung Nyang sedang menunggu jawabannya, Situ Peng berkata, "Saat itu Jiaozhu membawa salah satu surat ke perkemahan Komandan Chang, 
+ada dua perwira yang pernah menangani hal semacam ini di Haozhou. Aku hanya disuruh membantu mereka menyusun ulang kalimat-kalimat itu. Setelah 
+tahu orang-orang yang melarikan diri itu adalah anak buah Chen Youliang, kedua perwira itu lalu memakai patokan itu untuk mencoba menebak cara 
+mereka menyusun kalimat di dalam surat itu, tetapi akhirnya mereka gagal."
+
+"Lalu bagaimana caranya, sampai kalian akhirnya menemukan isi surat yang sebenarnya?" tanya Ki Seung Nyang.
+
+"Saat itu Jiaozhu teringat beberapa formasi yang dipakai oleh Chen Youliang untuk memimpin anak buahnya di Kai Pang ketika berkelahi melawan Jiaozhu," 
+jawab Situ Peng. Ia mengambil kuas dan menggambarkan beberapa formasi yang mirip piramida, lingkaran, dan rantai. Kemudian ia melanjutkan 
+keterangannya, "Akhirnya kedua perwira itu mencoba menyusun ulang semua karakter di dalam surat berdasarkan gambar-gambar ini. Hanya dalam beberapa 
+menit, kami lalu menemukan potongan kalimat yang masuk akal, berdasarkan formasi berbentuk lingkaran. Begitu melihatnya, Jiaozhu langsung mambawa 
+semua surat itu ke markas, dan mulai saat itulah aku sendiri bergabung dengan mereka semua."
+
+Ki Seung Nyang terbelalak. Ia bertanya, "Jadi baru saat itu kau sendiri menangani masalah ini? Dan kalian semua juga belum mengerti apa-apa 
+ketika semua itu dibawa ke markas?"
+
+"Memang hanya berdasarkan contoh kedua perwira itu," jawab Situ Peng. "Sepuluh lembar kertas itu memakai formasi yang agak berlainan. Jadi 
+itu adalah hasil kerja kami semua, dipimpin oleh Yu Daxia dan Bei Nuxia. Kami memerlukan waktu sekitar lima hari untuk membuat semuanya bisa dimengerti."
+
+"Wah! Kalian sangat berbakat," puji Ki Seung Nyang setulus hati. "Akhirnya, apa kesimpulan yang kalian dapatkan?"
+
+Dongfang Yuxian berkata, "Ternyata selama ini Chen Youliang memakai cara ini untuk berkomunikasi dengan kaki tangannya di istana, dan bahkan 
+yang tersebar di banyak tempat di wilayah Jiangxi dan Fujian. Jiaozhu akhirnya mengatakan bahwa surat-surat itu menunjukkan dengan jelas bahwa 
+pemberontakan Ni Wenjun sebetulnya adalah hasil rancangan Chen Youliang. Setelah Ni Wenjun terpancing untuk memberontak, Chen Youliang segera 
+menangkapnya. Dari rangkaian pesan itu kami juga menemukan bahwa akhirnya Chen Youliang pasti akan membunuh Xu Shouhui, dan menjadikan dirinya 
+sendiri Kaisar atau Raja."
+
+Tadinya Ah Zhu ingin mencegah Dongfang Yuxian mengatakan beberapa kalimat terakhir, tetapi akhirnya ia menyadari bahwa Zhang Wuji sengaja mengirim 
+mereka ke Kaifeng adalah untuk bekerja sama dengan Ki Seung Nyang dalam menyusun rencana yang sebelumnya mereka antarkan sendiri ke Hangzhou. 
+Isi pesan yang ditunjukkan Yin Li sebelumnya juga mendukung dugaannya ini.
+
+Ki Seung Nyang berkata, "Baiklah, sekarang kalian akan menangani masalah yang serupa tapi tak sama. Han Lin akan menunjukkan bagaimana pesan-pesan 
+ini ditulis. Tapi setelah ini kita akan mengurus masalah lain. Ini saatnya kalian beraksi dengan memakai seragam kalian itu."
+
+Ia menyuruh Han Lin menyusun semua bukti yang ditemukannya di atas meja, lalu melanjutkan, "Beberapa waktu yang lalu Junzhu secara tak sengaja 
+memergoki pungutan liar yang terjadi di wilayah ini. Dengan kerja sama dari para pemilik kios di pasar, kami mengusut kasus itu, dan menemukan 
+pejabat tinggi yang bisa dimintai tanggung jawab. Sore ini kita akan mendatanginya. Yang harus kalian lakukan hanya menyodorkan semua bukti ini, 
+dan kita akan mengambil alih pekerjaan mereka hari ini juga."
+
+Sejenak ketiga anak muda itu bingung, tetapi mereka kemudian teringat bahwa di tempat itu yang dimaksud dengan 'Junzhu' adalah Yin Li.
+
+Sore itu Yin Li memakai setelan baru berwarna putih, dengan mantel merah yang mengubah penampilannya menjadi sangat lain. Ki Seung Nyang telah 
+menambahkan riasan tipis untuk menyamarkan bekas-bekas luka di wajah Yin Li. Ia tampak seperti putri seorang pejabat tinggi yang baru datang dari 
+Dadu. Situ Peng dan kedua gadis kecil itu berkuda di belakangnya bersama dengan Han Lin dan tiga pengawal Ki Seung Nyang lainnya. Rombongan 
+kecil itu memasuki pasar dengan santai, lalu Yin Li turun dari kudanya untuk menyapa beberapa pemilik kios yang sebelumnya sudah mengenalnya.
+
+Di depan kios penjual kain, mereka sudah ditunggu leh pemilik kios, yang berkata kepada Yin Li, "Junzhu, mereka sudah berangkat ke situ beberapa 
+menit yang lalu."
+
+"Bagus," kata Yin Li sambil tersenyum ramah. "Paman juga boleh mengajak semua orang yang ingin tahu."
+
+Mereka berjalan ke arah kios milik ayah Mu Jiande, lalu Yin Li bertanya dengan suara nyaring, "Dage, barang-barangnya sudah siap?"
+
+"Semuanya sudah menunggu di tikungan itu," kata Mu Jiande. 
+
+Yin Li menaiki kudanya, lalu melambaikan tangan. Mereka berjalan santai menuju ke tikungan yang dimaksud. Di situ sekitar dua ratus orang 
+perwira sudah menunggu dalam keadaan siaga. Yin Li memanggil komandan pasukan kecil itu, lalu berkata. "Ikuti kami dari jauh!"
+
+Sekitar lima ratus meter kemudian, mereka tiba di sebuah bangunan yang cukup besar dan megah. Di luar pintu gerbang ada beberapa pengawal 
+yang sedang bertugas. Yin Li dan teman-temannya segera turun dari kuda untuk mendekati pintu gerbang.
+
+Ketika dua orang petugas yang berdiri di hadapannya saling menyilangkan tombak yang mereka pegang untuk menghadang langkahnya, Yin Li menunjukkan 
+sebuah tanda pengenal dari ikat pinggangnya, sambil berkata, "Aku ingin menemui Fang Daren!"
+
+Meskipun mereka melihat bahwa gadis yang sedang berdiri di hadapan mereka itu cantik, tetapi mereka juga melihat bahwa di wajahnya ada banyak bekas 
+luka yang tampaknya seperti akibat perkelahian. Kedua pengawal itu menatapnya dengan curiga, lalu berkata dengan nada tajam, "Fang Daren sedang sibuk! 
+Kau siapa? Ada urusan apa kalian datang ke sini?"
+ 
+Melihat reaksi itu, An Shubiao segera berkata, "Kalian berani kurang ajar kepada Shaoli Junzhu?"
+
+Yin Li mengangkat tangannya sebagai isyarat supaya An Shubiao membiarkan pengawal itu bicara.
+
+Pengawal kedua berkata, "Fang Daren tidak punya urusan dengan Shaoli Junzhu! Siapa orang itu?"
+
+Yin Li berkata sambil meneruskan langkahnya dengan tenang, "Kalau begitu biarkan aku bicara dengan komandanmu."
+
+Tetapi kedua pengawal itu kemudian mendesak maju sambil menodongkan tombak mereka ke muka Yin Li. "Kami tidak boleh membiarkan sembarang orang masuk 
+ke sini! Sebaiknya kalian pergi, atau kami terpaksa bersikap kasar!"
+
+Saat itu banyak orang mulai berkerumum di depan bangunan itu karena mendengar suara ribut-ribut. Dari kejauhan Yin Li melihat rombongan pemilik kedai 
+yang sebelumnya mengajukan keluhan kepada Ki Seung Nyang sedang berbondong-bondong mendatangi mereka. Seratus prajurit yang mengawal wilayah ini 
+juga sudah tiba di situ, mereka berhenti tepat di belakang Han Lin dan ketiga pengawal lainnya.
+
+Dengan tenang Yin Li menggunakan jari telunjuknya untuk mendorong tombak di depan mukanya sedikit ke kiri, lalu berkata, "Dage, jika kalian
+bersikap kasar kepada kami di depan semua orang ini, apa yang akan mereka katakan tentang majikan kalian? Percayalah, aku tidak punya urusan dengan 
+kalian. Aku hanya ingin menemui Fang Daren."
+
+Tiba-tiba pintu gerbang terbuka lebar, dari dalamnya sekitar lima puluh orang pengawal keluar dalam barisan rapi. Lalu seorang pria tinggi besar 
+melangkah ke arah Yin Li, dan menyuruh kedua anak buahnya mundur. Ia berkata, "Nona, Fang Daren saat ini sedang sibuk. Nona bisa meninggalkan 
+nama yang jelas, atau Nona bisa datang lain kali."
+
+Yin Li kembali menunjukkan tanda pengenalnya. Tetapi setelah mengamatinya dari jarak sangat dekat, kepala pengawal itu tidak mengenali tanda pengenal 
+yang ditunjukkan Yin Li. Ia berkata, "Mohon maaf, tapi aku juga tidak mengenal tanda ini."
+
+"Kalau begitu aku harus bicara sendiri dengan Fang Daren," kata Yin Li sambil melangkah maju.
+
+Tetapi kepala pengawal itu segera melangkah mundur dengan curiga, lalu bermaksud menghunus golok dari pinggangnya. Sayangnya, Yin Li tetap 
+meneruskan langkahnya, dan tangan kanannya dengan cepat bergerak ke arah pinggang si komandan, lalu telunjuk kirinya bergerak dalam waktu yang 
+bersamaan untuk menyentuh sebuah titik akupuntur di leher pria itu. Detik berikutnya ujung sepatu kanan Yin Li menyentuh lutut kirinya untuk 
+membuatnya berlutut dengan sebelah kakinya tanpa bisa berbuat apa-apa lagi. Cekalan Yin Li di pergelangan tangannya membuatnya tidak mampu
+menghunus golok. 
+
+Yin Li berkata dengan tenang, "Dage, sebetulnya kami bisa membacakan surat perintah sekarang juga di sini, dan semua orang ini akan mendengarnya. 
+Tapi kurasa majikanmu tidak mengharapkan hal itu terjadi. Pilihannya hanya dua. Fang Daren keluar untuk menemuiku, atau aku masuk untuk menemuinya. 
+Silakan kau masuk sekarang juga untuk menyampaikan pesanku tadi. Kami akan menunggumu di sini." Ia menyodorkan tanda pengenal itu, berikut sehelai 
+kain berwarna kuning keemasan yang disodorkan Han Lin. Lalu menambahkan, "Kau bisa menunjukkan tanda pengenalku." Ia membuka gulungan kain kuning 
+keemasan itu, membiarkan kepala pengawal dan beberapa orang di situ ikut melihatnya. Di situ hanya ada tulisan tangan Ki Seung Nyang dalam huruf 
+besar, yang berbunyi 'Shao Li Junzhu', dan dibubuhi stempel resmi kekaisaran.
+
+Yin Li kemudian menendang sebuah titik lain di lutut kiri kepala pengawal itu untuk membebaskan totokannya. Setelah bisa bangkit berdiri, pria 
+itu buru-buru masuk sambil membawa kedua benda yang diberikan Yin Li.
+
+Tak lama kemudian ia keluar lagi bersama seorang pria setengah baya, yang bertubuh gemuk, berwajah bulat, dengan tahi lalat cukup besar di atas 
+alis kanannya. Pria itu diikuti dari belakang oleh dua orang pelayan yang membawa nampan, yang diatasnya masing-masing dipenuhi oleh deretan 
+uang perak yang tersusun rapi. Ia segera mendekat ke arah Yin Li, lalu menyapa dengan sikap hormat yang dibuat-buat, "Rupanya kami mendapat 
+kehormatan untuk bertemu langsung dengan Shaoli Junzhu. Para pengawal kami masih baru, mereka belum tahu bagaimana seharusnya menyambut tamu 
+kehormatan seperti Junzhu." Ia menoleh kepada para pengawalnya, lalu membentak, "Kalian tidak segera minta maaf kepada Junzhu?"
+
+Yin Li segera berkata, "Fang Daren, kami tidak punya waktu untuk basa-basi seperti ini. Tadi aku sudah memberikan pilihan, tetapi Fang Daren 
+ternyata memilih untuk bicara di sini. Jadi sekarang juga aku akan menyelesaikan semuanya." Ia memberi isyarat kepada Situ Peng dan kedua gadis 
+kecil itu supaya maju ke dekatnya.
+
+Melihat itu, Pejabat Fang cepat-cepat menyuruh kedua pelayannya yang membawa nampan untuk maju mendekat. Ia berkata sambil tertawa, "Ah, Junzhu, 
+ini hanya kesalahpahaman kecil. Kita bisa membicarakannya lain waktu. Dan kita pasti akan menyelesaikan semuanya dengan cara damai."
+
+Jumlah orang yang berkerumun untuk melihat kejadian itu semakin banyak. Mereka mulai berbisik-bisik ketika melihat uang yang terletak di kedua nampan 
+itu. Saat itu Yin Li berpikir, "Bukankah dengan cara ini kau ingin mengatakan kepada semua orang bahwa aku juga menerima uangmu? Rupanya selama 
+ini kau menyelesaikan masalah yang sama ketika utusan dari pejabat yang di atasmu datang ke sini." Tetapi ia berkata dengan suara nyaring, "Fang Daren, 
+sekali lagi aku memberimu pilihan. Kau ikut bersamaku sekarang juga, atau..." Ia memanggil Situ Peng dan Ah Zhu untuk mendekat, lalu melanjutkan 
+dengan nada ringan, "mereka akan membacakan perintah di sini." Ia lalu menoleh kepada Dongfang Yuxian sambil berkata, "Yuxian, bawa mereka semua ke 
+sini sekarang!" Ia kembali kepada pejabat itu. "Dan mereka semua akan mulai bersuara mengatakan apa yang mereka alami."
+
+Dongfang Yuxian segera mengajak para penduduk yang sedang menunggu di belakang barisan prajurit yang mengiringi mereka untuk mendekat. Ia meminta 
+kerumunan orang di situ memberi jalan dengan sopan.
+
+Saat itu Ah Zhu mengambil selembar kertas dari dalam kotak kayu yang dibawanya, lalu menunjukkannya kepada Pejabat Fang dengan muka dingin 
+tanpa mengatakan apa-apa. Setelah itu Situ Peng membuka gulungan kain kuning keemasan, dan membentangkannya di hadapan si pejabat, supaya 
+pejabat itu bisa membaca isinya dengan jelas.
+
+Muka pejabat itu berubah pucat. Di atas kertas yang dipegang Ah Zhu, ia dengan jelas bisa membaca bahwa laporan itu ditulis dan ditandatangani 
+dengan nama 'Shaoli Junzhu', dan dibubuhi stempel resmi kekaisaran. Ia bisa membaca bahwa laporan itu telah disetujui oleh Permaisuri Qi. 
+Sementara di lembaran kain kuning itu adalah surat perintah dari Permaisuri Qi, yang menunjuk Shaoli Junzhu untuk mengambil alih kantor yang 
+saat itu ditempatinya, dan sekaligus menangkapnya dengan tuduhan melakukan korupsi dan pungutan liar. Ia terdiam dan segera sibuk memikirkan 
+jalan untuk mengajak gadis dari keluarga bangsawan yang saat itu sedang berdiri di hadapannya untuk bekerja sama. Setelah menyadari bahwa jalan 
+damai tidak tersedia, ternyata ia memberi isyarat mata kepada kepala pengawal.
+
+Saat itu, Yin Li melihat bahwa kepala pengawal diam-diam memerintahkan kepada anak buahnya untuk mulai bergerak. Ia segera membentak, "Letakkan senjata 
+kalian! Atau anak buahku akan segera bertindak. Jika kalian masih ingin bekerja di sini, sebaiknya kalian mengikuti perintahku mulai sekarang." 
+Ia berpaling kepada keempat pengawalnya. "Han Lin, ambil semua senjata mereka!"
+
+Han Lin bersama sekitar seratus prajurit segara bergerak untuk melucuti senjata para pengawal Pejabat Fang.
+
+Yin Li menatap pejabat itu dengan muka serius sambil menggeleng-gelengkan kepalanya, lalu memberi isyarat kepada Ah Zhu. Setelah mengangguk hormat, 
+Ah Zhu kemudian membacakan apa yang tertera di atas kertas yang dipegangnya dengan suara nyaring dan jernih, supaya bisa didengar oleh semua 
+orang yang hadir di situ, "Kami menemukan sejumlah bukti yang disertai saksi-saksi, bahwa Fang Diande bersama semua jajarannya telah melakukan 
+pungutan liar kepada warga kota Kaifeng yang berdiam di wilayah yang menjadi kekuasaannya. Dengan ini kami menunggu keputusan Huanghou mengenai 
+tindakan yang harus diambil selanjutnya." Ia berhenti sejenak, lalu berbalik ke arah para penduduk kota yang sedang berkerumun memenuhi 
+tempat itu. Lalu ia melanjutkan dengan suara lebih nyaring, "Laporan ini ditulis oleh Shaoli Junzhu, dan telah diperiksa oleh Permaisuri Qi"
+
+Ah Zhu mendekati kerumunan orang sampai kira-kira tiga meter dari tempatnya berdiri untuk menunjukkan kertas yang sedang dipegangnya. Semua orang yang 
+berdiri cukup dekat segera melihat tanda tangan Ki Seung Nyang yang dibubuhi stempel Kekaisaran, dan nama Shaoli Junzhu yang menulis surat itu.
+
+Setelah Ah Zhu kembali ke sisi Yin Li, Situ Peng membentangkan titah yang sedang dipegangnya, lalu mulai membaca, "Dengan ini Kaisar memerintahkan kepada 
+Shaoli Junzhu untuk mengambil alih pengelolaan wilayah di Kaifeng, yang selama ini dipegang oleh Fang Diande, dan melakukan semua tindakan yang dianggap perlu 
+demi keamanan dan ketertiban wilayah itu. Demikianlah Titah Kaisar."
+
+Situ Peng juga meniru cara Ah Zhu menunjukkan titah yang dipegangnya kepada para penduduk yang sedang berkerumun itu.
+
+Yin Li segera berkata dengan lantang, "Tangkap mereka!"
+
+Para prajurit bergerak untuk mencekal Fang Diande, dan mulai memasuki bangunan itu untuk menangkap semua jajarannya. Yin Li berkata sambil 
+menunjuk kedua pelayan yang membawa nampan berisi uang perak itu, lalu berkata dengan lantang, "Semua ini akan disita sebagai bukti yang memberatkan 
+Fang Diande karena berusaha menyuap petugas! An Shubiao, amankan semua uang perak ini!"
+
+Ia lalu berbalik ke arah para penduduk yang masih berkerumun di depan bangunan itu sambil berkata dengan lantang, "Saudara-saudara, mulai saat ini 
+kami akan mengambil alih kantor ini sampai kami menemukan orang-orang yang tepat untuk bekerja di sini. Untuk itu Huanghou telah memberikan ijin 
+untuk membuka ujian tertulis bagi semua orang yang ingin mengisi lowongan itu. Mulai besok semua orang yang berminat dipersilakan untuk datang ke 
+tempat ini dan mendaftarkan diri."
+
+Semua orang yang berkerumun itu mulai sibuk berbicara sendiri-sendiri ketika mendengar ada lowongan pekerjaan. Beberapa orang sempat mengelu-elukan 
+nama Shaoli Junzhu. Tak lama kemudian, kerumunan itu membubarkan diri sambil tetap membicarakan apa yang mereka lihat barusan.
+
+[^li]: Nama Li (離 atau 离) ini secara literal berarti 'Meninggalkan' atau 'Menjauhi'.
+[^buah-li]: Li Guo (李果)
+
+Sejak itu para penduduk Kaifeng mulai ramai membicarakan tentang Shaoli Junzhu. Para pemilik kios yang sebelumnya pernah melihat Yin Li berkelahi 
+dengan Xin He di pasar ada yang sempat mendengar Ki Seung Nyang menyebutkan nama lengkapnya 'Yin Li'. Saat itu mereka sempat mengira bahwa nama itu 
+sebenarnya diambil dari nama buah prem[^buah-li]. Tetapi kemudian mereka berpikir, Ki Seung Nyang tampaknya membesarkan anak ini sendirian, 
+entah karena sengaja meninggalkan ayah Yin Li, atau karena mereka tidak dianggap sebagai keluarga. Biasanya hal ini terjadi karena sang ayah 
+tidak bermaksud menikahi ibunya, atau ibunya hanya dihamili oleh majikannya, dan tidak diakui sebagai istri. Ini menjadi masuk akal jika 
+dihubungkan dengan nama 'Li' yang lain, yang berarti ibunya dengan sengaja menjauhi keluarga Yin.[^li]
+
+Dalam peristiwa yang baru terjadi itu, Yin Li secara terang-terangan muncul sebagai 'Shaoli Junzhu', dan nama yang tertera di situ adalah 
+namanya yang sebenarnya, yang memang bermakna 'menjauhi'. Orang-orang di pasar semakin ramai membicarakan peristiwa itu, dan membuat Yin Li 
+tiba-tiba terkenal sebagai sosok pahlawan wanita baru, yang berani bertindak demi kepentingan mereka. 
+
+Lalu bagaimana cara Ki Seung Nyang menyulap Yin Li menjadi Shaoli Junzhu? 
+
+Cerita yang didengarnya dari Zhou Zhiruo tentang Yin Li telah membuatnya tergerak. Dalam hati ia kemudian bertekad untuk melakukan sesuatu bagi anak 
+yang malang ini. Ketika pertama kalinya melihat Yin Li di Kaifeng, ia begitu terharu dan gembira. Apalagi setelah mengenal Yin Li dari dekat, 
+dan hidup bersamanya dari hari ke hari di Kaifeng. Ia merasa anak ini sangat lugu, dan cenderung mengatakan apa saja yang ada di hati dan pikirannya 
+tanpa memikirkan segala akibatnya. Sungguh kontras jika dibandingkan dengan para penghuni istana kekaisaran yang membuatnya lelah menghadapi mereka. 
+Ia segera menyukai Yin Li, dan semakin bertekad untuk berbuat sesuatu bagi anak ini.
+
+Berikutnya ia terkejut ketika melihat sendiri keributan antara para petugas yang menagih pajak dengan seorang pemilik kios di pasar. Ia ingin 
+melakukan sesuatu, tetapi ia tidak ingin tampil di situ sebagai seorang permaisuri. Akhirnya ia merancang sandiwara kecil, dan berhasil mencegah 
+timbulnya kekacauan. Sejak kecil Ki Seung Nyang memang usil dan suka membuat lelucon aneh yang bisa jadi akan berakibat fatal. Ia sebetulnya tak 
+pernah sengaja merancang jebakan apapun bagi pejabat yang dianggapnya agak keterlaluan, dan menarik pajak melebihi apa yang sudah ditentukan. Setelah 
+puas mengadili para petugas, ia bermaksud melupakan peristiwa itu.
+
+Tetapi kemudian para pemilik kios dan pengunjung pasar itu mulai menanyakan dengan cerewet tentang hal-hal yang tidak penting. Ia kemudian 
+mengarang cerita seolah-olah Yin Li adalah anaknya, dan suaminya entah ada di mana, dan mulai menirukan gaya bicara mereka semua. Dalam hati 
+ia sangat menikmati semua itu, dan ingin melanjutkan sandiwara mereka sekedar untuk melihat apa yang akan terjadi selanjutnya.
+
+Sementara itu ia juga sedang menghadapi masalah yang sangat serius di istana, yang menjadi ganjalan bagi Zhang Wuji. Dalam perkembangan, ia 
+mendadak menemukan gagasan baru untuk membuat lelucon tentang seorang Shaoli Junzhu, yang diambilnya dari nama Yin Li dan gelar Zhao Min.
+
+Kaisar selalu membekali Ki Seung Nyang dengan sebuah lembaran kosong yang biasa digunakan untuk menulis Titah Kaisar, setiap kali ia bepergian 
+dari istana. lembaran kosong itu sudah ditandatanganinya sendiri, dan dibubuhi stempel resmi Kekaisaran. Ki Seung Nyang bisa menuliskan apa yang 
+diperlukan di situ, tanpa harus menunggu persetujuannya, yang bisa jadi akan membutuhkan waktu cukup lama jika ia pergi ke tempat jauh. Hal ini 
+memang sangat wajar, karena dulunya Ki Seung Nyang seringkali membantu Toghon Temur menulis titah dengan menirukan tulisan tangannya. 
+
+Peristiwa yang terjadi di pasar itu menjadi semakin menarik ketika ia menemukan berbagai hubungan rumit, sampai akhirnya ia menyuruh Han Lin dan 
+tiga orang temannya menyelidiki pungutan liar itu sampai tuntas. Penyelidikan mereka terhenti ketika tiba di kantor Fang Diande. Mereka belum menemukan 
+kaitan antara Fang Diande dengan pejabat lain di tingkat yang lebih tinggi. Karena sekarang mereka sedang mebgusut masalah lain yang sangat 
+serius dan mendesak, ia lalu menggunakan lembaran titah Kaisar yang masih kosong itu untuk menunjuk Yin Li — atau 'Shaoli Junzhu' — untuk mengakhiri 
+segala kegiatan di kantor Fang Diande, dan menangkap pejabat itu sendiri beserta jajarannya.
+
+Melalui orang-orang kepercayaannya di Kaifeng, ia sudah mengirim pesan kepada kedua kakak seperguruannya di istana untuk memberitahu Toghon Temur, 
+bahwa ia punya rencana untuk mengangkat seorang 'Shaoli Junzhu', dan menjerat banyak pihak yang saat ini menyulitkan mereka di istana. Surat pengangkatan 
+itu memang belum sampai ke tangannya hingga saat ini, tetapi jika nantinya ada orang yang meragukan identitas Yin Li, mereka akan menunjukkan surat 
+Kaisar tersebut.
+ 
+Mengenai surat yang ditulis oleh Yin Li sendiri, yang isinya meminta dukungannya sebagai Permaisuri Qi untuk menangkap Fang Diande, ia menggunakan 
+stempelnya sendiri, yang selalu dibawanya sebagai seorang permaisuri. Jadi stempel itu memang resmi. Sedikit tipuan di sini adalah, semua orang yang 
+melihat surat itu dari jauh akan mengira bahwa stempel itu adalah milik Kaisar, padahal sudah jelas yang menandatanganinya adalah Permaisuri Qi.
+
+Para prajurit yang mendukung operasi itu datang dari pejabat yang dihubunginya melalui Mu Jiande, anak penjual babi di pasar, dengan memakai nama 
+Yin Li sebagai 'Shaoli Junzhu'. Setelah menerima seekor babi panggang utuh, pejabat itu kemudian menerima kedatangan Yin Li sebagai Shaoli Junzhu, 
+sambil menunjukkan tanda pengenal Permaisuri Qi. Dengan begitu pejabat itu langsung tahu bahwa Yin Li — entah seorang Junzhu atau bukan — memang 
+adalah orang kepercayaannya, yang sedang melaksanakan tugas atas namanya sebagai seorang permaisuri. Dengan begitu, pejabat itu lalu menggunakan 
+pengaruhnya untuk meminjam dua ratus orang prajurit untuk dikerahkan ke kantor Fang Diande.
+
+Semua pesan dari pejabat itu disusun dengan cara unik, sesuai dengan perjanjian yang sudah ditentukan sebelumnya dengan Han Lin. Setelah menulis isi
+suratnya, ia akan membagi semua karakter itu menjadi kelompok yang terdiri dari empat kali empat. Masing-masing kelompok itu kemudian diputar 
+empat puluh lima derajat searah jarum jam. Jika keseluruhan isinya tidak pas untuk memenuhi kaidah empat kali empat, maka ia akan menambahkan 
+beberapa karakter di bagian akhir, yang bisa dianggap tidak penting, sampai syarat itu terpenuhi. Cara itu jauh lebih sederhana ketimbang cara 
+yang dipakai semua anak buah Chen Youliang untuk menulis surat rahasia mereka. Karena itulah Ki Seung Nyang terkagum-kagum setelah mendengar 
+apa yang dilakukan oleh pasukan rahasia Zhang Wuji di Xiangyang. 
+
+Setelah Han Lin memberitahu kuncinya, Situ Peng, Ah Zhu dan Dongfang Yuxian, bisa menyelesaikan teka-teki itu dalam lima belas menit.
+
+***
 
 
