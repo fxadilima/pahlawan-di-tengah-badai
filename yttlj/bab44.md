@@ -957,22 +957,22 @@ bawa mereka semua keluar, lalu kawal semuanya kembali ke rumah dinas. Suruh An S
 
 "Baik, Junzhu!" jawab kedua anak itu. Mereka mendahului Yin Li berjalan keluar.
 
-Suara teriakan dan rengekan itu semakin keras ketika mereka mendengar Yin Li akan pergi. Tiba-tiba telinga Yin Li mendengar suara salah satu dari 
+Suara teriakan dan rengekan itu semakin keras ketika mereka mendengar Yin Li akan pergi. Tiba-tiba telinga Yin Li mendengar salah seorang dari 
 mereka memakinya, "Goblok! Sebentar lagi kau akan berurusan dengan Bolad Temur!"
 
 Mendengar kalimat itu, Yin Li segera berbalik ke arah sumber suara, lalu melangkah cepat mendatangi ruangannya. Ia berteriak, "Apa katamu? 
-Coba ulangi sekali lagi!"
+Ulangi sekali lagi!"
 
 Tetapi semua orang terdiam mendengar teriakannya. Yin Li menghantam beberapa jeruji dengan gagang pedangnya, lalu mengulangi kalimatnya 
 dengan suara lebih keras dan galak, "Tadi kau bilang apa? Aku tidak dengar! Coba ulangi!"
 
-Rupanya salah seorang petugas kebetulan melihat siapa yang mengatakan kalimat itu. Ia segera mendekat, lalu memukul jeruji penjara dengan tongkat 
-besinya sambil berkata, "Hei, kau! Cepat mendekat — Junzhu memanggilmu!"
+Rupanya salah seorang petugas kebetulan melihat siapa yang mengatakan kalimat itu. Ia segera mendekat, lalu memukuli jeruji penjara dengan tongkat 
+besinya berkali-kali sambil berkata, "Hei, kau! Cepat mendekat — Junzhu memanggilmu!"
 
 Sebagian orang buru-buru menyingkir untuk menghindari tudingan tongkat pengawas itu, hingga akhirnya hanya tersisa seorang pria bertubuh sedang, 
 yang masih mengenakan topi dan jubah seperti pejabat rendah Dinasti Yuan. Pengawas itu membentaknya, "Hei, cepat sini!"
 
-Merasa tak punya pilihan, ia kemudian mendekat, tetapi menjaga jarak sekitar satu setengah meter dari jangkauan tongkat pengawas itu.
+Merasa tak punya pilihan, ia kemudian mendekat, tetapi menjaga jarak sekitar satu setengah meter dari jeruji penjara.
 
 Yin Li mengambil obor dari tangan si pengawas, lalu memberi isyarat dengan tangannya supaya orang itu mendekat. Suasana menjadi hening ketika 
 orang itu maju selangkah dengan muka ketakutan. Lalu Yin Li berkata, "Siapa namamu?"
@@ -981,21 +981,486 @@ Orang itu tidak menjawab, dan menundukkan kepalanya untuk menghindari tatapan Yi
 
 "Kau tadi bilang apa?" ulang Yin Li. "Aku ingin mendengarnya lagi!"
 
-Ia mendekatkan obornya ke muka orang itu. Saat itu, di bawah cahaya obor, bekas-bekas luka di wajah Yin Li membuat orang itu mundur selangkah. 
+Ia mendekatkan obornya ke jeruji penjara. Saat itu, di bawah cahaya obor, bekas-bekas luka di wajah Yin Li membuat orang itu tanpa sadar mundur selangkah. 
 Tengkuknya terasa dingin. Ia cepat-cepat mengalihkan pandangannya ke arah lain.
 
 Yin Li berkata sambil tertawa ringan, "Sebenarnya aku ingin membantumu, tapi sayangnya kau tidak mau bekerja sama. Aku tidak bisa berbuat apa-apa."
 
-Ia berpaling kepada pengawas rumah tahanan itu sambil berkata dengan nada dingin, "Pisahkan orang ini dari semua orang lain!"
+Ia berpaling kepada pengawas rumah tahanan itu sambil berkata dengan dingin, "Pisahkan orang ini dari semua orang lain!"
 
 "Baik, Junzhu!"
 
 Setelah itu Yin Li mengajak para ajudannya meninggalkan tempat itu tanpa menengok lagi.
 
+Mereka langsung membawa semua tahanan yang baru dibebaskan itu ke rumah dinas Fang Diande. Yin Li berkata kepada An Shubiao, "Mereka baru kubebaskan, 
+tapi ketika semua pejabat itu diadili, bisa jadi mereka akan ditanyai jika dianggap perlu. Jadi kau harus mengawasi mereka baik-baik. Jangan sampai 
+ada yang melarikan diri."
+
+An Shubiao menjawab, "Baik, Junzhu!"
+
+Lalu Yin Li bertanya kepada Situ Peng yang tampaknya sedang sibuk mengatur berkas-berkas, "Apa yang kau temukan?"
+
+"Kelihatannya belum ada yang penting," jawab Situ Peng singkat.
+
+"Baiklah," kata Yin Li. "Kita harus segera pindah ke tempat ini. Aku harus cepat pulang, segera laporkan jika kau menemukan sesuatu yang penting."
+
+"Siap!"
+
+Yin Li beranjak keluar lewat pintu gerbang. Di situ ia melihat kedua pengawal pribadi Ki Seung Nyang yang lain. Ia bertanya, "Rasanya aku belum 
+pernah mendengar nama kalian." Ia tertawa ringan. 
+
+"Namaku Liang Zhihui," jawab salah seorang dari mereka sambil tertawa. "Biasanya kami hanya mendengarkan perintah Han Lin, atau An Shubiao. 
+Karena itu kami jarang bicara."
+
+"Ah, jadi kau yang berasal dari Guangxi ya?" tebak Yin Li.
+
+"Betul," jawab Liang Zhihui. "Huang — maksudku, Furen — lebih sering memanggilku Ahui."
+
+"Kalau begitu aku juga akan memanggilmu Ahui," kata Yin Li. "Itu lebih mudah diingat." Ia berpaling kepada yang seorang lagi. "Dan kau?"
+
+[^lee-zhenxing]: Li Jinheung (Hanja, 李眞興), atau Lee Jinheung, atau Li Zhenxing, semuanya memakai karakter yang sama. Tetapi Jinheung (Hangul, 진흥) adalah nama Korea.
+
+Pengawal Ki Seung Nyang itu tersenyum, lalu berkata, "Junzhu boleh memanggilku Li Zhenxing."
+
+Yin Li agak heran. "Maksudmu, itu bukan namamu yang sebenarnya?"
+
+Li Zhenxing menuliskan dua karakter di atas tanah menggunakan sebatang ranting, kemudian menuliskan dua karakter lain di bawahnya, lalu 
+berkata, "Namaku jika ditulis dengan cara biasa akan seperti ini, sedangkan di Goryeo akan seperti yang kedua."
+
+"Oh!" kata Yin Li sambil tertawa. "Aku mengerti, tidak perlu kau sebutkan lagi!" Setelah berpikir sejenak, ia berkata, "Mulai sekarang aku 
+akan memanggilmu Zhenxing, atau bahkan Ah Xing!"
+
+"Nah, itu lebih bagus!" kata Li Zhenxing.
+
+"Baiklah," kata Yin Li. "Aku harus pulang. Segera laporkan jika ada perubahan penting!"
+
+"Baik, Junzhu!"
+
+Mereka bertiga segera pulang ke rumah yang disewa Ki Seung Nyang, lalu Yin Li duduk di hadapannya tanpa melepaskan mantel, dan berkata, "Bibi, 
+ternyata salah satu orang di dalam tahanan itu baru menyebutkan nama Bolad Temur."
+
+"Apa?" kata Ki Seung Nyang kaget. "Mereka mengaku secepat itu?"
+
+Yin Li bingung, dan bertanya, "Jadi Bibi sudah tahu?"
+
+"Aku memang menduga," kata Ki Seung Nyang lagi. "Coba ceritakan, apa yang dikatakannya?"
+
+Yin Li mengulangi apa yang didengarnya tadi, "Orang itu bilang 'Goblok! Kau akan segera berurusan dengan Bolad Temur!'"
+
+"Oh, berarti semua dugaanku benar!" kata Ki Seung Nyang dengan gembira. "Jadi selama ini mereka berani memungut pajak melampaui apa yang 
+ditetapkan pemerintah, adalah karena ada Bolad Temur yang melindungi dari belakang!"
+
+"Bibi, berarti kita harus segera pindah ke tempat itu," kata Yin Li. "Di situ pasti banyak catatan yang sangat penting bagi kita!"
+
+Ki Seung Nyang berpikir dalam-dalam, keningnya berkerut. Lalu ia menggeleng sambil berkata, "Kau benar, tapi kita tidak boleh pindah ke situ.
+Atau setidaknya mereka — kedua anak ini — harus tetap di sini. Biarkan Situ Peng yang menentukan dokumen mana yang pantas diteliti, dan mana 
+yang bisa diabaikan. Kau bawa semua yang penting ke sini. Kedua anak ini akan membantuku menyelidiki semuanya. Di situ, kau harus tetap melakukan 
+tugasmu sebagai pengelola kota."
+
+"Bagaimana dengan lowongan yang kusebutkan tadi sore?" tanya Yin Li.
+
+"Biar Han Lin dan teman-temannya yang menyeleksi para pelamar, mulai besok," kata Ki Seung Nyang. "Menurutku jumlahnya tidak boleh lebih dari 
+seratus orang. Aku sangat yakin Fang Diande sengaja memakai terlalu banyak orang. Itu memboroskan uang negara. Periksa baik-baik, berapa gaji 
+yang mereka terima. Aku akan membandingkan angka itu dengan anggaran yang mereka minta dari istana. Berani taruhan, mereka pasti minta lebih!"
+
+Yin Li bangkit berdiri, lalu berkata, "Sekarang juga aku kembali ke situ untuk memberitahu Situ Peng." Ia menoleh kepada Han Lin, "Han Lin, 
+Kau segera mengatur teman-temanmu untuk menyiapkan seleksi pejabat baru itu!"
+
+Setelah Yin Li pergi, Ki Seung Nyang berkata, "Untuk sementara kalian berdua membantuku di sini. Pekerjaan ini sangat berat, karena kita hanya 
+bertiga. Setelah teman-teman baru kalian datang dari Hanyang, Ah Zhu harus menyeleksi mereka. Pilih seratus orang yang lebih sesuai untuk membantu 
+Situ Peng, sisanya bisa membantu kita di sini. Pekerjaan kita lebih sulit. Menurut perkiraanku dua hari lagi mereka akan tiba."
+
+Tetapi Ki Seung Nyang tidak perlu menunggu lama. Ternyata keesokan harinya, pagi-pagi sekali, mereka dibangunkan oleh ketukan di pintu depan 
+rumah itu. Han Lin kembali dari rumah dinas sambil membawa rombongan yang baru tiba dari Hanyang. ketika melihat kedatangan mereka, Yin Li 
+cepat-cepat menaiki kudanya sambil berkata, "Han LIn, segera kembali ke situ bersama anak-anak baru ini! Aku ingin tahu apa yang ditemukan 
+Situ Peng!"
+
+"Baik, Junzhu!"
+
+Teringat apa yang dikatakan Ki Seung Nyang sebelumnya, Ah Zhu berkata, "Baik, sekarang kalian berbaris. Semua anak laki-laki di sebelah kiri,
+anak-anak perempuan di kanan."
+
+Para prajurit yang mengawal mereka segera mengatur anak-anak itu menjadi dua kelompok seperti yang diinginkan Ah Zhu. Setelah kedua kelompok itu 
+berbaris rapi di depan rumah, Ah Zhu memisahkan lagi menjadi dua menurut kelompok usia. Ia akhirnya menemukan bahwa anak laki-laki yang sudah 
+berusia tujuh belas tahun hanya berjumlah tiga puluh orang. Sedangkan anak perempuan yang sudah berusia tujuh belas tahun ternyata jumlahnya 
+jauh lebih sedikit. 
+
+Sampai di sini Ah Zhu kemudian bertanya kepada Ki Seung Nyang, "Furen, di sini kita memilih yang mana?"
+
+"Biarkan semua anak yang lebih dewasa menemani Situ Peng di rumah dinas," kata Ki Seung Nyang. "Han Lin juga bisa memilih beberapa orang untuk 
+membantunya melayani orang-orang yang mendaftar. Yang bekerja di situ tidak boleh terlalu banyak."
+
+Han Lin memanggil regu yang akan dibawanya ke rumah dinas Fang Diande, dan bermaksud segera pergi dari situ. Tetapi Ki Seung Nyang buru-buru memanggilnya, 
+"Tunggu! Sekalian kau tunjukkan kepada Ah Zhu, di mana kita membeli dua tempat itu. Ajak mereka semua ke situ, tinggalkan tiga puluh orang di sini."
+
+Yang ditinggalkan Ah Zhu di situ ternyata adalah kelompok usia terkecil. Dua orang anak perempuan dan seorang anak laki-laki yang terbesar hanya 
+berusia tiga belas tahun. Bahkan ada dua orang anak laki-laki dan tiga orang anak perempuan yang baru berusia sepuluh tahun. Saat ini mereka semua 
+sedang memandang Ki Seung Nyang dengan penuh rasa ingin tahu, dan semuanya sedang memegang bungkusan yang berisi pakaian. 
+
+Ki Seung Nyang tersenyum ramah dan berkata, "Baik, di sini kalian boleh memanggilku Bibi Qi. Kita semua sekeluarga, dan kalian boleh menganggap Dongfang Yuxian 
+sebagai kakak perempuan kalian. Yang sedang kalian pegang itu apa?"
+
+Mereka masing-masing membuka dan menunjukkan isi bungkusan yang mereka bawa. Ternyata isinya adalah seragam bersulam yang diberikan oleh Zhou Zhiruo 
+di Hanyang. Ki Seung Nyang berkata, "Hmm, bagus! Seragam itu hanya perlu dipakai pada saat kalian bertugas keluar dari rumah ini. Di rumah ini 
+kalian sama sekali tidak memerlukannya. Nah, sekarang kita akan mengatur giliran untuk bertugas di dapur dan mengantar makanan bagi saudara-saudara 
+kalian yang bekerja di dua tempat yang ditunjukkan oleh Ah Zhu Jiejie tadi. Di rumah ini tugas untuk memasak bukan hanya kewajiban anak-anak perempuan, 
+anak laki-laki juga harus melakukannya. Karena jumlah kalian hanya tiga puluh orang, maka kalian pilih sendiri lima orang per kelompok. Kalian bergiliran 
+setiap tiga hari, dengan begitu semua orang tidak bosan. Setuju?"
+
+Secara serempak kelompok kecil itu mengiyakan.
+
+"Nah, sekarang lima orang yang akan bertugas di dapur hari ini akan pergi bersamaku ke pasar," kata Ki Seung Nyang. "Kita akan membeli bahan 
+makanan untuk hari ini. Tidak usah memakai seragam."
+
+Setelah berunding sejenak di antara mereka sendiri, akhirnya anak laki-laki yang terbesar itu mengajukan diri bersama seorang anak laki-laki yang baru berusia 
+sepuluh tahun, dan tiga anak perempuan yang berusia sekitar dua belas tahun. Ki Seung Nyang berkata kepada Dongfang Yuxian, "Kau temani mereka untuk 
+menyiapkan tempat tidur bagi semuanya. Di sini kita masih punya sepuluh kamar kosong yang cukup besar. Sisakan satu ruangan untuk tempat bekerja. 
+Masing-masing kamar akan ditempati oleh lima orang anak. Jika kau rasa kurang, pakai satu ruangan lagi. Tapi setidaknya harus ada satu ruangan yang 
+bisa dipakai untuk menyimpan barang-barang."
+
+Anak laki-laki yang paling besar itu bernama Touba Yong. Ia sedang memikirkan seorang temannya yang dibawa Ah Zhu, dan seorang lagi dibawa Han Lin 
+ke tempat kerja Fang Diande. Ia bertanya kepada Ki Seung Nyang, "Bibi Qi, apakah nanti kita akan memasak daging babi?"
+
+"Mungkin," kata Ki Seung Nyang. "Kenapa kau tanya itu?"
+
+"Dua orang teman kami tidak diperbolehkan makan daging babi," jawab Touba Yong. "Saat ini yang seorang dibawa ke rumah dinas, yang lain dibawa Ah Zhu. 
+Mereka berasal dari keluarga Muslim dan Yahudi."
+
+"Oh, kau ternyata penuh perhatian," kata Ki Seung Nyang. "Baiklah, kita akan membeli daging sapi dan ayam untuk hari ini. Jika lain kali kalian ingin memasak 
+daging babi, jangan lupa membeli sedikit daging lainnya untuk mereka berdua."
+
+Pagi itu mereka sarapan bubur, dengan ditemani sup ayam dan telur rebus. Karena banyak di antara anak-anak itu ternyata suka makanan pedas, maka 
+Ki Seung Nyang membeli cabe banyak-banyak di pasar.
+
+Ia memperhatikan bahwa semua anak yang bersama mereka di rumah itu ternyata dengan taat membuat tanda salib, lalu menundukkan kepala sejenak untuk berdoa 
+sebelum makan. Ia bertanya, "Rupanya kalian penganut Kristen ya? Siapa yang mengajar kalian di Hanyang?"
+
+"Frater kami bernama Andre," jawab seorang anak perempuan yang bernama Yuwen Xiang mewakili yang lain. "Frater Andre tinggal dan mengajar di tempat pengungsian itu. Zhou Xiangzhang 
+dan Junzhu sangat akrab dengan Frater."
+
+"Hm," gumam Ki Seung Nyang. Otaknya mulai berputar untuk merancang langkah berikutnya. 
+
+[^weishi-xian]: Weishi Xian (尉氏县) adalah salah satu pusat pengelolaan wilayah di Henan, yang terletak di kota Kaifeng. 
+[^longting-qu]: Longting Qu (龍亭區), agak berbeda dengan Xian, Qu biasa diterjemahkan sebagai district. 
+
+Wilayah yang sekarang diserahkan kepada Yin Li adalah salah satu dari sedikitnya tiga atau empat wilayah yang sama. Wilayah semacam ini disebut Xian, 
+di Goryeo disebut Gun. Atau bisa jadi Qu, yang di Goryeo disebut Gu. Wilayah Yin Li bisa jadi membawahi beberapa kawasan yang sebenarnya terletak di luar 
+Kaifeng, tetapi dikelola oleh Kaifeng. Pendeknya, fungsi sebenarnya dari Kepala Wilayah seperti Xian atau Qu adalah untuk mengurus beberapa 
+kawasan yang tadinya tidak saling berhubungan, dengan begitu pemerintah akan bisa mengawasi mereka secara lebih baik. Jadi Kepala Daerah seperti ini 
+sebenarnya lebih berfungsi secara politik. Henan adalah propinsi sangat besar, yang di dalamnya berbagai etnis dan golongan saling tumpang tindih. 
+Tak jarang mereka meributkan hal-hal yang sebetulnya remeh, tetapi jika sengaja dipicu oleh pihak luar yang ingin mengadu domba, 
+maka persoalannya akan menjadi besar. 
+
+Pada dasarnya Hanyang yang sekarang sudah dikelola oleh Zhou Zhiruo juga sama, tetapi luasnya jauh lebih kecil, dan masalah etnis seperti yang ada 
+di Henan bisa dibilang tidak ada di situ. Luas Hanyang bahkan tidak mencapai sepuluh persen dari luas Kaifeng. dari data-data yang dikirim ke sini 
+oleh Situ Peng, bisa disimpulkan bahwa beberapa kota kecil yang dibawahi Yin Li ternyata setingkat dengan Hanyang yang dipimpin Zhou Zhiruo. Jika semua 
+anak kecil ini tidak diberikan pengertian yang benar mulai dari sekarang, maka selanjutnya mereka pasti akan menghadapi masalah serius dengan para pejabat daerah. 
+Ini belum termasuk persoalan yang sengaja dipicu oleh Bolad Temur dan semua sekutunya.
+
+Ki Seung Nyang tahu, sedikitnya Yin Li akan membawahi empat kawasan yang setingkat dengan Hanyang, dan bisa jadi sepuluh kota kecil lain yang berada 
+di pinggiran Kaifeng, sementara desa-desa dan daerah yang lebih kecil berada di bawah pengawasan kota itu. Semua itu belum termasuk kawasan kecil 
+di dekat bangunan tempatnya bekerja, yang jumlahnya sangat banyak. Semua Kepala Daerah ini harus didatangi dan dimintai keterangan setelah 
+apa yang terjadi semalam. Pekerjaan ini menyangkut 'main gertak' dan 'adu nyali', jadi tidak sama seperti yang sedang dikerjakan oleh Zhou Zhiruo 
+sekarang. Yin Li bisa jadi tidak perlu mengurusi sendiri soal administrasi kota. Hal semacam itu akan diurus oleh Han Lin, Situ Peng dan jajarannya. 
+Bahkan bisa saja mereka akan terus memakai orang-orang yang sedang bekerja sampai saat ini di daerah mereka masing-masing. Yang harus dikerjakan Yin Li 
+hanyalah membuat mereka semua takluk, sehingga berhenti melapor kepada orang lain, sekaligus hanya akan melapor atau mendengarkan perintah dari 
+seorang Shaoli Junzhu sebagai komandan mereka.
+
+Bagi Ki Seung Nyang, tampaknya mereka tidak boleh berhenti sampai di sini, Yin Li harus menguasai Kaifeng.
 
 
-***
+### Pasukan Cilik Pencari Bukti
 
+Setibanya Yin Li di rumah dinasnya sebagai Kepala Wilayah yang baru, ia mendapat laporan dari Situ Peng. "Ada beberapa kawasan yang harus melapor 
+ke kita, yang sebenarnya terletak di luar kota. Yang di Kaifeng sendiri semuanya terletak di dekat tempat ini," kata Situ Peng.
+
+"Yang di sekitar sini tidak perlu kau pusingkan, karena saksi-saksinya sudah terkumpul," kata Yin Li. "Dan kudengar masih banyak orang lain lagi 
+yang bersedia menjadi saksi setelah tempat ini kita ambil alih. Sekarang kita harus memikirkan cara untuk mencari bukti tentang masalah di luar kota."
+
+"Aku menemukan beberapa catatan kecil — sayangnya tidak bisa dijadikan bukti — yang menyebutkan tentang empat nama kawasan di luar kota," jawab Situ Peng 
+sambil menyodorkan penemuannya. "Tapi setidaknya kita punya ide untuk berbuat sesuatu."
+
+Yin Li membaca catatan-catatan itu, lalu bertanya, "Apa usulmu?"
+
+Situ Peng menggaruk kepalanya, lalu berkata, "Junzhu, sayangnya yang dikirimkan kepada kita adalah tiga puluh orang anak yang sudah terlalu dewasa, 
+mereka semua seusiaku. Ada beberapa anak perempuan juga sama. Mereka memang bisa ikut membantu, tapi setiap kelompok hanya perlu satu. Aku perlu beberapa 
+anak yang lebih kecil."
+
+"Itu gampang," jawab Yin Li sambil tertawa. "Justru kebanyakan dari mereka masih kecil. Sekarang ini Ah Zhu dan Bibi Qi sendiri yang memimpin 
+anak-anak kecil itu. Kau perlu berapa orang?"
+
+"Setidaknya dua puluh."
+
+"Suruh anak-anak buahmu memisahkan semua berkas yang berkaitan dengan empat kawasan ini," kata Yin Li. "Kau ikut denganku menemui Ah Zhu. Kau bisa 
+pilih sendiri siapa saja yang akan kau bawa."
+
+Di luar pintu gerbang, Yin Li melihat Han Lin dan kawan-kawannya masih sibuk dengan pendaftaran. Ternyata yang datang mendaftarkan diri cukup banyak.
+Mereka melakukan seleksi di tempat. 
+
+"Sudah berapa banyak?" tanya Yin Li.
+
+"Lebih dari lima puluh orang," jawab Han Lin. "Semuanya penduduk Kaifeng."
+
+"Bagus, kalau sudah mencapai seratus, tutup pendaftaran," kata Yin Li lagi. "Katakan bahwa tak lama lagi kita akan membuka lowongan lain!"
+
+Dalam perjalanan pulang, Yin Li menghentikan kudanya sekitar satu kilometer dari rumah yang mereka sewa, lalu menunjuk dua rumah yang terletak 
+saling berdekatan tak jauh dari kuda mereka berhenti. Ia berkata, "Mereka ada di dua rumah itu. Kau cari Ah Zhu, lalu kumpulkan semua anak yang 
+kau inginkan. Aku ingin bicara sebentar dengan Bibi Qi di rumah."
+
+Situ Peng masuk ke rumah terdekat yang ditunjuk Yin Li, sementara Yin Li langsung menuju ke rumah Ki Seung Nyang. Setibanya di halaman, ia melihat 
+bahwa di dapur ada lima orang anak sedang bekerja, sementara yang lainnya tidak kelihatan. Ia langsung menuju ke ruang tamu. Ternyata di situ 
+Ki Seung Nyang sedang menerima tamu dengan ditemani Dongfang Yuxian. Salah seorang kenalan mereka di pasar datang menemuinya sambil membawa 
+banyak makanan kecil.
+
+Wanita setengah baya ini biasa dipanggil Bibi Liu oleh teman-temannya. Mereka sedang bercerita tentang apa yang terjadi di rumah dinas Kepala Wilayah 
+yang ditempati oleh Fang Diande sebelumnya. Yin Li bisa menebak dari sikap Ki Seung Nyang, bahwa saat itu ia sedang berpura-pura baru mendengar 
+semua cerita Bibi Liu itu.
+
+Ketika melihat Yin Li datang, Bibi Liu segera berkata, "Junzhu datang!" Ia lalu meneruskan ceritanya sambil menyodorkan piring yang dipenuhi 
+makanan kecil hasil buatannya sendiri. 
+
+[^ah-yi]: Ah Yi (阿姨) adalah panggilan umum bagi seorang wanita yang dianggap setara dengan adik perempuan dari pihak ibu. Istilah lain yang sering dipakai adalah Yi Ma (姨媽), Tetapi Yima lebih cocok digunakan bagi anggota keluarga yang sebenarnya, sedangkan Ah Yi bisa dipakai untuk memanggil orang yang sebetulnya baru dikenal.
+
+Yin Li mengambil sepotong kue manis yang disukainya, lalu berkata, "Ah Yi[^ah-yi], apa yang sedang kalian ceritakan? Kedengarannya seru sekali."
+
+"Kami sedang membicarakan apa yang dilakukan anak ini semalam," kata Bibi Liu sambil menunjuk ke arah Dongfang Yuxian, dan tertawa. 
+
+"Ah Li, kau mencari masalah lagi di luar ya?" tegur Ki Seung Nyang. Saat itu Bibi Liu sedang menatap Yin Li, ia tidak melihat kedipan mata 
+Ki Seung Nyang. "Kalau terus menerus seperti ini, kapan aku akan menimang cucuku?"
+
+Yin Li segera mengimbangi lelucon itu. Ia tertawa cekikikan, lalu berkata, "Mama tidak usah kuatir, aku hanya memberi sedikit pelajaran untuk 
+mereka. Kemarin Bibi Liu juga mengajak teman-temannya datang ke situ."
+
+Bibi Liu mendecakkan lidahnya dengan gusar, lalu berkata, "Orang-orang ini memang harus dihajar! Kami pikir Junzhu mau mendatangi rumah Wang Daren, 
+tapi ternyata kalian langsung menangkap atasannya."
+
+"Kami tidak tahu Wang Daren tinggal di mana," kata Yin Li. "Tapi sekarang wilayah ini sudah menjadi wilayahku. Kalau Ah Yi tahu siapa saja yang 
+punya urusan dengan Wang Daren — dan pejabat lain yang seperti dia — Ah Yi bisa langsung mengatakannya kepada Yuxian, nanti aku akan mendatangi 
+mereka semua, dan kalian akan mengikutiku seperti kemarin."
+
+"Wah, itu gampang!" kata Bibi Liu dengan penuh semangat. Ia menggulung lengan bajunya. "Di pasar sudah jelas ada puluhan pemilik kios yang punya urusan 
+dengan Wang Daren. Yang kuajak ke situ kemarin sebenarnya banyak yang tinggal di daerah lain. Mereka kira setelah mendatangi Wang Daren, lalu 
+Junzhu pasti akan membereskan Xu Daren dan Tang Daren juga. Tapi setelah kami melihat Junzhu menangkap Fang Daren, kami pikir Junzhu sudah membereskan 
+mereka sebelumnya."
+
+Yin Li menyuruh Dongfang Yuxian mengambil alat-alat tulis dan duduk di sebelahnya. Lalu ia berkata, "Sekarang juga Ah Yi bisa mengatakan siapa 
+saja yang punya urusan dengan Wang Daren itu, setelah itu nama teman-teman Ah Yi yang dimintai uang lebih atau punya masalah lain dengan Xu Daren 
+dan Tang Daren. Yuxian akan mencatat semuanya. Jika masih ada orang yang punya keluhan dengan pejabat lain, Ah Yi juga bisa mengatakannya, berikut 
+keterangan di mana semua orang ini tinggal. Aku akan segera membereskan urusan ini, dan kalian tidak perlu takut lagi."
+
+Ki Seung Nyang segera berkata, "Ah Li, kalau semua ini didengar ayahmu, tunjangan untuk kita akan dihentikan! Bagaimana kita bisa membiayai rumah ini?"
+
+"Ah, Dasao tidak perlu kuatir!" kata Bibi Liu sambil tertawa. "Sekarang ini kalian sudah tidak memerlukan tunjangan seperti itu lagi. Percayalah!"
+
+Dalam hati Yin Li tertawa. Tampaknya Bibi Liu beranggapan bahwa Ki Seung Nyang hanya perempuan simpanan dari ayahnya, yang takut kehilangan 
+tunjangan untuk membiayai rumah mereka. "Ah Yi, sekarang ini aku harus pergi ke Beijiao untuk mengurus sesuatu. Kalau Ah Yi punya kenalan yang 
+punya masalah seperti ini di situ, aku akan sekalian mendatanginya. Ah Yi tinggal mengatakan siapa namanya, dan di mana dia tinggal."
+
+"Beijiao?" ulang Bibi Liu. "Oh, ada dua orang! Yuxian, tolong ambil kertas kosong. Aku akan menuliskan di mana mereka tinggal. Mereka juga dimintai 
+uang oleh petugas pajak."
+
+Bibi Liu dengan cepat menuliskan nama dan alamat kedua temannya yang tinggal di luar kota Kaifeng itu. Dengan gembira Yin Li melipat kertas itu, lalu 
+berkata, "Aku harus segera pergi. Ah Yi bilang semuanya kepada Yuxian, hari ini juga aku pulang. Setelah itu kita akan membereskan urusan Ah Yi!"
+
+Ia mengambil pedangnya, lalu mencium pipi Ki Seung Nyang, dan berlari keluar tanpa mengatakan apa-apa lagi.
+
+"Coba Dasao lihat," kata Ki Seung Nyang setelah Yin Li pergi. "Sejak kecil dia suka berkelahi. Kalau terus-terusan begini, kapan aku akan punya 
+cucu?"
+
+"Sekarang ini semua orang di pasar mengaguminya," kata Bibi Liu lagi. "Dia pasti akan menemukan jodoh!"
+
+Di luar rumah, Yin Li langsung menaiki kudanya menuju ke rumah yang dipakai Ah Zhu untuk mengajar anak-anak yang baru datang dari Hanyang. 
+Di situ ia sudah ditunggu oleh Situ Peng dan dua puluh anak-anak yang berusia antara sepuluh sampai tiga belas tahun. Mereka semuanya 
+mengenakan pakaian biasa, seperti anak-anak di Kaifeng pada umumnya. "Bagus!" kata Yin Li. "Kita akan berangkat dari sini, kau boleh memanggil 
+anak-anak yang lebih besar itu dari rumah dinas sekarang!"
+
+Setelah Situ Peng pergi, Yin Li minta disediakan beberapa lembar kertas kosong dan alat-alat tulis. Ia menulis sebuah surat dengan cepat, lalu berkata, 
+"Ah Zhu, setelah kami berangkat, kau minta kepada Bibi Qi supaya Yuxian bisa menggantikanmu di sini. Kau sendiri harus pergi ke rumah dinas, 
+bubuhkan stempelku di atas tanda tangan surat ini. Setelah itu kau harus mengantarkannya sendiri ke Kantor Penegak Hukum. Mereka akan memberimu 
+dua ratus prajurit untuk dibawa ke Beijiao. Salah seorang anak ini akan menunggu kedatangan kalian di jalan masuk kota. Setelah itu kau tunggu 
+perintahku."
+
+"Ah Zu harus memakai seragam dari sini?" tanya Ah Zhu.
+
+"Ya, karena kau akan menemui Penegak Hukum," kata Yin Li.
+
+Ah Zhu segera minta diri untuk bersiap-siap.
+
+Setelah Situ Peng kembali bersama enam orang pemuda tanggung, Yin Li segera berkata tanpa menunggu Ah Zhu selesai berganti pakaian, "Kita berangkat 
+sekarang!"
+
+Semua anak yang pergi bersama mereka itu bisa menunggang kuda. Mereka berjalan kaki ke tempat penjual kuda terdekat, dan Yin Li membeli kuda 
+untuk mereka semua tanpa menawar harganya. Dari tempat itu ke Beijiao hanya memakan waktu satu jam. Yin Li segera memesan dua buah kamar di 
+penginapan terdekat untuk beristirahat dan menyegarkan diri. Ia lalu menyuruh pemuda berusia lima belas tahun yang bernama Gao Jianfu untuk 
+menunggu Ah Zhu di jalan masuk ke kota kecil itu.
+
+Yin Li bertanya kepada semua anak perempuan yang sedang bersamanya di kamar penginapan itu, "Kalian takut?"
+
+Anak-anak itu cekikikan, lalu salah seorang berkata, "Kata Ah Zhu, kemarin semua orang takut kepada Junzhu."
+
+"Siapa namamu?" tanya Yin Li sambil tersenyum.
+
+[^ning]: Marga Ning bisa jadi 寧 atau 甯. Dalam hal ini karakter yang dipakai adalah yang pertama. Di jaman modern, setelah orang mulai menggunakan karakter yang disederhanakan, keduanya ditulis 宁. Belakangan karakter Ning yang kedua itu kembali digunakan, tetapi umumnya orang akan memakai 宁.
+
+"Ning Chengzhu," jawab anak itu. Saat ini ia sudah berusia enam belas tahun. Perawakannya kecil, wajahnya sangat manis. Lesung pipit di kedua 
+pipinya tampak nyata begitu ia tersenyum.
+
+"Wah, namamu juga Zhu," kata Yin Li. "Jadi aku tidak bisa memanggilmu Ah Zhu. Dan aku tidak akan memanggilmu Zhu'er, karena itu panggilanku 
+sendiri. Jadi aku akan memanggilmu Zhuzhu."
+
+Anak-anak perempuan itu kembali tertawa cekikikan, lalu ada yang bertanya, "Mengapa Junzhu dipanggil Zhu'er?"
+
+"Ceritanya sangat panjang," kata Yin Li lagi sambil tertawa. "Kapan-kapan akan kuceritakan. Zhuzhu, sekarang kau minta alat-alat tulis kepada 
+pemilik penginapan ini. Aku akan menulis surat."
+
+"Baik, Junzhu."
+
+Ia menulis sebuah surat resmi, tetapi karena ia tidak membawa stempel, maka ia memberikan tanda pengenal yang diambilnya dari Kantor Kepala Wilayah 
+kepada Chengzhu. Ia berkata, "Sekarang kau pakai seragammu. Simpan surat dan tanda pengenal ini di sakumu. Setelah ini kita berunding sebentar dengan 
+Situ Peng."
+
+Setelah Chengzhu selesai memakai seragamnya, ia menyuruh salah satu anak memanggil Situ Peng, yang sedang beristirahat di ruang sebelah.
+
+"Apa saja yang kalian temukan sejak tadi?" tanya Yin Li setelah Situ Peng masuk ke ruangan itu. 
+
+Situ Peng menghela nafas panjang, lalu berkata, "Junzhu, kelihatannya kali ini agak sulit. kami tadi mendengar bahwa orang yang bernama Zhao Mingliang 
+ini ternyata seorang Mongolia, nama aslinya adalah Do-le-bek."
+
+"Hm!" kata Yin Li. "Begitu ya?" Ia berpikir sejenak, lalu berkata kepada salah seorang anak perempuan, yang saat itu memakai dandanan rambut 
+agak unik. "Kau bisa mendandani rambutku, supaya sama seperti dandananmu?"
+
+Anak itu tersenyum senang, lalu berkata kepada salah seorang temannya, "Ah Mei, ayo bantu aku mengepang rambut Junzhu!"
+
+Yin Li berkata kepada Situ Peng, sementara anak-anak itu mendandaninya, "Selain itu, apa lagi yang kalian dengar?"
+
+Situ Peng mengeluarkan catatan yang diberikan Yin Li sebelumnya, lalu berkata, "Tadi kami sudah mendatangi orang-orang ini, mereka mengatakan siap 
+untuk menjadi saksi, dan bahkan bersedia mengajak lebih banyak orang lagi untuk melakukannya."
+
+"Bagus!" kata Yin Li sambil tertawa. "Kalau begitu, sekarang juga kalian kumpulkan mereka semua. Kulihat di dekat jalan masuk ke kota ini ada 
+sebuah kedai yang lumayan. Ajak mereka semua makan siang di situ." Ia mengeluarkan sebatang emas murni dari sakunya, lalu melanjutkan, "Tukarkan ini dengan 
+uang untuk membayar. Biarkan anak-anak itu menemani mereka sementara menunggu isyaratku. Aku akan menemui kalian di situ, lalu kita berangkat 
+bersama-sama. Gao Jianfu pasti sudah menunggu di situ bersama Ah Zhu. Beritahu supaya Ah Zhu mengajak para prajurit itu untuk mengikuti rombongan 
+kita dari jarak sekitar seratus meter. Suruh semua anak laki-laki itu mengenakan seragam mereka."
+
+Situ Peng menerima batangan emas itu, lalu segera pergi untuk melaksanakan tugasnya. Yin Li melihat bayangannya sendiri di cermin, lalu berkata 
+dengan gembira, "Wah, ini bagus sekali! Tapi sebentar..." Ia menyuruh Chengzhu mengambil baskom berisi air, lalu menghapus bedak tipis di mukanya. 
+Lalu ia kembali bercermin, dan tersenyum puas.
+
+Ki Seung Nyang menyuruhnya memakai riasan tipis untuk menutupi bekas-bekas luka di wajahnya. Tetapi saat ini Yin Li justru merasa perlu menampilkan 
+semua bekas luka itu. Ia bertanya kepada anak perempuan yang mendandaninya, "Jadi temanmu ini dipanggil Ah Mei ya? Dan kau siapa?"
+
+Anak perempuan ini masih berusia sekitar sepuluh atau sebelas tahun. Kulitnya putih bersih, bentuk mukanya bulat telur, matanya agak sipit, tetapi 
+bola matanya biru. Saat ini ia sedang tersenyum cerah, yang membuatnya tampak menggemaskan. Ia menjawab pertanyaan Yin Li sambil cekikikan, 
+"Ayah memberiku nama Sun Jiayi, tetapi ibu memanggilku Shirindari."
+
+"Kalau begitu aku akan memanggilmu Jiayi," kata Yin Li. Ia bertanya, "Kau masih ingat nama asli Zhao Mingliang yang disebutkan Situ Peng tadi?"
+
+Sun Jiayi tertawa, lalu berkata, "Rasanya nama itu sebenarnya Torebeg."
+
+Yin Li merasa nama itu agak sulit diucapkan, tetapi ia mencoba mengulanginya, "Dorebek... atau Tolbek... Torrbek?"
+
+Setelah mencoba berkali-kali, akhirnya Sun Jiayi baru membenarkan ucapannya. Kemudian ia berlatih mengucapkan nama itu sampai sungguh-sungguh 
+merasa yakin apa yang diucapkannya memang benar. Sekitar lima belas menit kemudian, barulah Sun Jiayi berkata, "Nah, sekarang Junzhu sudah bisa 
+memanggilnya dengan benar!"
+
+Sun Jiayi membuka buntalan yang berisi pakaiannya, lalu mengeluarkan sebuah ikat kepala yang dihiasi pernak-pernik, dan memberikannya kepada 
+Yin Li sambil berkata, "Junzhu bisa memakai ini supaya lebih bagus."
+
+Yin Li memakai ikat kepala itu, lalu melihat bayangannya di cermin sambil tertawa. "Kau pintar!" katanya. "Baiklah, aku pinjam barang ini. 
+Sekarang kau juga harus memakai seragammu. Yang lain tidak perlu memakai seragam. Kalian bisa mengikuti orang-orang yang datang bersama 
+Situ Peng itu nanti."
+
+Sambil membantu Sun Jiayi memakai seragamnya, mereka mendiskusikan apa saja yang harus dilakukan setelah ini. Sebelum berangkat, Yin Li 
+menambahkan, "Jika aku memberimu isyarat, kau harus menjawab pertanyaan Torebeg itu nanti. Tidak usah takut, aku yang akan melindungimu."
+
+Mereka berkuda menuju ke jalan masuk kota, dan menemukan Ah Zhu sedang menunggu bersama dengan Gao Jianfu dan Situ Peng. Yin Li kemudian mengajak 
+rombongannya berkuda dengan santai memasuki kota mengikuti jalan yang dilalui oleh rombongan Situ Peng. Pasukan yang dipandu Ah Zhu mengikuti mereka 
+dari jauh.
+
+Bangunan yang mereka datangi itu ternyata tidak sebesar Kantor Kepala Wilayah yang sekarang diduduki Yin Li. Tetapi para pengawal yang berjaga 
+di depan semuanya bertubuh besar. Ketika melihat rombongan Situ Peng datang, dua orang pengawal segera menghunus golok, lalu menyilangkannya 
+untuk menghadang, sekitar sepuluh meter sebelum mereka tiba di depan pintu gerbang. Melihat para pemuda tanggung yang berjalan di barisan terdepan 
+itu mengenakan seragam biru bersulam dan topi hitam unik, para pengawal itu tertawa sambil berkata, "Rasanya Zhao Daren tidak mengundang 
+pemain opera hari ini. Kalian salah alamat."
+
+Situ Peng yang tidak mengenakan seragam maju selangkah sambil menunjukkan tanda pengenal Yin Li, lalu berkata, "Kami ingin menyampaikan pesan 
+kepada Zhao Daren."
+
+Melihat tanda pengenal itu, para pengawal tampak ragu. Mereka saling berpandangan, lalu salah seorang yang bertubuh paling besar berkata 
+dengan suara serak dan berat, "Pesan apa? Katakan saja, nanti kami yang akan meneruskannya!"
+
+Situ Peng menyingkir sedikit ke samping, lalu membungkuk agak berlebihan, dan memberi tanda untuk mempersilakan enam orang pemuda berseragam 
+itu untuk melangkah maju. Salah seorang dari pemuda berusia tujuh belas tahun itu melangkah maju sambil berkata, "Shaoli Junzhu menganjurkan 
+supaya hanya Zhao Daren sendiri yang mendengar pesan ini. Ini untuk melindungi reputasi Zhao Daren."
+
+Melihat bahwa yang bicara hanya seorang anak ingusan, dan mereka tidak merasa pernah mendengar nama 'Shaoli Junzhu', pengawal yang bertubuh paling 
+tinggi dan kekar berkata sambil tertawa, "Kami tidak kenal Shaoli Junzhu, dan Zhao Daren juga pasti tidak mengenalnya. Jadi sebaiknya kalian 
+segera meninggalkan tempat ini. Kami tidak punya waktu untuk melayani lelucon kalian."
+
+Saat itu salah satu pengawal lain memberi isyarat dengan pandangan mata. Para prajurit yang mengikuti di belakang rombongan Yin Li telah tiba 
+di jalan itu. Para penduduk kota yang ikut bersama rombongan Situ Peng segera membagi diri di kedua sisi jalan untuk memberi jalan bagi 
+Yin Li dan pasukannya.
+
+Dari sisi lain, para penduduk di sekitar tempat itu mulai berdatangan untuk menyaksikan apa yang terjadi. Kehadiran dua ratus prajurit bersenjata 
+lengkap telah membangkitkan rasa ingin tahu mereka. Melihat hal ini, para pengawal kemudian mundur ke depan pintu gerbang untuk mencegah 
+kerumunan penduduk itu mendekat. Rombongan Yin Li menggunakan kesempatan itu untuk bergerak hingga mereka berhenti sekitar lima meter dari 
+tempat para pengawal itu sedang berdiri.
+
+Yin Li memberi isyarat supaya Situ Peng dan enam pemuda lainnya maju beberapa langkah, lalu ia sendiri bersama Zhuzhu dan Sun Jiayi yang mengenakan 
+seragam bersulam turun dari kuda. Mereka bertiga berjalan ke depan tujuh orang pemuda itu. 
+
+Pengawal yang bertubuh kekar itu berteriak, "Kalian mau apa? Ini kantor pemerintah, jika kalian tidak segera pergi, kami akan menangkap kalian!"
+
+Situ Peng memberi tanda kepada salah seorang pemuda yang sedang memegang sebuah gulungan berwarna kuning keemasan untuk membuka apa yang dipegangnya.
+Lalu ia sendiri menunjukkan tanda pengenal Yin Li sekali lagi, sambil berkata, "Dage, kau tidak mengenali tanda ini? Kami juga bisa menangkap 
+kalian sekarang juga karena menghalangi petugas!"
+
+Pengawal itu memeriksa tanda pengenal Yin Li dari jarak dekat. Mereka memang tidak pernah melihat tanda pengenal Kepala Wilayah, karena 
+sebelumnya Fang Diande tidak merasa perlu melakukan inspeksi ke situ. Kalaupun ia pernah datang, kemungkinan besar tanda pengenal itu juga 
+tidak perlu ditunjukkannya. Salah satu temannya kemudian mengatakan sesuatu dalam bahasa Mongolia, lalu mereka memandang Yin Li yang sedang 
+berdiri tenang tanpa bicara. Mereka tampak ragu, lalu kembali berdiskusi dalam bahasa Mongolia di antara mereka sendiri.
+
+Saat itu Yin Li memberi isyarat kepada Sun Jiayi untuk bicara. 
+
+Sun Jiayi berkata dalam bahasa Mongolia, "Junzhu memberi kalian kesempatan untuk masuk dan mengatakan kedatangan kami kepada Torebeg. 
+Junzhu akan melupakan sikap kalian saat ini, dan membiarkan kalian semua tetap bekerja di sini setelah Torebeg ditangkap."
+
+Pengawal bertubuh kekar itu menggaruk kepala. Yang mereka lihat saat itu adalah, Yin Li hanya seorang gadis Mongolia dua puluh tahunan, 
+wajahnya dipenuhi bekas luka, tampangnya angkuh dan sama sekali tidak ramah, dan membawa ratusan prajurit datang ke tempat majikan mereka.
+Sedangkan para pemuda tanggung itu semuanya adalah suku Han, dan mengenakan setelan mirip pejabat. Berikutnya yang bicara ternyata hanya 
+seorang anak perempuan yang tak lebih dari sepuluh atau sebelas tahun, dan mengatakan bahwa ia akan menangkap majikan mereka. Bagaimana 
+mereka bisa menjelaskan semua ini kepada majikan mereka jika ditanya?
+
+Akhirnya pengawal itu berkata kepada Yin Li dengan nada lebih ramah, "Junzhu, kami bukan ingin melawan, tapi apa alasan kalian menangkap 
+Zhao Daren? Setidaknya kami harus mengatakannya kepada Zhao Daren jika ditanya."
+
+Karena lagi-lagi ia bicara dalam bahasa Mongolia, Sun Jiayi segera menjawab, "Torebeg memungut pajak terlalu tinggi, para penduduk kota 
+mengeluh kepada Junzhu." Ia lalu memberi isyarat supaya rombongan penduduk yang mengajukan keluhan itu maju.
+
+Melihat ini, Yin Li segera memahami apa yang sedang mereka bicarakan. Ketika para penduduk itu mulai melangkah maju, Yin Li memberi isyarat 
+dengan tangannya supaya mereka menahan diri. Ia berkata dalam bahasa Han, "Katakan kepada Torebeg, jika dia bersedia membayar ganti rugi kepada 
+rakyat, dan mengembalikan kelebihan uang kepada semua orang yang dirugikannya selama ini, maka aku akan melupakan pelanggarannya. Dia boleh 
+tetap memegang jabatannya sekarang, asalkan dia berjanji tidak akan mengulanginya lagi. Aku tidak akan memaksanya menemuiku saat ini juga, 
+tetapi jika sampai besok aku tidak mendengar kabar apa-apa dari sini, maka aku akan bertindak tegas."
+
+Tanpa menunggu jawaban, ia segera mengajak kedua anak perempuan yang ada di sisinya untuk kembali ke atas punggung kuda mereka. Yin Li membantu 
+Sun Jiayi naik ke atas kuda. Ia bermaksud mengajak semua orang untuk pergi dari situ, dan menunggu sampai besok siang sebelum bertindak.
+
+Tetapi pengawal bertubuh kekar itu tiba-tiba berkata, "Junzhu, tunggu! Kami akan melaporkan kedatangan Junzhu kepada Zhao Daren!"
+
+Yin Li memutar kudanya, lalu berkata, "Baik! Aku akan menunggu kalian di sini."
+
+Pengawal itu segera masuk untuk memberitahu Torebeg, dan yang lain tetap berjaga di depan pintu gerbang, tetapi sikap mereka tidak lagi 
+kasar seperti sebelumnya.
+
+Yin Li berbisik ke telinga Sun Jiayi, "Tadi omonganku sudah benar?"
+
+Sun Jiayi menganggukkan kepalanya sambil menyeringai lebar tanpa mengatakan apa-apa.
+
+Yin Li tertawa, lalu mengambil manisan buah prem dari ikat pinggangnya, dan membagikannya kepada Sun Jiayi dan Zhuzhu.
+
+Mereka tidak perlu menunggu terlalu lama. Beberapa menit kemudian, pintu gerbang itu terbuka, dan pengawal bertubuh kekar itu 
+muncul sambil berkata, "Junzhu, Zhao Daren mempersilakan Junzhu masuk menemuinya."
 
 
 

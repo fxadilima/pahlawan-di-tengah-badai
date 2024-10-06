@@ -32,6 +32,29 @@ Calon nama yang akan dipakai dan cukup menarik:
    [Baca selengkapnya...](https://en.wikipedia.org/wiki/Dongfang_(surname)#:~:text=Dongfang%20has%20two%20points%20of,original%20family%20name%20was%20Zhang.)
 6. Dugu (獨孤) adalah marga yang menarik untuk perempuan dari barat laut. Tetapi ada orang Korea utara yang 
    juga memakai marga ini. Untuk orang Goryeo harus ditulis Tokko atau Dokgo (독고)
+7. Yuwen (宇文)
+   Yuwen Xiang, Yuwen Huang, Yuwen Jing
+8. Murong (慕容)
+   Murong Ying, Murong Ling, Murong Gong, Murong Bing, Murong Yi (mungkin utk perempuan)
+   Diambil dari nama aktor modern, Murong Xinshu.
+9. Shangguan (上官) adalah marga yang dominan di Gansu.
+   Contoh yang jelas adalah di era Wu Zetian, Shangguan Yi dan Shangguan Wan'er
+   Kita bisa memakai Shangguan Wu, Shangguan Quan, Shangguan Gong atau Shangguan Bing
 
 
+Goryeo
+
+1. Lee 李, 異, 伊
+   Nama pertama dibaca 'Li'
+   Dua nama terakhir dibaca 'Yi'
+2. Jinheung (hanja, 眞興)
+   Adalah Raja Jinheung dari Silla, nama ini jika dibaca menurut karakter Hanja adalah Zhen Xing
+   Kombinasi menaik adalah Lee Jinheung, yang menjadi Li Zhenxing (李眞興) atau Yi Zhenxing (異眞興)
+3. Dokgo (baca lagi Dugu), jika perlu, abaikan nama pribadinya.
+   Bisa juga Dokgo Jing, Dokgo Wu, atau yang lebih Korea Dokgo Seong. 
+4. Kim (Hanja, 金 atau Hangul 김), secara literal berarti emas, yang sama dengan Jin
+   Marga ini yang paling umum di Goryeo.
+5. Im (Hanja 任 atau 林, Hangul 임)
+   Marga ini semuanya sama saja dengan Lim atau Lin
+   Mungkin menarik jika kita bikin Im Seong-hwa
 
