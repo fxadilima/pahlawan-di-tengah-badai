@@ -57,4 +57,14 @@ Goryeo
 5. Im (Hanja 任 atau 林, Hangul 임)
    Marga ini semuanya sama saja dengan Lim atau Lin
    Mungkin menarik jika kita bikin Im Seong-hwa
+6. Park Seo-yang 朴瑞陽 kita ambil namanya, dan ganti marganya menjadi Lee
+   
+
+
+Mongolia
+
+1. Naghachu
+2. Togus Temur
+3. Torebeg
+4. Elbeg
 

@@ -144,12 +144,188 @@ ke kantor kita besok."
 Yin Li tersenyum senang, lalu membungkuk dari atas punggung kudanya sambil berbisik, "Katakan semua itu kepada para penduduk, beri isyarat supaya 
 mereka datang ke sini untuk memastikan bahwa laporan itu memang dikirimkan."
 
-Shangguan Wu, Situ Peng dan Shen Feiling mendekati kerumunan penduduk yang masih menonton di dekat bangunan itu, lalu berkata keras-keras, "Saudara-saudara, 
+Shangguan Wu, Situ Peng dan Shen Feiling, mendekati kerumunan penduduk yang masih menonton di dekat bangunan itu, lalu berkata keras-keras, "Saudara-saudara, 
 Zhao Daren sudah berjanji akan memberikan ganti rugi kepada kalian semua yang ditagih melebihi ketentuan yang berlaku! Besok laporan akan dikirimkan 
 ke kantor kami. Junzhu bisa menjamin bahwa setelah ini kalian semua tidak akan mengalami hal semacam itu lagi."
 
 Yin Li tidak ingin menunggu sampai mereka selesai membubarkan orang-orang itu. Ia memutar kudanya, lalu memberi isyarat kepada para ajudannya untuk 
 segera pergi dari situ. Ia memerintahkan sekitar lima puluh prajurit untuk memastikan bahwa tujuh pemuda dan para penduduk itu tidak akan diganggu.
+
+Setelah Situ Peng dan teman-temannya kembali ke penginapan, Yin Li menyuruh Chengzhu memanggil mereka untuk berkumpul di ruangannya, dan sekaligus 
+membeli makanan kecil bagi semua orang. Ia sendiri dan anak-anak perempuan itu tidak sempat makan siang, karena tadi ia harus menjelaskan banyak 
+hal yang belum mereka ketahui, jadi ia juga menyuruh Chengzhu memesan makan siang bagi mereka.
+
+Setelah semua orang berkumpul kembali, Yin Li bertanya, "Ah Zhu dan rombongannya sudah kembali ke Kaifeng?"
+
+"Masih menunggu perintah di luar pintu kota," jawab Shangguan Wu.
+
+"Gao Jianfu, panggii Ah Zhu ke sini, dia juga belum makan siang! Kau tetap di situ sampai aku datang," kata Yin Li. Ia menyerahkan tanda pengenalnya 
+kepada Situ Peng sambil berkata, "Kau masih harus tetap memimpin mereka semua. Aku harus pulang ke Kaifeng. Setelah ini kalian semua tidak boleh 
+mengenakan seragam itu sama sekali. Kalian akan mencari keterangan tentang para penduduk yang bisa kita datangi di tiga daerah tetangga tempat ini." 
+Ia mengeluarkan tulisan berisi tiga nama tempat yang dimaksud. "Kalian sudah mengalami sendiri, sebetulnya semua orang yang punya keluhan 
+tentang pelanggaran para pejabat itu banyak. Para penduduk kota ini pasti punya keluarga dekat yang tinggal di daerah lain. Jadi setelah tahu 
+jalan ceritanya, kalian pasti akan menemukan cara untuk menghubungi mereka. Untuk mulai, kalian bisa berjalan-jalan di pasar, kios-kios atau 
+kedai-kedai, di mana banyak orang berkumpul dan bergosip. Ini akan sangat membantu."
+
+Ia melepaskan ikat kepala yang dipinjamkan Sun Jiayi, lalu mengenakannya di kepala anak itu sambil tersenyum. "Sekarang sudah kukembalikan 
+ikat kepalamu. Mungkin lain kali aku akan membelinya di pasar, supaya aku tidak perlu meminjam ikat kepalamu."
+
+"Junzhu, bagaimana jika mereka mengenali kami di sini?" tanya Shen Feiling.
+
+"Setelah ini kalian harus pergi. Situ Peng akan membayar ongkos penginapan," kata Yin Li. Ia menunjuk catatan kecilnya, lalu berkata, "Semua kota kecil 
+ini yang akan kalian datangi. Kita belum punya kenalan di situ. Semua daerah ini saling berdekatan, jadi Situ Peng harus mengatur di titik mana kalian 
+bisa berkumpul untuk menginap."
+
+Ah Zhu masuk ke ruangan itu bersama dengan Chengzhu yang membawa makanan kecil, dan beberapa pelayan penginapan yang membawa makan siang bagi anak-anak 
+perempuan. Setelah para pelayan itu pergi, mereka makan sambil duduk di lantai, atau di sisi tempat tidur yang sebenarnya tidak dipakai, dan 
+mendengarkan instruksi Yin Li.
+
+Chengzhu terkejut melihat makanan-makanan kecil yang dibelinya sudah hampir habis. "Astaga!" katanya. "Bukankah kalian tadi sudah makan siang 
+sepuasnya di kedai?"
+
+Salah seorang pemuda itu berkata, "Shen Jingbing makan empat potong kue dan sepotong bakpao!"
+
+Semua orang tertawa mendengar ucapannya. Yin Li berkata, "Kalau kau memang lapar, aku bisa memesan makanan lagi sekarang."
+
+Shangguan Wu berkata, "Sebenarnya sejak tadi kami mencium aroma sup kambing di ruangan Torebeg. Shen Jingbing tadinya ingin tinggal lebih lama."
+
+"Kenapa mereka memanggilmu 'orang gila'?" tanya Yin Li heran.
+
+Mereka berebut menceritakan apa yang dikatakan Shen Feiling kepada Torebeg sebelum pergi dari situ.
+
+"Feiling, sebetulnya idemu sangat bagus," kata Yin Li. "Tapi kita tahu bahwa sebenarnya masih banyak orang lain di daerah ini yang punya keluhan. 
+Selanjutnya kita harus memikirkan cara supaya mereka mau mengatakannya dengan sukarela. Untuk seterusnya Torebeg ini tetap harus diawasi."
+
+Diskusi itu masih terus berlanjut sementara mereka makan, dan kemudian Yin Li pergi bersama Ah Zhu. 
+
+Yin Li menyuruh Gao Jianfu yang masih menunggu di luar tembok kota untuk kembali ke penginapan, lalu ia memberikan instruksi singkat kepada komandan 
+pasukan itu untuk berarak kembali ke Kaifeng, dan langsung menuju ke Kantor Kepala Wilayah mereka. Ia sendiri langsung memacu kudanya bersama Ah Zhu 
+tanpa menunggu mereka.
+
+***
+
+Di Xiangyang, Zhang Wuji menerima kabar dari Kaifeng mengenai apa yang dilakukan oleh Yin Li, dan tertawa gembira.
+
+"Luar biasa!" katanya. "Zhu'er sungguh-sungguh membuat kejutan. Kurasa sekarang dia sangat sibuk."
+
+Yu Daiyan sedang membaca lembaran lain. Ia berkata, "Wuji, surat dari Kaifeng ini masih ada beberapa lembar. Kali ini isinya cukup panjang, dan 
+menurutku ini rangkaian langkah yang sangat penting." Ia meletakkan salah satu lembaran di atas meja, lalu berkata, "Perhatikan baik-baik yang 
+ini."
+
+```text
+
+Saat ini kami punya sepuluh ribu prajurit untuk Kantor Kepala Wilayah ini.
+Mereka semua sebelumnya adalah milik Bolad Temur, jadi aku ingin menggantinya.
+Lima ribu akan kukirim ke utara, dan sisanya ke Xiangyang.
+Kirimkan komandan pasukan yang bisa dipercaya bersama seorang ajudannya.
+Ajudan itu harus mengawal lima ribu orang dari sini ke Xiangyang, 
+dan itu akan menjadi tugas berat baginya.
+Jika lima ribu orang itu berontak, habisi semuanya.
+Kalian harus mengawasi pasukan dari Kaifeng itu baik-baik.
+
+```
+
+Ruangan itu menjadi hening setelah semua orang membaca isi lembaran itu. Beberapa menit kemudian, Zhang Songxi memecahkan keheningan. Ia berkata, 
+"Dari sini kita tahu bahwa posisi Yin Li sebenarnya yang paling lemah. Itu bisa dipahami, mengingat mereka baru saja mengambil alih sebuah wilayah."
+
+"Jika lima ribu orang itu dibawa ke sini, bukankah kita akan disusupi musuh?" kata Bei Jinyi.
+
+Zhang Songxi berkata, "Aku yakin tidak — jika kita bisa mengaturnya dengan baik."
+
+Sima Han berkata, "Hal semacam ini sudah kami alami sebelumnya, ketika Chen Youliang menyusup ke Kai Pang. Memerlukan waktu sangat panjang 
+sampai kita berhasil membersihkan sisa-sisa pengaruh anak buahnya."
+
+Yu Daiyan tersenyum. "Itulah yang kupikirkan sejak tadi," katanya. "Jadi aku cenderung setuju dengan pendapat Bei Shimei."
+
+Zhang Wuji berkata kepada Sima Han, "Sima Zhanglao, panggil Chang Yuchun dan Zeng Banshan untuk segera menghadap!"
+
+"Baik."
+
+"Aku mulai merasa Zhu'er membutuhkan bantuan orang-orang Jianghu. Mereka bisa mengawasi semua gerakan di situ dengan lebih baik, karena mereka 
+pada dasarnya tidak terlibat langsung dalam pemerintahan," kata Zhang Wuji setelah Sima Han pergi. "Ada kabar mengenai para pendekar Kongtong Pai? 
+Apakah mereka langsung kembali ke Gansu?"
+
+"Mereka bergabung dengan pihak kita di Hangzhou," kata Bei Jinyi. Setelah banyak orang pergi bertugas, ia yang lebih banyak menangani surat-menyurat, 
+karena hal itu juga mendukung pekerjaan pasukan rahasia mereka.
+
+"Itu juga bagus," kata Zhang Wuji. "Tapi sebenarnya mereka yang paling cocok untuk mendukung Zhu'er."
+
+"Bagaimana dengan He Taichong dan Ban Shuxian?" tanya Bei Jinyi. "Posisi mereka saat ini cukup dekat dengan Kaifeng. Kulihat akhirnya Ban Shuxian cukup 
+dekat dengan Minmin."
+
+"Tapi tidak dengan Zhu'er," kata Zhang Wuji. "Perangai Zhu'er berubah-ubah. Aku kuatir akan timbul banyak masalah dengan murid-murid Kunlun Pai."
+
+"Rasanya kau benar," kata Bei Jinyi sambil tertawa. "Sayangnya bukan Minmin yang ada di Kaifeng."
+
+Zhang Songxi berkata sambil menggelengkan kepalanya, "Justru itu tidak mungkin dilakukan. Jika Minmin ada di Kaifeng, dengan mudah akan membangkitkan 
+kecurigaan dengan Bolad Temur, yang nantinya akan menyudutkan ayahnya. Sedangkan Yin Li — boleh dibilang tidak mereka kenal."
+
+Tiba-tiba Yu Daiyan berkata, "Mengapa kita tidak mengirimkan lebih banyak anggota Kai Pang?"
+
+"Ah! Kenapa aku bisa melupakan mereka?" seru Zhang Wuji sambil menepuk lututnya sendiri. "Berarti masalah yang ini sudah beres, aku akan menyuruh 
+Sima Zhanglao menghubungi anggota mereka di sana. Ternyata masalah ini bisa kita selesaikan dengan sederhana."
+
+Zhang Songxi berkata, "Kurasa kita harus banyak belajar dari Li Daren yang menjabat sebagai Kepala Daerah di sini. Sejauh ini tampaknya tidak 
+terjadi apa-apa yang mengejutkan."
+
+"Kita belum mengunjunginya juga sampai sekarang," keluh Zhang Wuji. "Padahal ini sangat penting. Bei Shijie, apa yang kalian temukan mengenai orang ini?"
+
+Bei Jinyi berkata, "Kau mungkin akan heran. Kami sudah menanyakan soal orang ini ke Kaifeng. Menurut Huanghou, namanya jika kita baca memang 
+akan menjadi Li Ruiyang, tetapi di Goryeo nama itu akan menjadi Li Seo-yang."
+
+Zhang Wuji terkejut. "Berarti dia ada kemngkinan adalah orang kepercayaan Bibi Qi?"
+
+"Memang begitu," kata Bei Jinyi lagi. "Tapi kurasa dia adalah salah satu keturunan campuran antara Goryeo dengan Mongolia, karena di Goryeo 
+para bangsawan yang berkuasa biasanya akan disuguhi putri-putri bangsawan Mongolia dari sini. Ini adalah kebijakan Kubilai Khan sendiri. 
+Karena itu untuk mengendalikan masalah ini, Huanghou harus menempatkan orang dari Goryeo."
+
+"Aku mengerti sekarang," kata Zhang Wuji. "Karena yang berkuasa sebagai atasan Li Daren itu adalah orang Mongolia. Untuk membangun hubungan yang 
+baik, maka Bibi Qi menempatkan Li Daren di sini — jadi kemungkinan besar dia memang seorang Mongolia juga. Kau pernah menyelidiki para bangsawan 
+Mongolia yang menjadi atasan pejabat setingkat Li Daren?"
+
+Yu Daiyan mengeluarkan sebuah daftar dari dalam sakunya, lalu berkata, "Sejauh ini beberapa nama ini yang muncul. Semuanya nama Mongolia."
+
+"Hm!" kata Zhang Wuji. "Karena itu Bibi Qi langsung setuju ketika aku mengatakan akan mengambil Xiangyang. Dia sudah tahu."
+
+Bei Jinyi berkata, "Sebenarnya tidak. Dua nama di situ adalah orang baru. Yang sebelumnya ternyata dipindahkan ke tempat lain setelah kau 
+masuk ke Xiangyang."
+
+Zhang Songxi berkata sambil tersenyum, "Aku mulai mengerti bagaimana cara Huanghou berpikir. Kau merasa semua ini gampang, padahal di belakang 
+layar Huanghou sering membantumu. Kurasa sekarang dia ingin melakukan hal yang sama di Kaifeng."
+
+"Aku kuatir hasilnya belum tentu sama," kata Yu Daiyan. "Karena Kaifeng _bukan_ Xiangyang. Tempat ini jauh lebih sederhana, sedangkan Kaifeng 
+sangat luas dan masalahnya jauh lebih rumit."
+
+"San Ge benar," kata Zhang Songxi lagi. "Karena itu kita harus mendukungnya. Jika Yin Li menguasai Kaifeng, maka posisi kita akan jauh lebih kuat di utara. 
+
+"Kalian melupakan ancaman dari Bozhou," kata Bei Jinyi. "Jika Bozhou masuk ke situ, maka apa yang sekarang dikuasai Zhu'er akan menjadi sia-sia."
+
+"Tidak," kata Zhang Wuji dengan tenang. "Justru itu yang ingin kubicarakan dengan Chang Yuchun dan Zeng Banshan. Jika kita mengaturnya dengan 
+teliti, maka siapapun yang akan berkuasa di situ tidak akan mengganggu rencana kita. Di sini kita punya pasukan dari ayah mertuaku, yang bisa 
+kita andalkan. Begitu juga pasukan Chang Yuchun. Jika Bozhou masuk, aku akan menarik pulang Zeng Banshan. Sebaliknya, jika ayah masuk, maka aku 
+akan menarik pulang Chang Yuchun."
+
+"Oh, aku mulai mengerti rencanamu," kata Bei Jinyi.
+
+Yu Daiyan meletakkan lembaran lain di tengah meja, lalu berkata, "Yang ini dipecahkan oleh pasukan rahasia kita dalam waktu hanya satu jam. 
+Dari Kaifeng, Dongfang Yuxian menyelipkan gambar kecil untuk memberitahu Dou Sujian mengenai cara mereka menyusun isi surat itu."
+
+Zhang Wuji dan Zhang Songxi terkagum-kagum. "Tim kalian berdua sungguh-sungguh hebat," kata Zhang Songxi.
+
+Bei Jinyi tersenyum senang. "Anak-anak itu yang hebat, kami hanya mengawasi."
+
+Sima Han memasuki ruangan sambil membawa serta Chang Yuchun dan Zeng Banshan.
+
+Setelah mempersilakan kedua komandan itu duduk, Zhang Wuji berkata, "Sima Zhanglao, sekarang kerahkan beberapa Penatua Delapan Kantong untuk 
+menghubungi Nona Yin di Kaifeng. Mereka harus siap jika sewaktu-waktu harus mengerahkan anak buahnya untuk melakukan yang disuruh. Tegaskan kepada 
+mereka semua supaya memberitahu anggotanya, di situ mereka harus memanggil Nona Yin dengan sebutan 'Shaoli Junzhu'!"
+
+"Zaixia akan menghubungi mereka secepatnya," kata Sima Han. Kemudian ia segera meninggalkan ruangan itu.
+
+
+
+
+
 
 
 

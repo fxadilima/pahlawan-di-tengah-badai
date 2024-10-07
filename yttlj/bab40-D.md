@@ -550,7 +550,7 @@ untuk urusan ini kalian tidak perlu ikut. Biar aku sendiri yang ke sana bersama 
 dari Chang Yuchun. Ini penting, karena salah satu dari kita harus selalu berada di Xiangyang."
 
 Zhang Wuji dan Zhao Min hendak protes, tapi Zhao Zhiruo menambahkan sambil tersenyum, "Kalian jangan lupa, aku bukan 
-perempuan lemah. Sebetulnya para pelayan dan prajrit itu hanya untuk pamer. Kalau bisa aku bahkan tidak akan menaiki 
+perempuan lemah. Sebetulnya para pelayan dan prajurit itu hanya untuk pamer. Kalau bisa aku bahkan tidak akan menaiki 
 kereta. Aku bisa melindungi diri dengan baik, jadi kalian jangan kuatir."
 
 Zhao Min berkata, "Zhou Jiejie, aku tahu kungfumu tinggi, tapi daerah itu tetaplah sangat berbahaya, karena itu adalah 
