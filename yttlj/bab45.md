@@ -86,9 +86,13 @@ mengungkit masalah ini, dan bisa jadi akan menyudutkan posisinya sendiri, ia den
 lalu mengirimkan mereka ke Kantor Penegak Hukum yang akan mengadili mereka.
 
 Sebagai warga Dinasti Yuan dari 'Golongan Mongolia', Torebeg tahu bahwa seorang gadis muda seperti Shaoli Junzhu yang tiba-tiba muncul ini pastilah 
-salah satu keluarga dekat dari bangsawan atau pejabat tinggi di istana. Dirinya sendiri — Torebeg — juga memanfaatkan peluang yang sama. Melihat 
-gaya bicara Shangguan Wu yang cenderung meninggi, Torebeg menarik kesimpulan bahwa Shangguan Wu sendiri adalah saudara dekat Shaoli Junzhu ini. 
-Begitu melihat tanda pengenal yang ditunjukkan Shangguan Wu, ia sudah menetapkan langkah apa yang akan diambilnya.
+salah satu keluarga dekat dari bangsawan atau pejabat tinggi di istana. Dirinya sendiri — Torebeg — juga memanfaatkan peluang yang sama. Tetapi ia sudah 
+mendengar keterangan ajudannya bahwa Shaoli Junzhu itu mukanya penuh bekas luka seperti goresan pisau atau pedang. Bagi seorang militer seperti Torebeg, 
+hal ini menandakan bahwa gadis muda itu bukan hanya mengandalkan nama besar keluarganya, tetapi memang pernah ikut dalam sebuah pertempuran yang membuatnya 
+mendapat luka-luka itu. Dengan begitu jadi tidak mengherankan jika Kaisar mengalihkan posisi sebagai Kepala Wilayah kepada Shaoli Junzhu ini. Jadi ia merasa 
+bahwa Shaoli Junzhu pasti bukan orang yang mudah digertak atau diremehkan. Melihat gaya bicara Shangguan Wu yang cenderung meninggi, Torebeg menarik 
+kesimpulan bahwa Shangguan Wu sendiri adalah saudara dekat Shaoli Junzhu. Begitu melihat tanda pengenal yang ditunjukkan Shangguan Wu, ia sudah menetapkan 
+langkah apa yang akan diambilnya.
 
 Ia berkata sambil tertawa, "Tentu saja kami akan bekerja sama. Anak buahku tak tahu aturan. Kami memang sudah mendengar beberapa warga mengeluh, 
 tapi kau tentu mengerti, sebagai pejabat kita tidak boleh menuduh orang sembarangan. Kami sedang menyelidiki semua masalah itu. Besok aku akan 
@@ -114,11 +118,38 @@ Ia bertanya dengan nada tajam, "Siapa namamu?"
 Pemuda itu tertawa, lalu menjawab dengan ringan, "Zhao Daren, namaku sama sekali tidak penting. Margaku Shen, Daren bisa memanggilku Jingbing[^sakit-jiwa]. 
 Daftar itu pasti akan mempercepat pekerjaan Daren. Dan kami sudah punya salinannya."
 
-Torebeg dan Elbeg bingung sejenak mendengar nama yang disebutkan itu, tapi detik berikutnya mereka tertawa terbahak-bahak. 
+Torebeg dan Elbeg bingung sejenak mendengar nama yang disebutkan itu, tetapi detik berikutnya mereka tertawa terbahak-bahak. 
 
 "Aku suka gayamu," kata Torebeg. "Baiklah, aku akan menyimpan catatanmu."
 
+[^shen-feiling]: Shen yang dipakai dalam nama Shen Fei Ling (慎非翎) tentu saja berbeda dengan 神, termasuk cara mengucapkannya.
 
+Mereka lalu minta diri, dan kali ini benar-benar pergi meninggalkan ruangan itu. Setelah keluar dari pintu gerbang, diam-diam Situ Peng menghela 
+nafas panjang dengan lega. Ia sempat berkeringat dingin ketika teman mereka yang mengaku bernama Shen Jingbing itu menyerahkan daftar nama kepada 
+Torebeg. Tentu saja namanya bukan Shen Jingbing. Anak muda itu bernama Shen Feiling[^shen-feiling], dan tentu saja tidak ada kaitannya dengan 
+karakter 'Shen' yang dipakai untuk mengarang nama itu dengan mengubah cara pengucapannya.
+
+Situ Peng tahu, Elbeg diam-diam berusaha mendengarkan pembicaraan mereka. Untuk menambah tekanan ke pihak lawan, Situ Peng sengaja berkata keras-keras setelah 
+mereka melewati pintu gerbang, "Jingbing, kau benar-benar menyimpan salinan catatan warga itu?"
+
+Shen Feiling segera menjawab, "Penjual ikan itu punya anak perempuan yang cantik, tadi dia yang membantuku menyalin semuanya. Ayahnya sudah berjanji 
+aku boleh datang ke rumah mereka kapan saja aku mau."
+
+Teman-temannya tertawa sambil mendorong-dorong Shen Feiling. Dengan begitu mereka telah membuat situasi menegangkan itu menjadi riang. Beberapa pengawal 
+Torebeg ikut tertawa mendengar gurauan anak-anak muda itu.
+
+Shangguan Wu mendekat ke arah Yin Li yang masih duduk di atas kudanya, lalu berkata, "Junzhu, tadi Zhao Daren berjanji akan mengantarkan laporan 
+ke kantor kita besok."
+
+Yin Li tersenyum senang, lalu membungkuk dari atas punggung kudanya sambil berbisik, "Katakan semua itu kepada para penduduk, beri isyarat supaya 
+mereka datang ke sini untuk memastikan bahwa laporan itu memang dikirimkan."
+
+Shangguan Wu, Situ Peng dan Shen Feiling mendekati kerumunan penduduk yang masih menonton di dekat bangunan itu, lalu berkata keras-keras, "Saudara-saudara, 
+Zhao Daren sudah berjanji akan memberikan ganti rugi kepada kalian semua yang ditagih melebihi ketentuan yang berlaku! Besok laporan akan dikirimkan 
+ke kantor kami. Junzhu bisa menjamin bahwa setelah ini kalian semua tidak akan mengalami hal semacam itu lagi."
+
+Yin Li tidak ingin menunggu sampai mereka selesai membubarkan orang-orang itu. Ia memutar kudanya, lalu memberi isyarat kepada para ajudannya untuk 
+segera pergi dari situ. Ia memerintahkan sekitar lima puluh prajurit untuk memastikan bahwa tujuh pemuda dan para penduduk itu tidak akan diganggu.
 
 
 
