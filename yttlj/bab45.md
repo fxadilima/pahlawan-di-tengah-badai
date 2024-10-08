@@ -681,7 +681,7 @@ kami tidak dipaksa. Semua ini sukarela, karena ibumu menganggap kami semua kelua
 
 Yin Li tertawa cekikikan, lalu berkata, "Mukaku seperti ini, apa yang mau dipamerkan?"
 
-Seorang wanita yang biasa dipanggil Ying Furen mendekatinya sambil tersenyum ramah. Yin Li tahu wanita ini adalah pemilik sebuah toko yang menjual 
+Seorang wanita yang biasa dipanggil Ying Furen mendekatinya sambil tersenyum ramah. Yin Li tahu, wanita ini adalah pemilik sebuah toko yang menjual 
 perhiasan tak jauh dari pasar. Ketika mereka menangkap Fang Diande, ia ikut datang bersama rombongan para penduduk yang ingin menjadi saksi. Tampaknya 
 sebelum ini ia adalah salah satu orang yang paling dirugikan oleh para petugas pajak, dan pejabat yang menjadi atasan para petugas itu. Ying Furen 
 kurang lebih sebaya dengan Ki Seung Nyang, dan penampilannya sangat menarik, meskipun sebenarnya ia tak terlalu cantik. Kulitnya bersih, perhiasan 
@@ -735,6 +735,47 @@ Selain itu dia bilang apa?"
 
 "Ayah bilang tidak akan mengunjungi mereka di Hanyang," jawab Yin Li.
 
+"Berarti kali ini ayahmu cukup bijaksana," kata Ki Seung Nyang dengan ringan. "Hanyang jauh. Lagipula, mereka sudah punya banyak uang. Mustinya 
+ayahmu lebih sering mengunjungi kita. Tapi nyatanya dia punya seorang Meimei lagi di Suzhou."
+
+Ia kemudian menoleh kepada Yin Li, yang sedang memeluknya dari belakang. Sekilas Yin Li sempat melihat matanya bersinar jenaka. Kemudian ia 
+berkata dengan nada datar, "Sebetulnya bagi Mama semua itu tidak penting. Yang penting ayahmu tetap mengirimkan uangnya."
+
+Seketika itu teman-temannya tertawa. Bahkan Ying Furen tak dapat menahan senyumnya.
+
+"Dasao lebih bijaksana," kata Bibi Liu dengan gembira. "Memang hanya _itu_ yang penting."
+
+"Lain kali Junzhu akan mengerti juga perkara seperti ini," kata yang lain.
+
+Wanita lainnya, yang biasa dipanggil Bibi Quan sangat memperhatikan masalah keamanan kios di pasar. Ia berkata, "Tapi kurasa pendapat ayahmu 
+juga ada benarnya. Junzhu harus lebih memperhatikan pekerjaan sebagai Kepala Wilayah. Banyak orang sebenarnya tidak puas dengan pengadilan kita. 
+Mereka merasa bahwa hukum kita berat sebelah, dan tidak akan menghukum pengacau dengan berat, asalkan dia orang — ehm, maksudku..."
+
+Ki Seung Nyang tahu apa yang ingin dikatakan Quan Furen itu. Pengadilan Dinasti Yuan memang berat sebelah, dan biasanya akan menghukum seorang 
+pembunuh dengan ringan, jika pembunuh itu adalah seorang Mongolia. Tetapi justru menghukum maling ayam dengan berat, jika ia berasal dari suku Han, 
+apalagi suku Han yang berasal dari selatan. Untuk menjelaskan penyebabnya, akan membutuhkan keterangan yang sangat panjang, dan ia tidak yakin 
+orang seperti Quan Furen ini akan bisa memahaminya. Hanya politisi kelas satu seperti Liu Futong yang bisa memahaminya dengan baik, tetapi mereka 
+justru memanfaatkan celah ini untuk membuat kekacauan besar, dan akhirnya toh negara yang mereka dirikan itu tidak dikelola dengan baik. 
+
+Dari keraguan Quan Furen, ia bisa menyimpulkan bahwa sekarang ini Quan Furen menduga bahwa ayah Yin Li adalah seorang pejabat keturunan Mongolia, 
+dan hal ini sangat menguntungkan bagi mereka. Hanya saja, mereka harus berhati-hati, supaya wanita-wanita ini tidak menyebarkan gosip yang akan 
+merusak rencana besarnya. Ia lalu menggunakan kesempatan itu untuk menyampaikan pesan kepada Yin Li, yang sejak tadi memang ingin diucapkannya, 
+"Ah Li, kau mengerti maksud Bibi Quan?"
+
+"Ma, aku belum mengerti," kata Yin Li.
+
+"Anak-anak yang mengantarkan makan siang itu mengatakan kepadaku bahwa kau membawa banyak prajurit baru," kata Ki Seung Nyang. "Mama sendiri 
+juga sedang bertanya-tanya, sebetulnya kau mau apa?"
+
+"Mama, prajurit Fang Diande itu tidak mematuhi perintahku," kata Yin Li. "Tadi pagi aku menghukum salah satu dari mereka, karena seenaknya bicara 
+dalam bahasa Mongolia di depan komandannya yang jelas adalah orang Han. Karena hal semacam inilah aku mengganti mereka semua. Kalau aku tidak berani 
+bertindak, maka selanjutnya mereka akan melakukan hal yang sama terhadap rakyat."
+
+"Oh, kalau itu memang benar," kata Ki Seung Nyang. "Ibumu _juga_ adalah orang Han. Tapi aku hanya ingin mengingatkanmu, sekarang ini banyak 
+orang ingin memanfaatkan hukum yang berat sebelah ini untuk mencari keuntungan bagi diri mereka sendiri. Kau saat ini merasa menang, karena kau 
+baru menggantikan jabatan Fang Diande, yang kau tangkap. Tetapi yang menjadi Kepala Wilayah di Kaifeng ini bukan hanya kau sendiri. Saat ini 
+Kepala Wilayah yang lain sedang mengawasi langkahmu. Mereka pasti berpikir, 'Orang ini kawan atau lawan?'. Nah, menurutmu apa yang mereka pikirkan 
+setelah melihatmu mengganti banyak prajurit itu?"
 
 
 
