@@ -619,8 +619,9 @@ langsung menggiring semua prajurit yang sudah terkumpul itu ke arah selatan.
 
 Setelah kira-kira lima _li_ dari Kaifeng, mereka melihat pasukan yang dipimpin oleh Chaghan Temur sedang bergerak mendatangi mereka. Setelah 
 semakin mendekat, Yin Li sangat terkesan melihat penampilan jendral itu. Tubuhnya tinggi besar dan berotot. Kumis, cambang dan jenggotnya 
-membuat penampilannya sangat berwibawa. Dari jarak sekitar lima meter ia bisa melihat bahwa wajah Chaghan sebenarnya sangat tampan dan jantan. 
-Saat itu Chaghan hanya tersenyum tipis, lalu berkata dengan suaranya yang berat, "Kau sendiri yang membawa mereka?"
+membuat penampilannya sangat berwibawa. Dari jarak sekitar lima meter ia bisa melihat bahwa wajah Chaghan sebenarnya sangat tampan dan jantan, 
+tapi saat itu ia terlihat lelah. Jelas sekali bahwa ia tipe orang yang selalu berada di medan perang, dan jarang kembali ke rumah. Saat itu Chaghan 
+hanya tersenyum tipis, lalu berkata dengan suaranya yang berat, "Kau sendiri yang membawa mereka?"
 
 Tanpa basa-basi, Yin Li langsung menyuruh Zeng Banshan menyeret prajurit yang tadi ditangkapnya ke depan, lalu berkata kepada Chaghan, "Ayah, 
 prajurit ini tidak taat, kau harus menghukumnya. Aku harus segera kembali ke kota sekarang."
@@ -634,7 +635,109 @@ Hal ini sama sekali di luar dugaan Yin Li. Sejenak ia tak tahu bagaimana harus b
 "Aku belum pernah ketemu Minmin lagi. Segala hal yang dilakukannya bukan urusanku. Tapi aku pasti akan menyampaikan pesan ayah. Aku senang bertemu 
 ayah, dan akan mengurus urusanku sendiri baik-baik."
 
-Tanpa menunggu komentar Chaghan lagi, ia memutar kudanya dan bergegas kembali ke kota.
+Tanpa menunggu komentar Chaghan lagi, ia memutar kudanya dan bergegas kembali ke kota. Di sepanjang jalan ia memikirkan arti kata-kata Chaghan Temur 
+yang tadi didengarnya. Sepertinya jendral itu ingin menyampaikan suatu pesan tersembunyi. Ia menyimpan semua kalimat itu dalam hati, dan ingin 
+menanyakannya kepada Ki Seung Nyang setelah menyelesaikan sisa urusannya siang ini.
+
+Yin Li tidak menunggu terlalu lama, pasukan Wang Baobao datang sekitar setengah jam setelah ia menyelesaikan makan siangnya. Seperti yang 
+diperkirakan oleh Ki Seung Nyang sebelumnya, semua urusan itu ternyata sangat mudah. Komandan pasukan yang dikirim Wang Baobao dengan cepat 
+menyelesaikan urusannya, dan segera meninggalkan Kaifeng untuk menuju ke utara. Setelah itu, Yin Li memanggil Chang Yuchun kembali ke ruangannya.
+
+Ia juga memanggil Han Lin dan An Shubiao, lalu menyuruh pelayan menyiapkan makan siang bagi mereka. Ia juga memesan makanan kecil bagi dirinya sendiri.
+
+"Mulai sekarang kau akan duduk di kantor ini juga," katanya kepada Chang Yuchun. "Asalkan kau memilih komandan yang tepat, kau pasti bisa 
+mengendalikan semuanya dari sini. Tiap hari kita akan membicarakan urusan penting di sini, dan memecahkan masalah bersama-sama. Mereka berdua 
+akan menjelaskan semua yang perlu kau tanyakan sambil makan. Aku sendiri harus pulang, ada urusan lain."
+
+Setelah mengintip siapa saja yang hadir di ruang tamu, ia mendapati lebih banyak wanita kenalan Ki Seung Nyang di pasar datang ke rumah mereka 
+untuk makan siang bersama. Mereka sedang memaksa Ki Seung Nyang untuk berdandan lebih baik. Banyak orang bahkan menghadiahkan bahan-bahan pakaian 
+dengan warna-warna yang agak menyolok. 
+
+Ia mendengar Ki Seung Nyang menjawab, "Terima kasih atas perhatian kalian semua. Tapi aku sudah tua. Untuk apa aku berdandan? Biar Ah Li yang 
+memakai baju-baju baru hadiah dari kalian ini." 
+
+"Junzhu baru diangkat jadi Kepala Wilayah," kata salah seorang dari mereka, yang dikenali Yin Li sebagai istri pemilik penginapan sederhana, 
+tempat mereka menginap sebelumnya. "Sebentar lagi Dasao akan kedatangan banyak pejabat yang ingin menjalin hubungan baik. Bagaimana mau menemui 
+tamu kalau tidak berdandan rapi?"
+
+"Wah, sekarang saja ayahnya tidak mau mengunjungi kami," kata Ki Seung Nyang lagi. "Kalau banyak pejabat mengunjungiku, lalu apa yang akan 
+dipikirkannya? Jangan-jangan uang tunjangan kami juga tidak akan dikirimkannya lagi."
+
+Mendengar semua itu, Yin Li merasa bahwa para wanita itu diam-diam berusaha menebak siapa Ki Seung Nyang sebenarnya. Saat ini jika Ki Seung Nyang 
+tiba-tiba menghilang, sementara dirinya baru saja diangkat menjadi Kepala Wilayah, maka banyak orang akan menjadi curiga. Sekarang ia tahu mengapa 
+Ki Seung Nyang terpaksa melayani mereka semua, meskipun sebenarnya ia lebih suka menyembunyikan diri. Kadang-kadang kehadiran wanita-wanita itu 
+bisa sangat menguntungkan mereka, seperti yang terjadi kemarin. Bibi Liu memberikan banyak informasi yang memudahkan banyak urusan mereka, tetapi 
+sekaligus juga mengatakan banyak hal tentang mereka di depan umum. Yin Li merasa satu-satunya jalan untuk menjaga rahasia Ki Seung Nyang adalah 
+dengan sengaja menggiring teman-temannya ini ke arah yang salah. Lagipula, ia ingin segera bicara dengan Ki Seung Nyang. Jika menunggu mereka semua 
+pulang, jangan-jangan setelah itu ada tamu lain lagi yang datang.
+
+Setelah berpikir begitu, ia memasuki ruang tamu dengan langkah ringan, lalu berkata, "Wah, kalian memberi ibuku banyak hadiah, padahal aku baru 
+menangkap banyak orang yang memungut pajak lebih. Kalau terus begini, nanti orang akan mengira kami juga menerima sogokan."
+
+"Nah, Junzhu datang!" kata Bibi Liu yang juga hadir di situ. Ia sedang sibuk dengan udang asam manis buatan Yuwen Jinglan. "Para petugas itu kan memaksa, 
+kami tidak dipaksa. Semua ini sukarela, karena ibumu menganggap kami semua keluarga, maka kami juga merasa begitu. Itu lain sekali!"
+
+"Tapi ayahnya tidak berpikir begitu," kata Ki Seung Nyang. "Dia mengira aku sedang memamerkan anakku!"
+
+Yin Li tertawa cekikikan, lalu berkata, "Mukaku seperti ini, apa yang mau dipamerkan?"
+
+Seorang wanita yang biasa dipanggil Ying Furen mendekatinya sambil tersenyum ramah. Yin Li tahu wanita ini adalah pemilik sebuah toko yang menjual 
+perhiasan tak jauh dari pasar. Ketika mereka menangkap Fang Diande, ia ikut datang bersama rombongan para penduduk yang ingin menjadi saksi. Tampaknya 
+sebelum ini ia adalah salah satu orang yang paling dirugikan oleh para petugas pajak, dan pejabat yang menjadi atasan para petugas itu. Ying Furen 
+kurang lebih sebaya dengan Ki Seung Nyang, dan penampilannya sangat menarik, meskipun sebenarnya ia tak terlalu cantik. Kulitnya bersih, perhiasan 
+yang dipakainya tidak menyolok, dan ia hanya memakai riasan tipis untuk menyembunyikan usianya. Paduan warna pakaian yang dikenakannya menimbulkan 
+kesan bahwa ia adalah seorang wanita terhormat, yang agak berbeda dengan wanita-wanita lain di sekitarnya saat itu. Ia selalu berbicara dan bersikap 
+lembut, meskipun orang tahu jelas bahwa ia sedang berusaha menarik minat orang untuk membeli dagangannya. Selama ini para pelanggan atau pengunjung 
+toko itu tak pernah merasa dipaksa jika berbicara dengan Ying Furen.
+
+Ying Furen mengambil salah satu bahan pakaian yang nampak mewah, dan berwarna biru cerah, lalu berkata sambil melingkarkannya di bahu Yin Li, 
+"Junzhu, sebetulnya yang Junzhu perlukan hanya riasan tipis dan dandanan yang lebih sesuai untuk wanita. Semua orang sebenarnya punya beberapa 
+kelemahan yang ingin mereka sembunyikan. Aku sendiri punya banyak kerutan di sekitar mata, tetapi dengan riasan tipis dan warna-warna pakaian yang 
+tepat, orang tidak akan memperhatikan hal itu."
+
+Beberapa orang langsung setuju dengan pendapatnya. Mereka mulai memilih-milih warna yang menurut mereka cocok dengan kulit Yin Li. Ada juga yang 
+mendekatkan seperangkat perhiasan mewah ke telinganya.
+
+"Hmm, ini akan membuat kulit Junzhu tampak lebih putih."
+
+"Rasanya warna merah lebih cocok."
+
+"Kalau ingin menonjolkan kulitnya yang putih, kau harus memberinya pakaian hitam!"
+
+"Nah, nah, nah," kata Yin Li sambil tertawa. "Ah Yi, Ah Yi, kalau aku memakai pakaian atau perhiasan seperti itu, maka aku tidak akan bisa 
+berkelahi. Bukankah kalian tahu, pekerjaanku sekarang ini membuatku sering berhadapan dengan orang yang mengajak berkelahi?"
+
+Ki Seung Nyang tertawa. "Kalian dengar sendiri. Anakku memang seperti ini, karena itu kemarin aku bilang, aku tidak akan punya cucu."
+
+Yin Li segera memanfaatkan peluang emas itu. Ia berkata, "Mama tidak ingin bertemu ayah?"
+
+"Huh!" dengus Ki Seung Nyang. "Mama sudah tua. Kalau dulu dia jarang menemuiku, apalagi sekarang."
+
+Yin Li menghampirinya, lalu melingkarkan kedua lengannya dari belakang untuk memeluk Ki Seung Nyang dengan lembut, dan mencium pipinya 
+sambil berkata, "Sebetulnya tadi aku ketemu ayah."
+
+Teman-teman Ki Seung Nyang jadi penasaran. Mereka saling berpandangan, tetapi tak ada yang mengatakan apa-apa. Tampaknya mereka ingin mendengar 
+cerita Yin Li lebih jauh.
+
+Saat itu mata Ki Seung Nyang berkedip sedikit. Tetapi kemudian ia berkata dengan acuh tak acuh, "Lalu dia bilang apa?"
+
+Yin Li berpikir cepat, lalu menjawab, "Ayah bilang, kalau aku dan Meimei mengerjakan urusan kami baik-baik, maka dia tidak perlu datang untuk 
+menghukum kami."
+
+Ia mendengar beberapa wanita itu berbisik-bisik setelah mendengar jawabannya. Tetapi Ki Seung Nyang tertawa dan berkata, "Maksudmu 'Meimei' 
+_yang mana_? Kau punya banyak Meimei. Kudengar kau juga baru punya Meimei di Suzhou. Dia baru lahir."
+
+Sampai di sini, Yin Li tahu bahwa Ki Seung Nyang sudah menangkap maksudnya, dan sengaja membocorkan sedikit urusan kecil untuk memuaskan rasa ingin tahu 
+teman-temannya. Karena itu ia berkata, "Mama pasti tahu, yang paling dekat denganku hanya yang di Hanyang."
+
+"Oh, _dia_?" kata Ki Seung Nyang. "Kurasa ayahmu hanya ingin tahu tentang adikmu itu — dan tentu saja ibunya — karena itu dia menyebut namanya. 
+Selain itu dia bilang apa?"
+
+"Ayah bilang tidak akan mengunjungi mereka di Hanyang," jawab Yin Li.
+
+
+
+
 
 
 
