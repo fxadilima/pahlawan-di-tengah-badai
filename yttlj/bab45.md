@@ -503,7 +503,7 @@ Ia merasa mereka tidak sungguh-sungguh mematuhi perintahnya, dan Ki Seung Nyang 
 mereka memerlukan dukungan dalam bertindak.
 
 Tetapi di dalam surat lainnya, Zhang Wuji mengatakan bahwa panglima ini adalah anggota senior Ming Jiao. Ia mencoba mengingat-ingat berbagai peristiwa 
-lama ketika ia masih bertualang bersama Zhang Wuji — yang saat itu dipangglnya Zeng Aniu — dan ketika mereka bertemu dengan para anggota Ming Jiao. 
+lama ketika ia masih bertualang bersama Zhang Wuji — yang saat itu dipanggilnya Zeng Aniu — dan ketika mereka bertemu dengan para anggota Ming Jiao. 
 Setelah beberapa menit, akhirnya ia samar-samar teringat ketika Miejue Shitai membantai banyak orang Ming Jiao dalam perjalanan menuju ke Guangming Ding. 
 Saat itu sepertinya ia melihat Chang Yuchun ikut bertempur melawan Miejue Shitai dan para pendekar dari enam perguruan arus utama lainnya. 
 
