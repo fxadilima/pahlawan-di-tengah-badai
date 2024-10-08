@@ -183,11 +183,11 @@ mendengarkan instruksi Yin Li.
 Chengzhu terkejut melihat makanan-makanan kecil yang dibelinya sudah hampir habis. "Astaga!" katanya. "Bukankah kalian tadi sudah makan siang 
 sepuasnya di kedai?"
 
-Salah seorang pemuda itu berkata, "Shen Jingbing makan empat potong kue dan sepotong bakpao!"
+Zhong Zhihui berkata, "Shen Jingbing makan empat potong kue dan sepotong bakpao!"
 
 Semua orang tertawa mendengar ucapannya. Yin Li berkata, "Kalau kau memang lapar, aku bisa memesan makanan lagi sekarang."
 
-Shangguan Wu berkata, "Sebenarnya sejak tadi kami mencium aroma sup kambing di ruangan Torebeg. Shen Jingbing tadinya ingin tinggal lebih lama."
+"Sebenarnya sejak tadi kami mencium aroma sup kambing di ruangan Torebeg," kata Zhong Zhihui. "Shen Jingbing tadinya ingin tinggal lebih lama."
 
 "Kenapa mereka memanggilmu 'orang gila'?" tanya Yin Li heran.
 
@@ -317,12 +317,324 @@ Bei Jinyi tersenyum senang. "Anak-anak itu yang hebat, kami hanya mengawasi."
 Sima Han memasuki ruangan sambil membawa serta Chang Yuchun dan Zeng Banshan.
 
 Setelah mempersilakan kedua komandan itu duduk, Zhang Wuji berkata, "Sima Zhanglao, sekarang kerahkan beberapa Penatua Delapan Kantong untuk 
-menghubungi Nona Yin di Kaifeng. Mereka harus siap jika sewaktu-waktu harus mengerahkan anak buahnya untuk melakukan yang disuruh. Tegaskan kepada 
-mereka semua supaya memberitahu anggotanya, di situ mereka harus memanggil Nona Yin dengan sebutan 'Shaoli Junzhu'!"
+menghubungi Nona Yin di Kaifeng. Anggota mereka harus siap untuk dikerahkan sewaktu-waktu. Tegaskan kepada mereka supaya memberitahu anggotanya, 
+di situ mereka harus memanggil Nona Yin dengan sebutan 'Shaoli Junzhu'!"
 
 "Zaixia akan menghubungi mereka secepatnya," kata Sima Han. Kemudian ia segera meninggalkan ruangan itu.
 
+Kedua komandan pasukan itu saling berpandangan setelah mendengar apa yang dikatakannya. 
 
+Zhang Wuji menatap keduanya dalam-dalam sebelum berkata, "Kita harus menukar lima ribu orang dengan pasukan yang saat ini ada di Kaifeng. 
+Lima ribu orang itu adalah prajurit dari Kantor Kepala Wilayah yang sekarang dikuasai Nona Yin. Kalian punya usul, bagaimana kita akan menukarnya?"
+
+Kedua orang itu kemudian memperhatikan peta, dan berpikir agak lama. Chang Yuchun bangkit dari kursinya, lalu menelusuri jalan dari Xiangyang 
+menuju ke Kaifeng. Ia berkata, "Berangkat dari sini seharusnya tidak masalah. Tapi..."
+
+Ucapannya dilanjutkan oleh Zeng Banshan, "Pulang dari situ kita harus membawa lima ribu orang yang cenderung melawan."
+
+"Betul," kata Chang Yuchun lagi. "Lebih dari delapan ratus _li_. Banyak hal bisa terjadi."
+
+Zhang Wuji mendekati peta itu, lalu menunjuk ke sebuah titik dengan jarinya, dan berkata, "Saat ini Wangye sudah tiba di Nanyang."
+
+Situasi menjadi agak tegang. Chang Yuchun sebelumnya berhadapan dengan Chaghan Temur sebagai musuh, tetapi saat ini ia sudah diberitahu 
+mengenai perubahan politik. Sedangkan Zeng Banshan, sejak awal ia memang adalah bawahan Chaghan Temur. Sejauh ini keduanya bisa bekerja sama 
+dengan baik di Xiangyang. Tetapi sekarang mereka tidak tahu bagaimana sikap Chaghan jika kondisi politik berubah lagi. Karena itu kedua komandan 
+itu tidak mengatakan apa-apa. Mereka hanya diam sambil menunggu Zhang Wuji bicara.
+
+Zhang Wuji melanjutkan, "Aku tahu apa yang sedang kalian pikirkan. Aku bisa menegaskan bahwa Wangye _pasti_ ada di pihak kita. Masalahnya adalah, 
+sejauh ini Wangye tidak bergerak untuk memasuki Kaifeng, karena tidak cukup alasan untuk melakukannya. Tetapi jika rakyat mulai berontak, maka 
+Wangye tidak bisa lagi menolak perintah itu. Justru inilah alasan sebenarnya, mengapa Nona Yin menduduki posisi Kepala Wilayah di Kaifeng. Mereka 
+sedang melakukan operasi _sapu bersih_, supaya rakyat tidak punya alasan untuk memberontak. Nah, masalah yang terbesar adalah, ada pihak yang _sengaja_ 
+membiarkan para pejabat di tingkat bawah melakukan berbagai pungutan liar yang meresahkan rakyat. Nona Yin tidak punya dukungan militer yang cukup 
+kuat untuk melawan mereka, jadi langkah pertama adalah menyingkirkan pasukan yang bermasalah itu ke tempat lain."
+
+Chang Yuchun bertanya, "Mengapa tidak dihabisi saja semua orang yang bermasalah itu?"
+
+"Nah!" kata Zhang Wuji lagi. "Kita tidak bisa menghabisi sepuluh ribu prajurit begitu saja, hal itu akan membuat kita melawan hukum. Tidak ada bukti 
+yang mengatakan bahwa semua orang itu — atau semua aparat Penegak Hukum, atau para petugas pajak — bersalah. Jadi bukan semuanya bersalah. Memang ada 
+yang melakukannya, tetapi ada yang tidak. Untuk menemukan siapa saja yang pantas ditangkap dan diadili, akan membutuhkan waktu yang sangat panjang. 
+Itu adalah proses yang akan dilakukan terus menerus, dengan dukungan aparat yang bisa dipercaya. Jika Nona Yin menghabisi sepuluh ribu orang begitu saja, 
+maka dia akan berakhir seperti Jendral Bayan. Jadi, lima ribu orang akan dipindahkan ke utara, dan lima ribu lainnya akan dipindahkan ke Xiangyang."
+
+Zeng Banshan berkata, "Jiaozhu punya usul, bagaimana kita akan memindahkan lima ribu orang itu?"
+
+"Kalian membawa suratku bersama lima ribu orang untuk menemui Wangye di Nanyang," kata Zhang Wuji. "Setelah itu, dengarkan instruksi dari Wangye." 
+Ia menatap kedua komandan itu lekat-lekat sambil berkata, "Rinciannya memang bisa lain. Tapi aku akan mengatakan bagaimana Wangye akan menjawab kalian. 
+Kalian akan melanjutkan perjalanan ke Kaifeng, lalu salah satu dari kalian akan membawa pulang lima ribu orang dari situ. Begitu kalian keluar dari 
+Kaifeng, Wangye juga akan mengirim sepuluh ribu orang ke luar pintu gerbang. Pasukan Wangye tidak akan memasuki Kaifeng sama sekali. Di salah satu tempat, 
+lima ribu orang dari Kaifeng itu akan ditukar dengan lima ribu orang dari Wangye untuk dibawa ke sini."
+
+Kedua komandan itu diam sejenak untuk merenungkan strategi yang disebutkan Zhang Wuji. Secara teknis, keduanya melihat bahwa dengan cara ini lima ribu 
+orang yang dibawa keluar dari Kaifeng itu tidak akan berani berbuat apa-apa. karena jumlah meraka akan berimbang dengan pasukan Chaghan Temur yang 
+akan membawa mereka ke perkemahan di Nanyang. Di mata Chang Yuchun, kalaupun mereka punya nyali yang cukup besar untuk mencoba berontak atau melarikan diri, 
+Chaghan Temur pasti akan menyiapkan cara untuk menghabisi semuanya. Sedangkan bagi Zeng Banshan, orang-orang itu pasti tahu bahwa Chaghan Temur dab 
+Bolad Temur sebetulnya adalah sama-sama hasil didikan Dash Badalugh. Karena itu, setelah melihat bahwa mereka ternyata akan berada di bawah komando 
+Chaghan Temur, mereka juga tidak akan melawan lagi, atau bahkan senang, karena dengan begitu mereka akan bisa memata-matai Chaghan, dan melaporkannya 
+kepada Bolad Temur. Zeng Banshan yang cukup lama mengikuti Chaghan lebih tahu bagaimana cara jendral itu berpikir. Chaghan akan dengan senang hati,  
+sengaja membiarkan mereka melapor, dan akan memanfaatkan peluang itu untuk sengaja memberikan informasi yang salah. Dengan begitu, di tangan Chaghan, 
+lima ribu prajurit bermasalah itu justru akan menimbulkan keuntungan besar bagi mereka.
+
+Chang Yuchun dan Zeng Banshan akhirnya mengangguk. Lalu Chang Yuchun berkata, "Ini taktik jitu."
+
+Zeng Banshan bertanya, "Siapa yang akan Jiaozhu tinggalkan di Kaifeng?"
+
+"Untuk itu aku menunjuk Chang Yuchun," kata Zhang Wuji dengan muka serius. Ia kemudian menyuruh Chang Yuchun berlutut untuk menerima perintah resmi.
+
+Ia berkata, "Chang Yuchun, dengan ini aku mengangkatmu sebagai panglima, yang akan memimpin sepuluh ribu prajurit di bawah komando Shaoli Junzhu 
+di Kaifeng. Misi utamamu adalah untuk membantunya menegakkan hukum, memberantas korupsi dan pungutan liar di kawasan itu. Dengan demikian kau akan 
+menentramkan rakyat dan mencegah terjadinya pemberontakan."
+
+Chang Yuchun meletakkan tangan di dada dengan sikap penuh hormat, lalu berkata, "Chang Yuchun menerima perintah Jiaozhu, dan akan melaksanakannya 
+dengan taruhan nyawa!"
+
+Zeng Banshan menjabat tangan Chang Yuchun sambil berkata, "Selamat bertugas, Panglima Chang!"
+
+Zhang Wuji kembali berkata, "Zeng Banshan, terima perintah!"
+
+Zeng Banshan berltu dengan sikap hormat.
+
+"Zeng Banshan, dengan ini aku juga akan menaikkan pangkatmu. Mulai sekarang kau akan menjadi komandan bagi seluruh pasukan di tempat ini. Kau harus 
+segera mengangkat komandan baru bagi pasukanmu sendiri saat ini. Dia harus bisa menggantikan tugasmu sementara kau pergi ke Kaifeng bersama Panglima Chang!"
+
+Setelah upacara singkat itu, Zhang Wuji berkata, "Chang Dage, Komandan Zeng, sebentar lagi Nona Bei akan memberikan surat penunjukan dan rincian 
+tugas yang harus kalian lakukan. Chang Dage harus tetap di Kaifeng untuk waktu yang cukup lama. Kau harus selalu menghubungi kami di sini. Karena 
+kalian berdua berasal dari suku Han, kelihatannya komandan lima ribu pasukan di Kaifeng itu pasti tidak rela mendengarkan perintah kalian. Tetapi 
+mereka tidak akan berani terang-terangan menentang Shaoli Junzhu. Yang paling berbahaya adalah ketika Komandan Zeng keluar dari Kaifeng. Di situ 
+mereka akan mulai mencoba melawan. Tapi kami sudah memikirkan cara untuk mengatasinya."
+
+Sementara Bei Jinyi menulis surat tugas bagi mereka berdua, Ah Da mengetuk pintu dan berkata, "Gongzi, ada utusan dari Nanjing."
+
+"Bawa mereka masuk!" kata Zhang Wuji.
+
+Ternyata Tang He datang bersama dua orang gadis muda. Mereka segera membungkuk hormat kepada Zhang Wuji, lalu Tang He berkata, "Jiaozhu, Ma Furen 
+mengirimkan mereka berdua kepada Jiaozhu."
+
+Mendengar ini, semua mata langsung menatap Zhang Wuji dengan pandangan bertanya. 
+
+"Tang Dage, ini maksudnya apa?" tanya Zhang Wuji. "Mengapa Ma Furen mengirim mereka kepadaku?"
+
+Chang Yuchun tertawa sambil berkata, "Lao Tang, kau membingungkan Jiaozhu!"
+
+Tang He buru-buru minta maaf, lalu berkata, "Waktu itu beberapa perwira mabuk di kedai milik kedua nona ini. Mereka tidak mau membayar harga makanan dan minuman. 
+Akhirnya, tanpa sadar mereka membunuh ayah kedua nona ini. Zhu Dashuai kebetulan ada di situ, jadi semua perwira itu kemudian ditangkap dan diadili 
+menurut hukum militer. Mereka dihukum mati. Karena saat itu kedua nona ini sempat berkenalan dengan Chang Yuchun dan Xu Da, Ma Furen lalu mengusulkan 
+supaya mereka segera dinikahkan dengan Yu'er dan Fei'er ini. Kedua nona ini sudah menyetujui usul Ma Furen, karena itulah Ma Furen kemudian menyuruhku 
+mengantarkan mereka kemari."
+
+Zhang Wuji sangat terkejut. Air mukanya berubah. Tetapi akhirnya ia menyadari bahwa tindakan tegas itu memang diperlukan untuk membuat semua perwira 
+lain tidak berani melakukan pelanggaran yang sama. Meskipun begitu, ia merasa bahwa tindakan Zhu Yuanzhang perlu dibatasi.
+
+Mendengar keterangan Tang He, Chang Yuchun melirik ke arah Yu'er, yang saat itu sedang tersipu sambil menundukkan kepalanya. Ia berkata, "Lao Tang, 
+tolong sampaikan terima kasihku kepada Ma Furen. Tapi saat ini Xu Da sedang berada di Hanyang, rasanya dia masih akan lama di situ."
+
+"Soal itu kami juga tahu," kata Tang He. "Tapi Ma Furen mengatakan supaya aku membawa mereka berdua ke sini untuk menyapa Jiaozhu, dan sekaligus 
+mengabarkan hal ini. Setelah ini aku sendiri yang akan mengantarkan Fei'er ke Hanyang untuk menemui Xu Da. Ma Furen juga menitipkan surat untuk 
+Zhou Xiangzhang."
+
+"Itu tidak perlu," kata Zhang Wuji. "Dalam satu-dua hari ini aku memang akan mengirim utusan ke Hanyang. Fei'er bisa ikut bersama mereka. Untuk sementara 
+Fei'er bisa menginap di sini, karena banyak anak-anak perempuan yang bertugas di sini pasti mengenalnya. Pesan untuk Zhou Xiangzhang itu bisa kau 
+titipkan kepada Fei'er. Kau sendiri harus segera kembali ke Nanjing untuk menyampaikan pesanku kepada Zhu Yuanzhang. Hanya Zhu Yuanzhang yang boleh 
+membacanya."
+
+Ia menulis sebuah pesan dengan cepat, lalu memberikannya kepada Bei Jinyi sambil berkata, "Bei Shijie, suruh mereka segera menyiapkan pesan ini."
+
+Bei Jinyi bergegas keluar dari ruangan itu setelah menerima tulisan Zhang Wuji.
+
+"Jiaozhu, bagaimana dengan Yu'er?" tanya Tang He.
+
+Zhang Wuji berpaling kepada Chang Yuchun sambil tersenyum. Ia berkata, "Chang Dage, kalau kau tidak keberatan, hari ini juga aku akan mengadakan 
+upacara kecil untuk meresmikan pernikahan kalian — di tempat ini. Kita semua akan menjadi saksi."
+
+Chang Yuchun sangat terkejut. Ia berkata, "Jiaozhu, ini..."
+
+"Kenapa?" tanya Zhang Wuji. "Kau tidak menyukai Yu'er? Atau kau merasa aku seharusnya mengadakan pesta yang lebih layak? Sayangnya kau harus segera 
+berangkat ke Nanjing. Jadi aku hanya bisa mengadakan acara kecil yang sederhana ini bagi kalian. Menyiapkan pesta besar tentu membutuhkan waktu."
+
+"Bukan," kata Chang Yuchun lagi. "Tapi ini..."
+
+"Ah, kalau begitu kau setuju!" kata Zhang Wuji.
+
+Tang He tertawa gembira sambil merangkul Chang Yuchun dan menepuk-nepuk perutnya. "Lao Chang, kau lupa mengucapkan terima kasih kepada Jiaozhu!"
+
+Acara mendadak itu memang sangat sederhana. Setelah menyelesaikan tugasnya untuk mengubah pesan rahasia Zhang Wuji menjadi kode-kode yang hanya bisa 
+dimengerti oleh Zhu Yuanzhang sendiri, Bei Jinyi bertindak sebagai wali untuk Yu'er. Sedangkan Zhang Songxi mewakili orang tua Chang Yuchun. 
+Setelah itu, Bei Jinyi menyuruh para petugas dapur menyiapkan pesta kecil untuk merayakan pernikahan Chang Yuchun dan Yu'er. Hari itu semua orang di 
+tempat itu bergembira. Zhang Wuji mengirimkan arak dan daging ke barak-barak militer. Ia sekaligus mengumumkan kenaikan pangkat dan pernikahan Chang Yuchun.
+
+Setelah berunding dengan kedua pamannya, Zhang Wuji merasa sangat tidak baik jika membiarkan Yu'er tinggal di barak militer setelah Chang Yuchun pergi. 
+Karena itu ia segera menyuruh para pelayan untuk menyiapkan ruangan baru bagi Chang Yuchun dan istrinya.
+
+Ia berkata, "Chang Dage, aku merasa tidak enak karena terpaksa mengirimmu ke Kaifeng setelah menikah. Tapi kau tidak perlu kuatir, dalam beberapa hari 
+setelah kau berangkat, aku akan mengirimkan lima orang anggota Panji Lima Elemen yang kungfunya cukup tinggi untuk mengawal istrimu ke Kaifeng. 
+Mereka akan berangkat tanpa senjata, jadi tidak akan menimbulkan kecurigaan para petugas di situ. Kau harus tinggal cukup lama di Kaifeng. Aku tidak tahu 
+kapan kau akan kembali ke sini. Tetapi aku juga tidak bisa membiarkan Yu'er mengikuti kalian berangkat dari sini bersama pasukan itu, karena perjalanan 
+itu sangat berbahaya."
+
+Chang Yuchun merasa terharu. Ia tentu tahu bahwa Zhang Wuji sendiri langsung berangkat ke Xiangyang pada hari perkawinannya. Tak lama setelah itu 
+Zhou Zhiruo harus pergi ke Hanyang, dan kemudian Zhao Min menyusul untuk bertugas di sana, sampai sekarang mereka berdua belum kembali.
+
+Ia berkata sambil merangkul istrinya, "Jiaozhu, jika dibandingkan dengan pengorbanan Jiaozhu, hanya berpisah sebentar sama sekali tidak ada artinya. 
+Kami bahkan merasa seperti sedang melakukan tugas bagi rakyat."
+
+Bei Jinyi menyerahkan sebuah tempat obat berbentuk bulat yang terbuat dari lilin kepada Tang He, sambil berkata, "Ini pesan yang harus dikirim ke Nanjing."
+
+Setelah menerima pesan rahasia itu, Tang He sekali lagi mengucapkan selamat kepada Chang Yuchun, lalu segera berpamitan untuk kembali ke Nanjing.
+
+Dua hari kemudian, Chang Yuchun dan Zeng Banshan memimpin lima ribu orang ke Kaifeng. Mereka mampir di Nanyang untuk bertemu dengan Jendral Chaghan Temur 
+dan menyampaikan surat Zhang Wuji. Tak lama kemudian mereka segera meneruskan perjalanan ke Kaifeng.
+
+Di luar pintu gerbang kota, mereka mengganti seragam yang mereka kenakan dengan seragam prajurit Dinasti Yuan, lalu berarak memasuki kota. Kepada 
+petugas di pintu gerbang, mereka mengatakan ingin bertemu dengan Shaoili Junzhu. 
+
+Saat itu nama Shaoli Junzhu sudah dikenal di seluruh Kaifeng, semua orang tahu di mana Yin Li tinggal. Setibanya di Kantor Kepala Wilayah yang 
+sekarang ditempati Yin Li, Chang Yuchun menyerahkan tanda pengenalnya kepada pengawal yang bertugas untuk menjaga pintu gerbang. Tak lama kemudian, 
+ia dipanggil untuk masuk menemui Yin Li.
+
+Setibanya di ruangan Yin Li, Chang Yuchun segera membungkuk hirmat sambil meletakkan tangan di dada. Ia berkata, "Chang Yuchun menghadap Shaoli Junzhu!"
+
+Ia menyerahkan surat penunjukan dan sebuah surat lain yang dititipkan Zhang Wuji.
+
+Yin Li membaca kedua surat itu sekilas, lalu mengusir semua orang lain keluar ruangan. Ia menyuruh Chang Yuchun bangkit berdiri, dan mengamati 
+mukanya dengan penuh perhatian dari jarak dekat.
+
+Yin Li tidak ingat lagi kapan ia pernah melihat Chang Yuchun. Surat penunjukan Zhang Wuji mengatakan bahwa orang ini akan ditempatkan di sini 
+sebagai panglima, dan akan memimpin seluruh prajurit yang ada di situ. Para prajurit di tempat itu sampai sekarang masih diabaikan oleh Yin Li. 
+Ia merasa mereka tidak sungguh-sungguh mematuhi perintahnya, dan Ki Seung Nyang juga cenderung memakai para petugas dari Penegak Hukum kota jika 
+mereka memerlukan dukungan dalam bertindak.
+
+Tetapi di dalam surat lainnya, Zhang Wuji mengatakan bahwa panglima ini adalah anggota senior Ming Jiao. Ia mencoba mengingat-ingat berbagai peristiwa 
+lama ketika ia masih bertualang bersama Zhang Wuji — yang saat itu dipangglnya Zeng Aniu — dan ketika mereka bertemu dengan para anggota Ming Jiao. 
+Setelah beberapa menit, akhirnya ia samar-samar teringat ketika Miejue Shitai membantai banyak orang Ming Jiao dalam perjalanan menuju ke Guangming Ding. 
+Saat itu sepertinya ia melihat Chang Yuchun ikut bertempur melawan Miejue Shitai dan para pendekar dari enam perguruan arus utama lainnya. 
+
+Ia berseru. "Oh, ternyata kau!"
+
+Chang Yuchun tahu bahwa 'Nona Yin' yang dimaksud Zhang Wuji adalah Yin Li, putri Yin Yewang — yang sekaligus adalah adik sepupunya. Ia memang ingat 
+pernah melihat Yin Li dalam pertempuran dengan enam perguruan besar di Guangming Ding. Tetapi saat itu Yin Li tak lebih dari seorang gadis kecil 
+sekitar lima belas atau enam belas tahun, yang berwajah jelek akibat berlatih kungfu Jari Laba-laba Beracun. Perangainya tak terduga. Chang Yuchun 
+saat itu sempat melihatnya membunuh orang dengan jurus beracun itu, dan ia merasa tidak nyaman jika berdekatan dengan Yin Li.
+
+Tetapi Yin Li yang sekarang tampil sebagai Shaoli Junzhu di Kaifeng adalah seorang wanita dua puluh satu tahun. Mukanya memang tidak lagi jelek. 
+Tubuhnya sudah berkembang sempurna menjadi wanita dewasa, dengan lekuk-lekuk yang sangat indah. Meskipun begitu, mukanya sekarang dipenuhi bekas 
+luka akibat sayatan pedang, yang menimbulkan kesan tidak enak ketika Chang Yuchun melihatnya. Sewaktu Yin Li mengamati mukanya dari jarak dekat, 
+ia merasa tengkuknya tiba-tiba menjadi dingin. Ia berusaha mempertahanan sikapnya, dan tidak mengatakan apa-apa, kecuali menunggu komentar Yin Li 
+selanjutnya.
+
+Saat itu pintu ruangan diketuk dari luar, dan seorang anak perempuan belasan tahun masuk sambil berkata kepada Yin Li, "Junzhu, Furen ingin membicarakan 
+beberapa hal penting. Junzhu harus segera menemuinya di rumah."
+
+Yin Li mengangguk, lalu berkata, "Baik, kau langsung pulang. Katakan kepada Furen, aku akan menemuinya setelah ini. Kalau kau keluar, tolong panggil 
+Han Lin ke sini."
+
+Setelah anak itu pergi, Yin Li berkata, "Kita menunggu kedatangan pasukan dari utara. Kau dan pasukanmu boleh beristirahat dulu. Setelah mereka datang, 
+barulah kita bertindak."
+
+Han Lin masuk dan memberi hormat, lalu Yin Li berkata, "Antarkan Panglima Chang dan pasukannya untuk beristirahat. Untuk sementara, ajak mereka 
+ke pinggiran kota. Jangan katakan apa-apa kepada siapapun yang bertanya!"
+
+Tanpa mengatakan apa-apa lagi, Yin Li keluar dari ruangan itu. Dari situ ia segera menemui Ki Seung Nyang.
+
+Ia segera melihat ada banyak tamu wanita yang sengaja datang menemui Ki Seung Nyang hari itu. Melihat hal ini, Yin Li bergegas menuju ke dapur dan 
+berkata kepada salah seorang anak perempuan yang sedang bertugas di situ, "Jinglan, katakan kepada Furen bahwa aku menunggu di kamarnya. Aku tidak 
+punya waktu untuk menemui semua orang itu."
+
+Yuwen Jinglan mengiyakan, lalu mengambil sebuah piring dan mengisinya dengan beberapa potong kue, setelah itu ia segera membawanya ke ruang tamu.
+
+Pada saat Ki Seung Nyang memasuki kamarnya, Yin Li sedang menyeruput teh hangat, lalu berkata, "Bibi, Chang Yuchun sudah datang."
+
+"Bagus!" kata Ki Seung Nyang dengan gembira. "Sekarang juga kau lakukan pertukaran lima ribu prajurit. Suruh Jinheung ikut membantumu. Mukanya 
+lebih mirip orang Mongolia ketimbang lainnya, jadi lima ribu orang itu tidak akan mempertanyakannya."
+
+Yin Li menyeringai lebar, lalu berkata, "Nama itu agak aneh. Aku selalu memanggilnya Ah Xing, atau Zhenxing. Apa yang harus dilakukannya?"
+
+"Mula-mula, kalian datangi barak militer, ajak empat ribu orang untuk mengikuti kalian ke — di mana kau menempatkan pasukan Chang Yuchun saat ini?"
+
+"Di pinggiran kota, agak jauh dari pinti gerbang," jawab Yin Li.
+
+"Bagus," kata Ki Seung Nyang lagi. "Kalau begitu, kalian ajak empat ribu orang itu keluar pintu gerbang, suruh mereka berbaris di situ untuk menunggu 
+sampai kau datang. Tinggalkan Ah Xing di situ untuk mengawasi mereka."
+
+"Apa yang harus kulakukan?" tanya Yin Li.
+
+"Kau kembali ke tempat Chang Yuchun, dia mengajak seorang komandan lain yang bernama — siapa...?"
+
+"Yang ada di surat namanya adalah Zeng Banshan," jawab Yin Li.
+
+"Oh, betul," kata Ki Seung Nyang lagi. "Suruh Chang Yuchun menunggu di tempatnya. Kau ajak Zeng Banshan bersama dua ribu prajurit ke rumah dinas. 
+Suruh pasukannya menunggu di luar. Kau bersama Zeng Banshan masuk untuk mengumpulkan semua prajurit yang mengawal di situ, lalu giring semuanya keluar. 
+Menurut laporan, jumlah mereka hanya seribu orang, jadi kalaupun ada yang bermaksud melawan, kau tinggal memerintahkan kepada pasukan Zeng Banshan untuk 
+meringkus semuanya." Ia tersenyum lebar, lalu berkata lagi, "Kurasa mereka tidak akan berani sembarangan bertindak, jadi kau tinggal menggiring mereka 
+untuk berkumpul di luar pintu gerbang kota, dan berkumpul bersama anggota mereka lainnya. Zeng Banshan bisa menempatkan seribu orangnya untuk menggantikan 
+tugas untuk mengawal rumah dinas. Sementara seribu prajurit sisanya menunggu di luar, kau bersama dengan Zeng Banshan harus segera kembali ke pintu 
+gerbang. Dari situ kalian langsung membawa mereka keluar dari Kaifeng. Kalian berjalan santai sambil membicarakan hal-hal yang tidak penting 
+menuju ke selatan. Hanya komandan mereka yang boleh membawa kuda, biarkan yang lainnya berjalan kaki. Hanya beberapa _li_ dari pintu selatan kota, 
+kalian akan berpapasan dengan Chaghan Temur, yang membawa dua ribu pasukannya sendiri."
+
+"Wah, itu ayah Minmin ya?" kata Yin Li terkejut.
+
+"Betul," kata Ki Seung Nyang sambil tersenyum. "Kau tidak usah takut. Chaghan sudah tahu kau siapa. Kau _harus_ memanggilnya 'ayah'. Perhatikan 
+baik-baik, kau _tidak boleh_ memanggilnya 'Wangye' — atau sebutan lainnya."
+
+"Apa?" ulang Yin Li. Ia bahkan tidak pernah melihat muka Chaghan Temur, dan hanya mendengar namanya dari cerita orang. Bagaimana ia harus menyapa 
+orang itu dengan sebutan 'ayah'?
+
+Ki Seung Nyang melanjutkan dengan santai, "Kau tidak perlu berbicara dalam bahasa Mongolia. Chaghan bisa berbahasa Han dengan lancar. Kau juga tidak 
+perlu terlalu banyak bicara untuk berbasa-basi. Kau hanya perlu mengatakan sesuatu seperti 'Ayah, ini pesananmu! Aku harus segera kembali.' — atau 
+sesuatu semacam itu. Dia akan mengangguk, atau mengatakan sesuatu yang singkat dan biasa saja, lalu kau bisa segera memacu kudamu untuk kembali ke 
+Kaifeng. Zeng Banshan akan menangani sisanya."
+
+Yin Li membutuhkan sedikit waktu untuk memahami rencana itu. Ia makan sepotong shaobing pelan-pelan, lalu menuangkan secawan arak beras Kaifeng, 
+dan meneguknya sambil berpikir. Lalu ia menganggukkan kepalanya dengan mantap, dan berkata, "Baik, aku mengerti. Selanjutnya bagaimana?"
+
+Ki Seung Nyang tersenyum. "Sisanya sangat gampang," katanya. "Kau tinggal menunggu kedatangan lima ribu pasukan Wang Baobao dari utara. Setelah 
+komandan pasukan itu melaporkan kedatangannya, suruh Han Lin membawa mereka semua ke barak militer yang hanya tersisa lima ribu orang itu. Komandan 
+itu yang akan menangani sisanya. Mereka tidak akan berani membantah, dan akan menuruti apa kata si komandan. Komandan itu akan meninggalkan pasukan 
+yang dibawanya, lalu menggiring pasukan yang sebelumnya ada di situ menuju pintu utara. Kau tidak perlu memusingkan mereka lagi. Mulai saat itu 
+Chang Yuchun yang akan menguasai wilayah ini sebagai panglima, dan kau tinggal menghubunginya kapan saja kau memerlukan prajurit untuk meringkus 
+orang. Aparat Penegak Hukum hanya akan menerima hasil tangkapan kalian, dengan begitu mereka juga tidak akan merasa diri penting."
+
+Yin Li bangkit dari tempat duduknya, lalu berkata sambil tertawa, "Sekarang juga aku akan melakukan semuanya!"
+
+Tetapi Ki Seung Nyang buru-buru memanggilnya, "Ah Li, setelah semuanya beres, kau segera ke sini. Masih ada hal lain yang perlu kau lakukan."
+
+"Aku tahu," jawab Yin Li sambil berlari keluar.
+
+Ia melakukan instruksi Ki Seung Nyang dengan setepat-tepatnya. Tetapi pada saat Zeng Banshan mengumpulkan semua pengawal di depan bangunan itu, 
+telinganya mendengar salah satu prajurit sedang mengomel dalam bahasa Mongolia, sementara mereka sedang mengatur barisan. Ia segera berbalik ke arah 
+sumber suara, dan melihat bahwa prajurit itu ternyata bertubuh tinggi besar dan berusia sekitar dua puluh lima tahun. Teman-temannya sedang menyenggol 
+lengannya untuk memberinya peringatan bahwa Yin Li mendengar ucapannya.
+
+Air muka Yin Li berubah. Ia menoleh kepada Zeng Banshan dan berkata dengan dingin, "Zeng Banshan, ringkus orang ini!" 
+
+Zeng Banshan segera memerintahkan beberapa perwiranya sendiri untuk menangkap dan mengikat prajurit yang dimaksud. Hal ini segera membungkam mulut 
+semua prajurit lain.
+
+"Awasi dia baik-baik!" kata Yin Li lagi.
+
+Ia berkata kepada semua prajurit lain yang sudah berbaris rapi, "Kalian semua, ikut aku!"
+
+Ia menaiki kudanya, lalu memberi aba-aba supaya mereka semua mulai bergerak. Tanpa ada yang berani membantah lagi, semua pasukan itu mengikuti 
+Yin Li dan Zeng Banshan menuju ke pintu selatan kota. Yin Li kemudian menyuruh Li Jinheung kembali ke rumah dinas, sementara ia sendiri bersama Zeng banshan 
+langsung menggiring semua prajurit yang sudah terkumpul itu ke arah selatan.
+
+Setelah kira-kira lima _li_ dari Kaifeng, mereka melihat pasukan yang dipimpin oleh Chaghan Temur sedang bergerak mendatangi mereka. Setelah 
+semakin mendekat, Yin Li sangat terkesan melihat penampilan jendral itu. Tubuhnya tinggi besar dan berotot. Kumis, cambang dan jenggotnya 
+membuat penampilannya sangat berwibawa. Dari jarak sekitar lima meter ia bisa melihat bahwa wajah Chaghan sebenarnya sangat tampan dan jantan. 
+Saat itu Chaghan hanya tersenyum tipis, lalu berkata dengan suaranya yang berat, "Kau sendiri yang membawa mereka?"
+
+Tanpa basa-basi, Yin Li langsung menyuruh Zeng Banshan menyeret prajurit yang tadi ditangkapnya ke depan, lalu berkata kepada Chaghan, "Ayah, 
+prajurit ini tidak taat, kau harus menghukumnya. Aku harus segera kembali ke kota sekarang."
+
+Ia bermaksud memutar kudanya untuk segera pergi dari situ, tanpa menunggu komentar Chaghan Temur.
+
+Tetapi Chaghan berkata dengan nyaring, "Katakan kepada Minmin, aku tidak bisa menemuinya di situ! Kau juga tidak perlu terlalu sering menghubungiku. Kalian sudah 
+besar. Urus wilayah kalian baik-baik, supaya aku tidak perlu datang untuk menghukum kalian."
+
+Hal ini sama sekali di luar dugaan Yin Li. Sejenak ia tak tahu bagaimana harus bereaksi, tetapi kemudian ia mengikuti nalurinya, dan berkata, 
+"Aku belum pernah ketemu Minmin lagi. Segala hal yang dilakukannya bukan urusanku. Tapi aku pasti akan menyampaikan pesan ayah. Aku senang bertemu 
+ayah, dan akan mengurus urusanku sendiri baik-baik."
+
+Tanpa menunggu komentar Chaghan lagi, ia memutar kudanya dan bergegas kembali ke kota.
 
 
 

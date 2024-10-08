@@ -1135,7 +1135,7 @@ Ki Seung Nyang membeli cabe banyak-banyak di pasar.
 Ia memperhatikan bahwa semua anak yang bersama mereka di rumah itu ternyata dengan taat membuat tanda salib, lalu menundukkan kepala sejenak untuk berdoa 
 sebelum makan. Ia bertanya, "Rupanya kalian penganut Kristen ya? Siapa yang mengajar kalian di Hanyang?"
 
-"Frater kami bernama Andre," jawab seorang anak perempuan yang bernama Yuwen Xiang mewakili yang lain. "Frater Andre tinggal dan mengajar di tempat pengungsian itu. Zhou Xiangzhang 
+"Frater kami bernama Andre," jawab seorang anak perempuan yang bernama Yuwen Jinglan mewakili yang lain. "Frater Andre tinggal dan mengajar di tempat pengungsian itu. Zhou Xiangzhang 
 dan Junzhu sangat akrab dengan Frater."
 
 "Hm," gumam Ki Seung Nyang. Otaknya mulai berputar untuk merancang langkah berikutnya. 

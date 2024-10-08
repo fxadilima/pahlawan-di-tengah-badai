@@ -57,8 +57,8 @@ Goryeo
 5. Im (Hanja 任 atau 林, Hangul 임)
    Marga ini semuanya sama saja dengan Lim atau Lin
    Mungkin menarik jika kita bikin Im Seong-hwa
-6. Park Seo-yang 朴瑞陽 kita ambil namanya, dan ganti marganya menjadi Lee
-   
+6. Park Seo-yang 朴瑞陽 kita ambil namanya, dan ganti marganya menjadi Lee, atau Im
+   Nama Seo-yang (Hanja 瑞阳) dibaca Rui Yang dalam bahasa mandarin
 
 
 Mongolia
