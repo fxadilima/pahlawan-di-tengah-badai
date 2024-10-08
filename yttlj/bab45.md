@@ -517,7 +517,7 @@ saat itu sempat melihatnya membunuh orang dengan jurus beracun itu, dan ia meras
 Tetapi Yin Li yang sekarang tampil sebagai Shaoli Junzhu di Kaifeng adalah seorang wanita dua puluh satu tahun. Mukanya memang tidak lagi jelek. 
 Tubuhnya sudah berkembang sempurna menjadi wanita dewasa, dengan lekuk-lekuk yang sangat indah. Meskipun begitu, mukanya sekarang dipenuhi bekas 
 luka akibat sayatan pedang, yang menimbulkan kesan tidak enak ketika Chang Yuchun melihatnya. Sewaktu Yin Li mengamati mukanya dari jarak dekat, 
-ia merasa tengkuknya tiba-tiba menjadi dingin. Ia berusaha mempertahanan sikapnya, dan tidak mengatakan apa-apa, kecuali menunggu komentar Yin Li 
+ia merasa tengkuknya tiba-tiba menjadi dingin. Ia berusaha mempertahankan sikapnya, dan tidak mengatakan apa-apa, kecuali menunggu komentar Yin Li 
 selanjutnya.
 
 Saat itu pintu ruangan diketuk dari luar, dan seorang anak perempuan belasan tahun masuk sambil berkata kepada Yin Li, "Junzhu, Furen ingin membicarakan 
@@ -549,7 +549,7 @@ Yin Li menyeringai lebar, lalu berkata, "Nama itu agak aneh. Aku selalu memanggi
 
 "Mula-mula, kalian datangi barak militer, ajak empat ribu orang untuk mengikuti kalian ke — di mana kau menempatkan pasukan Chang Yuchun saat ini?"
 
-"Di pinggiran kota, agak jauh dari pinti gerbang," jawab Yin Li.
+"Di pinggiran kota, agak jauh dari pintu gerbang," jawab Yin Li.
 
 "Bagus," kata Ki Seung Nyang lagi. "Kalau begitu, kalian ajak empat ribu orang itu keluar pintu gerbang, suruh mereka berbaris di situ untuk menunggu 
 sampai kau datang. Tinggalkan Ah Xing di situ untuk mengawasi mereka."
@@ -614,7 +614,7 @@ semua prajurit lain.
 Ia berkata kepada semua prajurit lain yang sudah berbaris rapi, "Kalian semua, ikut aku!"
 
 Ia menaiki kudanya, lalu memberi aba-aba supaya mereka semua mulai bergerak. Tanpa ada yang berani membantah lagi, semua pasukan itu mengikuti 
-Yin Li dan Zeng Banshan menuju ke pintu selatan kota. Yin Li kemudian menyuruh Li Jinheung kembali ke rumah dinas, sementara ia sendiri bersama Zeng banshan 
+Yin Li dan Zeng Banshan menuju ke pintu selatan kota. Yin Li kemudian menyuruh Li Jinheung kembali ke rumah dinas, sementara ia sendiri bersama Zeng Banshan 
 langsung menggiring semua prajurit yang sudah terkumpul itu ke arah selatan.
 
 Setelah kira-kira lima _li_ dari Kaifeng, mereka melihat pasukan yang dipimpin oleh Chaghan Temur sedang bergerak mendatangi mereka. Setelah 
