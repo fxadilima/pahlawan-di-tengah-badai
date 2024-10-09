@@ -777,7 +777,201 @@ baru menggantikan jabatan Fang Diande, yang kau tangkap. Tetapi yang menjadi Kep
 Kepala Wilayah yang lain sedang mengawasi langkahmu. Mereka pasti berpikir, 'Orang ini kawan atau lawan?'. Nah, menurutmu apa yang mereka pikirkan 
 setelah melihatmu mengganti banyak prajurit itu?"
 
+Yin Li sedang mencoba memahami apa maksud Ki Seung Nyang menanyakan hal itu. Karena ia tidak bisa menangkap makna sebenarnya, maka ia menjawab 
+apa adanya, "Aku tidak tahu."
 
+"Nah, sebagai ibumu, aku pun tidak tahu apa maksudmu mendatangkan prajurit sebanyak itu, karena itu aku tadi menanyakannya," kata Ki Seung Nyang lagi. 
+"Tetapi orang-orang itu bukan ibumu, jadi mereka tentu tidak bisa menanyakannya begitu saja. Karena itu _kau_ sendiri yang harus mengatakannya 
+kepada mereka. Sekarang, bagaimana caramu mengatakannya?"
+
+Teman-teman Ki Seung Nyang mulai bergumam dan berdiskusi di antara mereka sendiri. Mereka merasa uraian Ki Seung Nyang itu sangat masuk akal, 
+tetapi mereka tidak tahu bagaimana harus menjawab pertanyaan itu.
+
+Ki Seung Nyang berkata, "Ah Li, kepalaku mulai pusing gara-gara ulahmu. Bagaimana kalau kau memijat keningku sebentar?"
+
+Ia lalu menyandarkan kepalanya di dada Yin Li, dan memejamkan matanya.
+
+Yin Li tahu jelas, saat ini kepala Ki Seung Nyang sama sekali tidak pusing. Ia hanya ingin mendengarkan pendapat orang-orang ini, lalu 
+membuat keputusan berdasarkan suara terbanyak. Ia lalu mulai memijat kepala Ki Seung Nyang dengan lembut, sambil membuka telinganya lebar-lebar.
+
+Setelah beberapa menit berlalu, dan tidak menemukan apa yang dicarinya, Ki Seung Nyang berkata sambil tetap memejamkan matanya, "Ah Li, 
+sebetulnya kau bisa menunjukkan niat baikmu tanpa harus banyak bicara. Ajak saja pasukanmu berkeliling kota sambil menyapa para penduduk.
+Tapi jangan keluar dari wilayahmu sendiri. Dengan begitu para penduduk di wilayahmu akan merasa aman, karena kau menyapa mereka, dan sekaligus 
+memamerkan bahwa kau punya kekuatan untuk melawan kejahatan. Karena kau tidak melanggar wilayah orang, maka mereka juga tidak akan mengusikmu.
+Tunjukkan bahwa prajuritmu bukan ingin mencari masalah, tetapi hanya bermaksud melindungi rakyat, menegakkan hukum dan keadilan, dan memelihara ketertiban. 
+Jika itu terlaksana, bukankah kau juga tidak perlu lagi berkelahi? Lalu aku akan bisa membayangkan, mungkin tak lama lagi aku akan menimang cucuku. 
+Dan..."
+
+"Ma!" tegur Yin Li. Ia agak kesal, tetapi sebenarnya ia mulai mengerti. Sejak tadi Ki Seung Nyang menjawab dengan cara bertele-tele adalah untuk 
+menyampaikan sesuatu kepada teman-temannya itu. Yang baru dikatakannya adalah pesan sebenarnya. Ia berkata, "Kalau hanya ingin pamer, sore ini 
+juga aku akan melakukannya. Itu gampang." Ia tertawa.
+
+Bibi Liu segera menimpali dengan gembira, "Nah, itu yang ingin kami dengar! Akhirnya Junzhu mengerti."
+
+"Betul, betul!"
+
+"Maksudku juga hanya ingin pamer," kata Bibi Quan.
+
+Karena kebanyakan orang menyambut keputusan itu dengan gembira, maka Yin Li berkata, "Baiklah, aku menitipkan ibu kepada Bibi Liu. Aku harus segera 
+pergi untuk menyiapkan acara itu. Nanti sore pasukan baruku akan berkeliling kota untuk menyapa semua orang."
+
+Bibi Liu memijat belakang leher Ki Seung Nyang setelah Yin Li pergi. Ia berbisik, "Anakmu hanya kadang-kadang kasar, tapi sebetulnya dia baik hati."
+
+Ki Seung Nyang menoleh kepadanya sambil tersenyum. "Kau pikir begitu?" Ia duduk tegak, lalu berkata sambil tertawa, "Kalau tadi aku tidak pura-pura 
+pusing, dia pasti akan terus membantahku."
+
+Bibi Liu mendorong punggungnya sambil tertawa. "Jadi sejak tadi kau hanya pura-pura sakit?" katanya.
+
+Beberapa temannya mulai ikut tertawa. "Anak-anak seperti Junzhu memang tidak boleh dipaksa," kata Ying Furen. "Tapi mereka-mereka yang minta 'uang keamanan' 
+di pasar, dan juga petugas yang menagih lebih itu, memang harus dihajar. Dalam hal ini Junzhu bertindak tepat, karena itu kami semua senang. Jadi kau 
+sendiri juga tidak bisa terlalu menyalahkannya."
+
+Wanita-wanita setengah baya yang datang ke rumahnya saat ini tak lebih dari sembilan orang. Ki Seung Nyang sudah memutuskan, bahwa mereka semua 
+bisa menjadi sekutu yang baik. Tapi ia tidak ingin mereka terlibat dalam permainan politik yang bisa mencelakakan keluarga mereka sendiri. Sebagai 
+warga kota kelas menengah ke atas, mereka termasuk pemberani, dan ia sangat menghargai sikap mereka. Tetapi jika mereka terus dibiarkan tidak mengerti 
+apa-apa, maka suatu saat nanti mereka tanpa sengaja akan melakukan sesuatu yang merusak rencananya. Rakyat jelata dari suku Han memang tidak menyukai 
+peraturan yang berasal dari Kubilai Khan ini. Peraturan yang dibuat oleh Kubilai Khan membagi masyarakat menjadi beberapa kelas berdasarkan etnis 
+mereka. Yang teratas tentu saja para keturunan Mongolia, lalu diikuti golongan yang disebut 'Semu'. Golongan kedua ini adalah mereka-mereka yang 
+berasal dari Asia Tengah sampai Asia Barat. Warga keturunan Persia dan Yahudi akan dipandang sebagai golongan kedua ini. Selain itu masih ada suku-suku 
+lain yang tidak dianggap sebagai suku Han, seperti suku Hui dan orang-orang Goryeo. Dan akhirnya, di kelas terbawah, adalah suku Han. Warga suku Han 
+masih dibagi lagi menjadi dua kelompok besar, yaitu mereka yang berasal dari utara, dan kemudian selatan. Dengan demikian warga negara Dinasti Yuan 
+kelas terendah adalah suku Han dari selatan. 
+
+Celakanya, di dalam menangani konflik yang terjadi antar-warga, dalam perkembangan Dinasti Yuan setelah Kubilai Khan sendiri meninggal, seorang 
+tertuduh yang diadili akan ditangani oleh pengadilan yang berbeda. Mudah diduga, pengadilan yang menangani tertuduh dari suku Mongolia akan meloloskan 
+orang itu dari hukuman mati, dengan dukungan sejumlah hukum yang digariskan oleh Kubilai Khan, tetapi sebenarnya hukum tersebut tidak pernah dimaksudkan 
+orang yang benar-benar bersalah. Sebaliknya, warga dari suku lain akan ditangani di dalam pengadilan mereka sendiri, dan bukan tidak mungkin mereka 
+akan mendapat hukuman yang jauh lebih berat ketimbang kasus yang sama, seandainya hal itu dilakukan oleh seorang warga dari suku Mongolia. Sudah barang tentu 
+warga negara Dinasti Yuan yang bukan berasal dari suku Mongolia tidak akan menerima proses seperti ini sebagai keadilan.
+
+Mengapa Kubilai Khan menerapkan hukum seperti itu? Tidak banyak disebutkan, dan tentu saja tidak banyak yang tahu, bahwa sebelum Dinasti Yuan ini 
+sendiri berdiri, Kubilai Khan yang ditunjuk sebagai Khan di wilayah utara. Saat itu anak-anak Tolui mengalami tekanan berat dari permaisuri Khan Agung 
+Mongolia, Toregene, istri dari Ogedei Khan. Tolui sendiri sudah meninggal sebelum Ogedei, dan setelah Ogedei sendiri meninggal, tekanan ini menjadi 
+semakin berat. Kekuatan milter mereka dilucuti, dan mereka dipisahkan ke tempat-tempat yang saling berjauhan, karena para pendukung Tolui dipandang 
+sebagai ancaman yang sangat berbahaya oleh Toregene.
+
+Saat itu yang berkembang di wilayah utara Zhongyuan adalah para bandit, yang berkuasa setelah Dinasti Jin jatuh di tangan Genghis Khan. Genghis Khan 
+sendiri tidak mengurus wilayah itu, dan meninggalkannya begitu saja setelah memenangkan perang. Bandit-bandit itu dijuluki, dan beranggapan bahwa 
+diri mereka sendiri adalah 'Raja' di wilayah masing-masing. Mudah diduga, hal ini menimbulkan kesengsaraan besar di pihak rakyat jelata. Jika terjadi 
+sesuatu yang menyengsarakan rakyat, seperti misalnya pembakaran dan penjarahan atas rumah-rumah penduduk di sebuah desa, para 'Raja' ini kemudian 
+menghembuskan isu yang mengatakan bahwa hal itu dilakukan oleh orang-orang Mongolia. 
+
+Ketika pertama kalinya Kubilai datang ke situ, ia sangat marah, dan juga tergerak oleh apa yang dilihatnya. Ia tidak punya militer, yang ada hanya 
+keberanian dan perasaan senasib seperjuangan, karena bagi Kubilai saat itu wilayah inilah satu-satunya tempat bagi seluruh anggota keluarganya untuk 
+bernaung. Jadi ia mempertaruhkan segala yang dimilikinya untuk mengajak rakyat melawan penindasan itu. Dengan susah payah, akhirnya perjuangan mereka 
+sukses, dan Kubilai diangkat sebagai raja untuk mengelola wilayah utara. Rakyat sangat mencintainya, dan sebagian besar pasukan yang berhasil dibangunnya 
+saat itu tentu saja berasal dari suku Han. Dengan sendirinya orang-orang kepercayaannya juga berasal dari suku Han, meskipun ada juga yang berasal 
+dari suku-suku lain, termasuk pengikut setia keluarga Tolui dari Mongolia.
+
+Dalam perkembangan, setelah pemerintahan Kubilai terbentuk, ternyata timbul sebuah pemberontakan yang berasal dari salah seorang yang paling dipercayainya 
+secara pribadi. Orang ini bernama Li Tan, dan jelas berasal dari suku Han. Tak hanya dia sendiri, bahkan mertuanya juga menduduki jabatan vital di 
+pemerintahan Kubilai, yang dengan sendirinya menjadi salah satu orang kepercayaan Kubilai, ikut mendukung pemberontakan itu.
+
+Pemberontakan itu berhasil dipadamkan dalam waktu sangat singkat, tetapi selanjutnya di dalam hati Kubilai mulai timbul kecurigaan setiap kali 
+ia melihat seorang pejabat dari suku Han mendapat simpati terlalu besar dari rakyat. Ia tidak dapat melupakan apa yang dilakukan oleh Li Tan.
+Akhirnya ia mengeluarkan sebuah peraturan yang melarang pemberian tanah kepada pejabat dari suku Han yang dianggap berjasa besar dalam pemerintahannya.
+Mulai saat itu, peraturan ini dimanfaatkan oleh beberapa kalangan untuk mencari keuntungan bagi diri mereka sendiri dalam perebutan jabatan dengan 
+para warga dari kalangan suku Han. 
+
+Setelah akhirnya Kubilai resmi mendirikan Dinasti Yuan, peraturan inilah — dan alasan-alasan yang mendukungnya — yang dipakai oleh jajaran penasihatnya, 
+untuk membentuk sistem hukum Dinasti Yuan. Setelah Kubilai sendiri meninggal, terjadilah kemelut dalam pewarisan tahta yang berkepanjangan, dan mengorbankan 
+banyak orang, termasuk keluarga dalam Kubilai sendiri. Di tengah-tengah kemelut ini, peraturan dan hukum yang digariskan oleh Kubilai tersebut berkembang 
+menjadi hukum yang cenderung menguntungkan para pejabat yang berasal dari suku-suku Mongolia, dan menyudutkan semua pihak dari suku lain. Hal ini 
+tentu saja adalah 'dosa kolektif' para pejabat teras yang punya kekuatan politik untuk menerbitkan peraturan baru dari istana, dan telah berlangsung 
+selama puluhan tahun setelah Kubilai meninggal.
+
+Sebagai perempuan yang berasal dari Goryeo, tentu saja Ki Seung Nyang bukan hanya tidak termasuk golongan satu dalam struktur masyarakat Dinasti Yuan, 
+bahkan ia dipandang sama seperti suku Han dari selatan, atau setidaknya utara. Karenanya ia bisa memahami dengan baik apa yang dirasakan oleh wanita-wanita 
+seperti Bibi Liu, Bibi Quan, atau orang-orang lain. Di istana, ia bersama dengan dua orang saudara seperguruannya, dan Kaisar Toghon Temur sendiri, 
+adalah orang-orang yang memberontak terhadap peraturan ini. Tetapi pengalaman selama bertahun-tahun di dalam istana telah mengajarkan mereka untuk 
+bersikap bijaksana, yang akan menghindarkan banyak orang — termasuk diri mereka sendiri — dari kesulitan besar, akibat melawan penindasan yang mereka 
+terima dari masyarakat yang menganggap diri sebagai golongan atas.
+
+Toghon Temur tentu saja termasuk golongan satu itu, apalagi kemudian ia menjadi Kaisar Dinasti Yuan, di usianya yang baru tiga belas tahun. Tetapi 
+alangkah kagetnya Toghon, setelah Ibu Suri Budashiri mengatakan bahwa ia harus menikahi putri Jendral El Temur, Danashiri, padahal bagi Toghon sudah 
+jelas Danashiri adalah mata-mata yang ditempatkan oleh El Temur untuk mengawasi gerak-geriknya.
+
+Saat itu Ibu Suri Budashiri melihat bahwa Toghon sangat menyukai beberapa orang penari yang sering ditugaskan untuk menghiburnya di istana. Tentu saja 
+saat itu Budashiri belum tahu, bahwa tiga di antara penari ini sudah dikenal Toghon sejak ia diasingkan ke Goryeo dan Guangxi, atau bahkan sebelum itu.
+Budashiri selalu mengatakan bahwa seharusnya ia lebih memperhatikan perempuan-perempuan dari kalangan atas, seperti Danashiri. Bergaul terlalu dalam 
+dengan perempuan dari kalangan penari itu akan merusak reputasinya. Tidak apa-apa jika Toghon hanya menginginkan sedikit hiburan, tetapi Budashiri 
+bersikeras menyuruhnya menjauhi ketiga perempuan itu, yang belakangan diketahuinya semakin akrab dengan Toghon secara pribadi. Mulai saat itulah 
+Toghon Temur tidak lagi mendengarkan pendapat Ibu Suri Budashiri.
+
+Segala hal ini sudah diperjuangkan oleh Ki Seung Nyang sejak dulu, dan bahkan sekarang ini ia sudah menduduki posisi sebagai Permaisuri Qi, istri 
+dari Kaisar Toghon Temur dari Dinasti Yuan, padahal semua orang tahu bahwa ia terang-terangan berasal dari Goryeo. 
+
+Tetapi bagaimana ia bisa menceritakan semua itu kepada orang-orang semacam Ying Furen atau Bibi Liu?
+
+Mendengar ucapan Ying Furen, ia berkata, "Aku tidak menyalahkannya. Aku hanya kuatir, dia akan menyulitkan kita semua, dan juga dirinya sendiri."
+Ia menghela nafas panjang, lalu kembali berkata, "Begini saja, bagaimana kalau kita batasi kelompok kecil kita ini. Kita jangan lagi mengajak 
+orang lain lagi ke rumahku ini, karena kalau terlalu banyak pasti akan membangkitkan kecurigaan aparat, dan akibatnya akan membuat posisi Ah Li menjadi 
+sulit."
+
+Ying Furen dan yang lain berpikir, "Kenapa ibunya mengatakan bahwa posisi anak itu menjadi sulit? Jika Shaoli Junzhu menguasai wilayah ini, apa 
+yang mereka takutkan lagi?" Mereka tidak tahu bahwa sampai saat ini otak yang mengatur di belakang layar bagi semua pergerakan Yin Li adalah Ki Seung Nyang, 
+yang tidak ingin identitasnya terbongkar jika Yin Li terlalu menonjol.
+
+Sore itu mereka semua ikut menonton arak-arakan yang dilakukan pasukan baru Yin Li mengelilingi wilayah itu. Chang Yuchun memimpin pasukannya 
+di atas kuda bersama Yin Li. Mereka menyapa para penduduk kota dengan ramah. Para penduduk itu saling berebut untuk menyapa dan berbicara dengan 
+Yin Li dari jarak dekat. Fenomena ini agak berbeda dengan apa yang terjadi di Hanyang, ketika rakyat mengelu-elukan Zhou Zhiruo dan Zhao Min.
+
+Penampilan Yin Li tidak dapat dikatakan 'cantik' atau lembut, bahkan goresan luka di wajahnya terasa agak menakutkan bagi banyak orang. Tetapi ternyata 
+Shaoli Junzhu ini bisa bersikap ramah terhadap rakyat jelata, dan tak ragu-ragu turun dari kuda untuk menyalami mereka. Beberapa orang yang 
+bekerja sebagai aparat Penegak Hukum di kota itu tentu saja pernah melihat langsung cara Yin Li menangani anak buah Fang Diande di rumah tahanan, 
+dan bagi mereka wanita ini tetap tidak dapat dianggap ramah.
+
+Setidaknya acara kecil itu memenuhi harapan teman-teman Ki Seung Nyang di pasar. kebanyakan orang menjadi sangat terhibur setelah mendengar Yin Li 
+dengan lantang mengatakan bahwa dirinya siap untuk menegakkan keadilan dan hukum bagi rakyat di wilayahnya, dengan dukungan pasukan yang dipimpinnya 
+saat itu. Kepala Wilayah di kawasan lain yang mendengar berita itu merasa, setidaknya pasukan itu tidak melanggar batas-batas wilayah mereka, 
+atau melanggar aturan di daerah lain. Mereka juga tidak menghasut penduduk kota untuk melakukan sesuatu yang bisa dianggap sebagai pemberontakan.
+Dengan begitu, meskipun kemudian pasukan militer Yin Li dengan aktif melakukan pengawalan keliling di wilayahnya sendiri, mereka tidak merasa 
+terancam. Hanya para pejabat di dareah kecil yang berada di bawah pengawasan Yin Li, seperti Torebeg, yang mulai merasakan tekanan, setelah mendengar 
+tentang kekuatan militer Yin Li yang baru. Mereka mulai bertanya-tanya, apa tujuan Yin Li mengganti seluruh prajurit yang sebelumnya sudah ada 
+di wilayah itu, dengan prajuritnya sendiri, yang entah didatangkan dari mana?
+
+Di sekitar pasar, yang letaknya berdekatan dengan rumah yang ditempati oleh Ki Seung Nyang, mulai berkembang topik yang berbeda. Mereka sempat mendengar 
+pembicaraan antara Yin Li dan 'ibunya', yang menyebutkan tentang adiknya di kota Hanyang. Mereka juga bertanya-tanya, siapa sebenarnya ayah Yin Li? 
+Setelah mendengar berita dari sana-sini, akhirnya mereka tahu bahwa yang menjadi Walikota Hanyang ternyata adalah pendekar wanita Emei Pai bernama 
+Zhou Zhiruo, yang didampingi oleh panglima militer dengan gelar Shaomin Junzhu. Lalu mereka bahwa sebelumnya Shaoimin Junzhu ini telah berkuasa di 
+Henan juga, dan tanpa ragu-ragu sering menghabisi para petugas yang dianggap menindas rakyat. Berikutnya dengan mudah mereka tahu bahwa ayah Shaomin Junzhu 
+adalah seorang Jendral Dinasti Yuan yang bernama Chaghan Temur.
+
+Kesimpulan teman-teman Ki Seung Nyang dan para pemilik kios di pasar adalah, Chaghan Temur inilah ayah Yin Li. Dan Ki Seung Nyang hanyalah salah 
+seorang selirnya, yang dianggap tak terlalu penting, seperti banyak perempuan lain yang menjadi simpanannya. Tak heran jika Ki Seung Nyang kemudian memilih 
+untuk hidup berdua saja dengan putrinya, yang saat ini sudah menjadi salah satu Kepala Wilayah di Kaifeng ini. Bagi mereka banyak teka-teki mengenai 
+Ki Seung Nyang dan Yin Li menjadi terjawab.
+
+Tanpa sengaja, anggapan ini tersebar dari mulut ke mulut, sampai akhirnya didengar oleh Bolad Temur di Shanxi. 
+
+Mula-mula Bolad Temur hanya mendengar kabar dari salah seorang komandan militer kepercayaannya, yang berasal dari salah satu prajurit Chaghan.
+Prajurit itu mengatakan bahwa mereka bergabung dengan pasukan Chaghan karena dipindahkan dari Kaifeng oleh Shaoli Junzhu. Saat itu mereka mendengar 
+sendiri Shaoli Junzhu itu memanggil Chaghan Temur dengan sebutan 'ayah'. 
+
+Bolad Temur dan Chaghan sama-sama adalah didikan Dash Badalugh, yang adalah ayah kandung Bolad. Ia tentu saja tahu bahwa Chaghan punya banyak 
+selir, yang salah satunya adalah ibu Zhao Min. Ia juga tahu persis bahwa bagi Chaghan Temur, mereka semua dianggapnya 'tidak penting'. Hanya 
+anak-anak tertentu, yang dilahirkan oleh wanita-wanita itu, yang oleh Chaghan dianggap penting. Salah satunya adalah Zhao Min. 
+
+Bolad Temur sebelumnya sudah mengirimkan perintah kepada Chaghan untuk menduduki Kaifeng, yang dipenuhi oleh kaki tangannya sendiri. Tetapi 
+dengan salah satu cara, Chaghan selalu berhasil menunda atau bahkan menolak memasuki Kaifeng. Ia kemudian bermaksud mengalihkan hal itu menjadi 
+tuduhan untuk menyingkirkan Chaghan dari posisinya. Cerita yang didengarnya itu sangat mengejutkan Bolad Temur. Awalnya ia beranggapan bahwa 
+berita itu hanyalah salah satu taktik Chaghan, dan ia sedang menyelidiki kebenarannya. Tetapi desas-desus yang berkembang di Kaifeng dari sumber 
+lain itu ternyata memperkuat kabar yang didengarnya.
+
+Ia lalu menyimpulkan, berarti selama ini Chaghan sudah menyusun rencana matang, dan mendorong salah satu putrinya untuk menduduki salah satu posisi 
+strategis di Kaifeng. Ia mendapat laporan bahwa hal pertama yang dilakukan Yin Li di Kaifeng adalah menyingkirkan Fang Diande, lalu mengambil alih 
+posisi sebagai Kepala Wilayah.
+
+Bolad Temur berpikir, "Jika sekarang aku menuduhnya menolak perintah, maka dia akan mengatakan bahwa anaknya telah memasuki Kaifeng. Dengan begitu 
+aku akan menjadi bahan tertawaan semua orang di istana. Tetapi jika aku mendiamkan masalah itu, maka lama kelamaan keluarga Chaghan yang akan 
+berkuasa di Kaifeng, sementara orang-orang kepercayaanku satu persatu didepak oleh Shaoli Junzhu itu. Sedangkan saat ini Wang Baobao sudah mulai 
+bertingkah di utara. Bukankah berikutnya mereka akan menguasai Henan? Maka berikutnya aku akan disingkirkan dari Shanxi! Celakanya, orang-orang di selatan 
+sekarang juga ramai membicarakan tentang kehebatan Shaomin Junzhu di Hanyang. Semua ini tidak bisa kubiarkan terlalu lama."
+
+Dengan pikiran itu, ia lalu mulai merancang jebakan lain untuk menghadang laju keluarga Chaghan Temur.
+
+Semua perkembangan itu tentu saja di luar perhitungan Ki Seung Nyang, yang saat itu sedang menyeruput tehnya di Kaifeng, sambil menikmati 
+shaobing berisi daging babi buatan Ah Zhu.
 
 
 
