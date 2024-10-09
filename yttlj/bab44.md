@@ -827,7 +827,7 @@ apa yang terjadi.
 
 Lima menit kemudian barulah keduanya bisa menceritakan apa saja yang mereka alami sepanjang sore itu, di depan rumah dinas Fang Diande.
 
-Setelah cerita itu selesai, barlah Ki Seung Nyang bertanya, "Lalu bagaimana kalian akan menangani semua urusan di kantor itu, setelah Fang Diande 
+Setelah cerita itu selesai, barulah Ki Seung Nyang bertanya, "Lalu bagaimana kalian akan menangani semua urusan di kantor itu, setelah Fang Diande 
 dan semua jajarannya ditangkap?"
 
 Baru saat itu Yin Li menyadari bahwa berikutnya dialah yang akan bertanggung jawab untuk mengelola semua urusan di kantor itu. Ia terdiam dan 
@@ -1135,7 +1135,7 @@ Ki Seung Nyang membeli cabe banyak-banyak di pasar.
 Ia memperhatikan bahwa semua anak yang bersama mereka di rumah itu ternyata dengan taat membuat tanda salib, lalu menundukkan kepala sejenak untuk berdoa 
 sebelum makan. Ia bertanya, "Rupanya kalian penganut Kristen ya? Siapa yang mengajar kalian di Hanyang?"
 
-"Frater kami bernama Andre," jawab seorang anak perempuan yang bernama Yuwen Jinglan mewakili yang lain. "Frater Andre tinggal dan mengajar di tempat pengungsian itu. Zhou Xiangzhang 
+"Frater kami bernama Andre," jawab seorang anak perempuan yang bernama Qiao Jinglan mewakili yang lain. "Frater Andre tinggal dan mengajar di tempat pengungsian itu. Zhou Xiangzhang 
 dan Junzhu sangat akrab dengan Frater."
 
 "Hm," gumam Ki Seung Nyang. Otaknya mulai berputar untuk merancang langkah berikutnya. 

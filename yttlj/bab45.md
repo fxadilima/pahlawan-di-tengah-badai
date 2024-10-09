@@ -17,8 +17,7 @@ Ia kemudian berkata kepada Situ Peng, "Sampaikan semua pesanku tadi kepada Zhao 
 
 Mendengar ucapan Yin Li, para pengawal itu ragu-ragu, tetapi kemudian pengawal yang bertubuh kekar mempersilakan ketujuh pemuda itu untuk mengikutinya.
 
-Salah seorang pemuda yang berwajah tampang, bertubuh paling jangkung, dengan hidung mancung yang sangat mengesankan, berbisik kepada Situ Peng, 
-"Apa yang harus kami katakan?" 
+Salah seorang pemuda yang berwajah tampan, bertubuh paling jangkung, dengan hidung mancung, berbisik kepada Situ Peng, "Apa yang harus kami katakan?" 
 
 Situ Peng memberi isyarat supaya ia tidak bicara. Ia sendiri juga sedang memutar otaknya. Saat ini Yin Li tidak bersama mereka, tetapi orang-orang ini 
 pasti tidak berani sembarangan bertindak, karena mereka sudah mendengar ancaman Yin Li di depan tadi, karena itu ia sangat yakin mereka akan aman. 
@@ -26,7 +25,7 @@ Sebelum berangkat dari rumah dinas, Yin Li sudah menceritakan panjang lebar inti
 yang akan dilakukannya. Ia hanya mencari kata-kata yang tepat untuk mengemukakan hal itu. Semua teman lainnya saat ini hanya mendengar cerita dari 
 para penduduk yang bersedia menjadi saksi, ketika mereka makan di kedai. Pada dasarnya mereka tidak terlalu banyak tahu.
 
-Pemuda berwajah tampan itu penampilannya paling mengesankan. Namanya adalah Shangguan Wu, ia berasal dari Gansu. Saat terjadi bencana banjir, keluarganya 
+Pemuda berwajah tampan itu penampilannya paling mengesankan. Namanya adalah Shangguan Wu, orang tuanya berasal dari Gansu. Saat terjadi bencana banjir, keluarganya 
 sudah pindah ke Henan, dan kedua orang tuanya sekarang sudah meninggal akibat bencana itu. Yang tersisa hanya seorang adik perempuannya, yang juga ikut 
 datang ke Kaifeng bersamanya. Adiknya baru berusia dua belas tahun, dan sekarang tinggal bersama Ki Seung Nyang.
 
@@ -83,7 +82,8 @@ sangat terkejut, tetapi ia tidak tahu apakah perubahan itu akan membawa nasib ba
 bawahannya memungut pajak sedikit lebih banyak dari yang seharusnya. Ia telah mencatat nama-nama semua orang yang melakukannya, tetapi ia tidak segera 
 mengambil tindakan. Dalam pandangannya, sedikit tekanan akan membuat warga kota ini takut, dan itu selalu berarti baik. Jika nantinya ada yang mulai 
 mengungkit masalah ini, dan bisa jadi akan menyudutkan posisinya sendiri, ia dengan mudah akan menangkap anak buahnya sendiri, dengan disertai bukti-bukti, 
-lalu mengirimkan mereka ke Kantor Penegak Hukum yang akan mengadili mereka.
+lalu mengirimkan mereka ke Kantor Penegak Hukum yang akan mengadili mereka. Tak lama kemudian mereka tetap akan keluar, setelah ia membayar sedikit uang 
+jaminan untuk membebaskan mereka.
 
 Sebagai warga Dinasti Yuan dari 'Golongan Mongolia', Torebeg tahu bahwa seorang gadis muda seperti Shaoli Junzhu yang tiba-tiba muncul ini pastilah 
 salah satu keluarga dekat dari bangsawan atau pejabat tinggi di istana. Dirinya sendiri — Torebeg — juga memanfaatkan peluang yang sama. Tetapi ia sudah 
@@ -538,7 +538,7 @@ Ia segera melihat ada banyak tamu wanita yang sengaja datang menemui Ki Seung Ny
 berkata kepada salah seorang anak perempuan yang sedang bertugas di situ, "Jinglan, katakan kepada Furen bahwa aku menunggu di kamarnya. Aku tidak 
 punya waktu untuk menemui semua orang itu."
 
-Yuwen Jinglan mengiyakan, lalu mengambil sebuah piring dan mengisinya dengan beberapa potong kue, setelah itu ia segera membawanya ke ruang tamu.
+Qiao Jinglan mengiyakan, lalu mengambil sebuah piring dan mengisinya dengan beberapa potong kue, setelah itu ia segera membawanya ke ruang tamu.
 
 Pada saat Ki Seung Nyang memasuki kamarnya, Yin Li sedang menyeruput teh hangat, lalu berkata, "Bibi, Chang Yuchun sudah datang."
 
@@ -674,7 +674,7 @@ pulang, jangan-jangan setelah itu ada tamu lain lagi yang datang.
 Setelah berpikir begitu, ia memasuki ruang tamu dengan langkah ringan, lalu berkata, "Wah, kalian memberi ibuku banyak hadiah, padahal aku baru 
 menangkap banyak orang yang memungut pajak lebih. Kalau terus begini, nanti orang akan mengira kami juga menerima sogokan."
 
-"Nah, Junzhu datang!" kata Bibi Liu yang juga hadir di situ. Ia sedang sibuk dengan udang asam manis buatan Yuwen Jinglan. "Para petugas itu kan memaksa, 
+"Nah, Junzhu datang!" kata Bibi Liu yang juga hadir di situ. Ia sedang sibuk dengan udang asam manis buatan Qiao Jinglan. "Para petugas itu kan memaksa, 
 kami tidak dipaksa. Semua ini sukarela, karena ibumu menganggap kami semua keluarga, maka kami juga merasa begitu. Itu lain sekali!"
 
 "Tapi ayahnya tidak berpikir begitu," kata Ki Seung Nyang. "Dia mengira aku sedang memamerkan anakku!"
@@ -958,20 +958,242 @@ tuduhan untuk menyingkirkan Chaghan dari posisinya. Cerita yang didengarnya itu 
 berita itu hanyalah salah satu taktik Chaghan, dan ia sedang menyelidiki kebenarannya. Tetapi desas-desus yang berkembang di Kaifeng dari sumber 
 lain itu ternyata memperkuat kabar yang didengarnya.
 
-Ia lalu menyimpulkan, berarti selama ini Chaghan sudah menyusun rencana matang, dan mendorong salah satu putrinya untuk menduduki salah satu posisi 
-strategis di Kaifeng. Ia mendapat laporan bahwa hal pertama yang dilakukan Yin Li di Kaifeng adalah menyingkirkan Fang Diande, lalu mengambil alih 
-posisi sebagai Kepala Wilayah.
+Ia lalu menyimpulkan, berarti selama ini Chaghan sudah menyusun rencana matang, dan mendorong putrinya untuk menduduki salah satu posisi strategis 
+di Kaifeng. Ia mendapat laporan bahwa hal pertama yang dilakukan Yin Li di Kaifeng adalah menyingkirkan Fang Diande, lalu mengambil alih posisi 
+sebagai Kepala Wilayah.
 
 Bolad Temur berpikir, "Jika sekarang aku menuduhnya menolak perintah, maka dia akan mengatakan bahwa anaknya telah memasuki Kaifeng. Dengan begitu 
 aku akan menjadi bahan tertawaan semua orang di istana. Tetapi jika aku mendiamkan masalah itu, maka lama kelamaan keluarga Chaghan yang akan 
 berkuasa di Kaifeng, sementara orang-orang kepercayaanku satu persatu didepak oleh Shaoli Junzhu itu. Sedangkan saat ini Wang Baobao sudah mulai 
-bertingkah di utara. Bukankah berikutnya mereka akan menguasai Henan? Maka berikutnya aku akan disingkirkan dari Shanxi! Celakanya, orang-orang di selatan 
-sekarang juga ramai membicarakan tentang kehebatan Shaomin Junzhu di Hanyang. Semua ini tidak bisa kubiarkan terlalu lama."
+bertingkah di utara. Bukankah berikutnya mereka akan menguasai Henan? Maka selanjutnya aku akan disingkirkan dari Shanxi! Celakanya, orang-orang di selatan 
+sekarang juga ramai membicarakan tentang kehebatan Shaomin Junzhu di Hanyang. Semua ini tidak bisa kubiarkan terlalu lama. Chaghan Temur ikut bermain 
+di semua lini."
 
 Dengan pikiran itu, ia lalu mulai merancang jebakan lain untuk menghadang laju keluarga Chaghan Temur.
 
 Semua perkembangan itu tentu saja di luar perhitungan Ki Seung Nyang, yang saat itu sedang menyeruput tehnya di Kaifeng, sambil menikmati 
-shaobing berisi daging babi buatan Ah Zhu.
+shaobing berisi daging babi buatan Ah Zhu. Aroma daging yang dipakai untuk mengisi sebelah dalam shaobing itu mengusik penciumannya. Ia 
+berkata, "Hm, kenapa shaobing ini sekarang jadi sangat harum? Liu Furen pasti mencontoh masakan kalian ya?"
+
+Ah Zhu berkata, "Yang ini memang Ah Zhu sendiri yang membuatnya. Tapi Bibi Liu mengajarkan bagaimana cara orang membuat rotinya di Kaifeng. 
+Jadi agak berbeda dengan apa yang biasanya kami buat. Furen suka yang ini?"
+
+"Yang diajarkan Zhou Zhiruo itu punya keistimewaannya sendiri, jadi kalian harus tetap membuatnya juga," kata Ki Seung Nyang. "Tapi buatan 
+Bibi Liu ini biasanya aku kurang suka, setelah kau pakai isi yang biasanya kalian buat, aku jadi merasa ini cukup istimewa."
+
+Rasanya saat itu Ah Zhu ingin segera pulang ke Xiangyang, untuk mengajarkan anak-anak perempuan di situ bagaimana membuat shaobing yang 
+sedang dicicipi Ki Seung Nyang saat ini. Ia bahkan ingin pergi ke Hanyang untuk memamerkan kepada Zhou Zhiruo bahwa ia baru menemukan 
+resep baru untuk membuat shaobing.
+
+Tetapi sayangnya saat ini ia masih harus kembali ke rumah yang baru dibeli Ki Seung Nyang, beberapa ratus meter dari sini. Murid-muridnya 
+sudah menunggu di situ. Ia bermaksud berpamitan untuk pergi, ketika pintu kamar itu diketuk tiga kali dari luar.
+
+[^zongzi]: Zongzi (粽子) adalah nama makanan dalam bahasa mandarin, yang dikenal sebagai 'bakcang' di Indonesia.
+[^yuanshuai]: Yuan Shuai (元帅) adalah pangkat militer yang setara dengan panglima.
+
+Saat itu bakpao Ki Seung Nyang sudah habis, dan ia mengambil sebuah bakcang yang sangat besar. Ia memakai pisau kecil yang disediakan Ah Zhu 
+untuk membelahnya menjadi dua, lalu berseru, "Hmm! Aku paling suka Zongzi[^zongzi] orang Jiangnan ini! Dulu Bibi Yin kalian yang mengajariku 
+cara membuat Zongzi seperti ini." Ia mulai menikmati makanan itu, sambil tak henti-hentinya memuji kelezatannya. Bakcang itu berisi daging babi.
+
+Dongfang Yuxian muncul sambil berkata, "Furen, dua orang teman kami diutus untuk mengantarkan istri Chang Yuanshuai[^yuanshuai] dari Xiangyang."
+
+Sejenak Ki Seung Nyang melupakan bakcangnya. "Oh, mereka sudah datang!" katanya dengan gembira. "Bawa mereka ke sini!"
+
+Dongfang Yuxian membuka pintu, lalu menyuruh ketiga tamunya masuk. Melihat dua orang gadis berseragam yang baru datang itu, Ah Zhu tersenyum lebar,
+tetapi ia tidak segera menyapa mereka, karena ketiga tamu itu segera membungkuk hormat setelah melihat Ki Seung Nyang, dan menyapa, "Qi Furen!"
+
+Ki Seung Nyang dengan gembira memberi isyarat supaya mereka duduk, dan menyuruh Dongfang Yuxian pergi ke dapur untuk mengambil lebih banyak 
+makanan dan minuman. Ia berkata, "Ah Zu dan Yuxian sudah terlanjur biasa memanggilku Furen, tapi di sini mereka semua memanggilku Bibi Qi."
+Dengan penuh semangat ia menyodorkan shaobing yang masih cukup untuk mereka bertiga, lalu berkata, "Nah, kalian bicara sambil mencicipi ini. 
+Aku ingin tahu, bagaimana rasanya menurut kalian?"
+
+Yu'er tampak agak malu-malu, tetapi setelah melihat kedua gadis yang datang bersamanya bersikap santai, ia juga ikut mengambil sepotong shaobing, 
+dan mencicipinya.
+
+Kedua gadis yang kira-kira enam belas tahun itu segera berkata sambil tertawa, "Ini pasti buatan Ah Zhu!"
+
+"Tapi bagian luarnya agak lain," kata yang satunya.
+
+Ah Zhu berkata sambil tertawa, "Wu Shiniang, Murong Bing, kalian sama-sama benar! Bagian luarnya itu diajarkan oleh teman baik Furen di Kaifeng ini."
+
+"Kelihatannya kalian semua sangat akrab," kata Ki Seung Nyang. "Tapi kenapa kau dinamai 'Shiniang'?[^shiniang]"
+
+[^shiniang]: Shi Niang (师娘) atau Shi Mu (师母) adalah sebutan bagi istri dari guru seseorang. Tetapi seorang guru perempuan tetap akan dipanggil Shifu (师傅).
+[^es]: Es dalam bahasa mandarin adalah Bing (冰).
+
+Murong Bing tertawa cekikikan sambil berkata, "Bibi Qi, sebetulnya kami berempat penggemar masakan Zhou Furen, tapi murid terbaiknya hanya Ah Zhu 
+sendiri. Kurasa ayah Wu Shiniang berharap dia akan menjadi istri seorang guru."
+
+"Kalau Yuxian yang membuat, pasti ada bahan yang ketinggalan," tambah Wu Shiniang. "Bibi Qi, jangan dengarkan Murong Bing ini, dia sendiri lahirkan 
+di Pulau Es[^es]."
+
+Ki Seung Nyang hanya tersenyum mendengar perdebatan Murong Bing dan Wu Shiniang. Ia berpikir, "Kelihatannya kedua anak ini sering bikin masalah di Xiangyang."
+
+Dongfang Yuxian ikut cekikikan, lalu berkata, "Zhou Xiangzhang suka memakai banyak bahan, tetapi sedikit-sedikit, jadi aku sulit mengingatnya. 
+Karena itu aku lebih suka belajar memasak dari Junzhu. Padahal aku juga penggemar masakan Zhou Xiangzhang." Sebenarnya ia sering diomeli Zhou Zhiruo, 
+karena itu ia lebih suka belajar memasak dari Zhao Min.
+
+Wu Shiniang berkata, "Sayangnya Bibi Qi terpaksa akan kehilangan Ah Zhu setelah ini, karena Ah Zhu disuruh kembali ke Xiangyang. Jiaozhu 
+merasa, pengetahuan Ah Zhu sudah banyak ketinggalan. Di Xiangyang kami setiap hari menemukan teknik baru untuk memata-matai lawan, dan juga 
+mengacak isi surat."
+
+"Hm!" kata Ki Seung Nyang. "Mereka bergerak cepat sekali, aku senang! Ini berarti Jiaozhu kalian juga ingin mendengar perkembangan kami di sini, 
+secara langsung dari Ah Zhu. Yuxian, sekalian tanyakan kepada Junzhu, barangkali dia ingin menitipkan pesan ke Xiangyang."
+
+Dongfang Yuxian segera pergi ke rumah dinas Kepala Wilayah. Setelah ia menutup pintu kamar itu, Ki Seung Nyang kembali bertanya, "Mengapa hanya 
+kalian berdua yang mengawal Chang Furen ini?"
+
+Yu'er tertawa, lalu berkata, "Kungfu mereka berdua dinilai cukup bagus oleh Jiaozhu."
+
+Murong Bing dan Wu Shiniang agak tersipu. Murong Bing berkata, "Chang Furen sedang bercanda. Kami berdua hanya pandai bersilat lidah."
+
+Yang sebenarnya terjadi adalah, Yu Daiyan menilai pekerjaan Dongfang Yuxian sangat bagus, dan setelah berhari-hari mengamati cara anak itu 
+memecahkan masalah di markas besar mereka, Bei Jinyi sangat heran, karena ia juga menilai begitu. Padahal sebelumnya ia sering mengomeli anak 
+ini ketika diberinya tugas sederhana di dapur. Setelah Bei Jinyi meneliti hasil pekerjaan Murong Bing dan Wu Shiniang, yang sudah diketahuinya 
+sebagai 'sekutu abadi' Dongfang Yuxian, ternyata keduanya juga sangat bagus. Akhirnya Yu Daiyan dan Bei Jinyi menyimpulkan bahwa ketiga anak ini 
+sangat berbakat dalam memecahkan teka-teki rumit seperti yang dihadapi oleh pasukan rahasia Zhang Wuji. Mereka selalu bisa memecahkannya 
+dengan cepat dan tepat, tak pernah ada kekeliruan akibat kurang teliti, ketidaksabaran, dan sejenisnya. Padahal jika ditugaskan untuk 
+memasak atau memisahkan bahan-bahan makanan, yang sebetulnya lebih sederhana, ketiga anak ini selalu membuat kesalahan. Selain itu, Bei Jinyi 
+menilai bahwa ketiga anak itu kurang displin dan sangat bandel. Karena itulah Bei Jinyi sengaja mengirim Dongfang Yuxian ke Kaifeng bersama Ah Zhu, 
+dengan harapan, Ki Seung Nyang akan mendisiplinkan Dongfang Yuxian. Jika Dongfang Yuxian bermasalah di situ, maka setidaknya Ki Seung Nyang akan 
+selalu bisa mengandalkan Ah Zhu. Ternyata sampai saat ini tidak ada keluhan dari Ki Seung Nyang mengenai Dongfang Yuxian. Karenanya, Bei Jinyi 
+akhirnya mengirim dua murid terbaik mereka, dan menarik pulang Ah Zhu. 
+
+Selain mengerjakan tugas-tugas rahasia, kedua anak perempuan yang baru datang itu selalu berlatih kungfu setiap hari, di bawah bimbingan Bei Jinyi 
+dan Yu Daiyan. Zhang Wuji menilai, kemajuan mereka sangat pesat. Saat ini mereka memang bisa membela diri dengan baik, tetapi tentu saja kungfu 
+mereka masih jauh dari bagus. Sebenarnya, di depan pagar rumah itu, ada lima orang anggota Panji Lima Elemen Ming Jiao sedang menunggu. Mereka sama sekali 
+tidak bersenjata, dan kungfu mereka cukup tinggi. Jadi Zhang Wuji memang pernah mengatakan bahwa Dongfang Yuxian dan Ah Zhu sudah ketinggalan, tetapi yang 
+dimaksud bukan dalam hal memata-matai orang atau mengacak isi surat, tetapi dalam hal kungfu. Di Kaifeng ini Ki Seung Nyang memang tidak pernah 
+mengajarkan kungfu kepada mereka semua.
+
+Meskipun Ki Seung Nyang tidak sepenuhnya memahami apa yang sedang mereka bicarakan, tetapi ia sejak awal mengamati karakter mereka, dan setidaknya 
+ia mulai menangkap apa yang dimaksud oleh Yu'er. Ia berkata sambil tertawa, "Baiklah, aku memang sangat sibuk sejak datang ke sini, jadi aku 
+tidak sempat mengajari mereka kungfu. Mulai besok, aku akan melatih kalian semua di halaman."
+
+Kedua gadis muda itu tampak sangat senang mendengar apa yang baru dikatakannya.
+
+"Baiklah, Ah Zhu, sekarang kau boleh bersiap-siap, nanti sore aku akan menyuruh Han Lin mengantarmu sampai ke Xiangyang," kata Ki Seung Nyang.
+
+"Qi Furen, tidak perlu menyuruh orang," kata Yu'er sambil tersenyum. "Sebenarnya ada lima orang anggota Ming Jiao yang tidak berseragam, dan tidak 
+bersenjata, sedang menunggu di luar. Mereka yang mengawal kami dari Xiangyang."
+
+Ki Seung Nyang tertawa. "Jadi rupanya itu yang kau maksud tadi," katanya. "Shiniang, Ah Bing, aku tahu kalian suka belajar kungfu. Aku memang akan 
+mengajari semua anak lain mulai besok. Tapi kalian berdua harus lebih sering belajar memasak mulai sekarang!"
+
+Yu'er berkata, "Sebenarnya ada satu hal lagi yang ingin disampaikan Jiaozhu. Para pendekar Kunlun Pai sedang ada di sekitar Shaanxi, barangkali 
+Qi Furen bisa mempertimbangkan untuk menghubungi mereka, karena He Taichong dan Ban Shuxian akan banyak membantu pekerjaan di Kaifeng. Hanya saja, 
+Jiaozhu agak ragu, apakah mereka akan bisa cocok dengan Nona Yin. Ah Zhu sempat bertemu dengan mereka di Xiangyang."
+
+"Aku belum sempat mengobrol dengan orang-orang Kunlun Pai," kata Ki Seung Nyang. Ia menoleh kepada Ah Zhu sambil bertanya, "Ah Zhu, apa pendapatmu?"
+
+Ah Zhu berkata, "Ah Zhu tidak begitu mengenal suami-istri dari Kunlun Pai itu, tetapi belakangan Ban Furen cukup akrab dengan Xiao Furen. 
+Perangai Junzhu sulit diduga, dan murid-murid Kunlun Pai seringkali tidak ramah selama di Xiangyang, jadi Ah Zhu tidak punya pendapat."
+
+"Baiklah, aku mengerti maksudmu," kata Ki Seung Nyang. "Ah Zhu, tunjukkan di mana mereka berdua bisa beristirahat. Kau tetap di sini sampai 
+aku kembali. Aku akan mengajak Chang Furen menemui Panglima Chang dan Junzhu. Tolong siapkan makanan dan minuman juga bagi orang-orang 
+Ming Jiao itu." Ia menoleh kepada Yu'er, dan berkata, "Kita berangkat sekarang."
+
+"Aku tahu kalian baru menikah," kata Ki Seung Nyang sementara mereka berkuda ke Kantor Kepala Wilayah. "Kita mampir di pasar sebentar."
+
+Mereka mampir di toko perhiasan milik Ying Furen. Di situ Ki Seung Nyang memperkenalkan Yu'er kepada Ying Furen. Ia berkata, "Yu'er ini 
+adalah istri dari Panglima kita, Chang Yuchun. Mereka baru menikah di Xiangyang."
+
+"Wah, senang sekali bisa berkenalan dengan istri Panglima Chang," kata Ying Furen setulus hati. "Penduduk di wilayah kita sangat mengagumi Panglima Chang. 
+Sosoknya sangat meyakinkan, dan tidak banyak bicara."
+
+Di situ Ki Seung Nyang membeli sebuah gelang dari batu giok untuk Yu'er, tetapi Ying Furen ternyata menolak pembayarannya. "Anggaplah ini sebagai 
+hadiah perkawinan dari kami semua, warga Kaifeng. Kami senang dengan kehadiran kalian di sini."
+
+Yu'er agak tersipu, lalu mengucapkan terima kasih.
+
+Dari situ mereka langsung menuju ke rumah dinas Kepala Wilayah. Di pintu gerbang, mereka ditanyai oleh dua orang prajurit yang bertugas di situ. 
+Ki Seung Nyang mengangguk puas. "Ah Li ternyata cukup bijaksana, hanya menempatkan dua orang di sini," pikirnya. Ia berkata, "Katakan kepada Junzhu, 
+aku ingin bertemu!"
+
+Kedua pengawal itu agak bingung, tetapi kemudian Ki Seung Nyang berkata, "Aku ibunya."
+
+Lagi-lagi kedua pengawal itu mengamati Ki Seung Nyang dengan penuh perhatian. Mereka berpikir, "Mengapa ibu Junzhu berpakaian biasa, yang dibuat 
+dari bahan kasar begini?" Tetapi akhirnya salah seorang dari keduanya masuk untuk memberitahu Yin Li.
+
+Tak lama kemudian Yin Li keluar untuk menyambut mereka sambil berkata, "Ma, kenapa datang ke sini sendirian? Bukankah tadi sudah menyuruh Yuxian?"
+
+Dalam hati Yu'er sejak tadi bertanya-tanya, mengapa Yin Li memanggil permaisuri ini 'Mama'? Di Xiangyang, Zhang Wuji memang sempat memberitahu 
+Yu'er bahwa di sini ia akan bertemu dengan Permaisuri Qi, yang sebenarnya adalah murid langsung dari ketua Ming Jiao sebelumnya, Yang Dingtian. 
+Tetapi Zhang Wuji tidak menyebutkan apa-apa mengenai hubungannya dengan Yin Li. Sejak tadi Ki Seung Nyang dan Ah Zhu selalu memanggil 
+Yin Li dengan sebutan 'Junzhu'. Hal ini juga tidak diceritakan oleh Zhang Wuji. Yang ditekankan oleh Zhang Wuji adalah, identitas Ki Seung Nyang 
+yang sebenarnya tidak boleh bocor. Meskipun ingin tahu, tetapi Yu'er tidak berani bertanya.
+
+"Aku mengantarkan istri Chang Yuchun," kata Ki Seung Nyang. "Dan sekaligus ingin tahu apa saja yang kau lakukan di sini."
+
+"Oh," kata Yin Li sambil menatap Yu'er dengan penuh perhatian. Lalu merangkulnya sambil tertawa dan berkata, "Selamat datang di Kaifeng!"
+
+Yin Li langsung mengajak mereka masuk ke ruang kerjanya, dan ternyata di situ Chang Yuchun ikut hadir, bersama dengan Han Lin, An Shubiao 
+dan Dongfang Yuxian.
+
+"Furen!" kata Chang Yuchun terkejut ketika melihat istrinya datang.
+
+Yin Li berkata sambil tertawa, "Chang Yuchun, kau tega meninggalkan istri cantikmu di Xiangyang? Lain kali aku tidak akan mengampunimu."
+
+Tanpa menunggu reaksi Chang Yuchun, Yin Li segera menuju ke belakang mejanya sendiri, lalu menulis sesuatu.
+
+Chang Yuchun memang pernah bertemu dengan Ki Seung Nyang sebelumnya, tetapi ia dibingungkan oleh pembicaraan yang didengarnya di Xiangyang 
+sebelum berangkat, lalu banyak hal yang terjadi di sini juga ikut membuatnya bingung. Jadi ia tidak tahu bagaimana harus menyapa Ki Seung Nyang.
+Ia hanya mengangguk hormat tanpa mengatakan apa-apa, lalu menyuruh istrinya duduk di sebelahnya.
+
+Yin Li menyodorkan hasil tulisannya sambil tertawa ringan dan berkata, "Ini ibuku, kau boleh memanggilnya Qi Furen!"
+
+Chang Yuchun membaca apa yang tertulis di kertas yang disodorkan Yin Li, "Panggil dia sesuai dengan caraku", karena itu, ia segera menyapa 
+Ki Seung Nyang, "Qi Furen!"
+
+Setelah itu, Yin Li menyalakan lilin, meskipun saat itu masih siang, lalu membakar kertas itu sambil berkata, "Ibuku tidak pernah datang 
+ke sini, jadi semua orang memang tidak mengenalnya." Ia lalu memberi isyarat kepada Dongfang Yuxian, yang segera membuka pintu ruangan itu 
+untuk berbicara dengan seorang pelayan yang menunggu di luar pintu. Ia tidak kembali ke dalam, dan hanya menutup pintu di belakangnya rapat-rapat.
+
+Ki Seung Nyang berkata, "Aku hanya ingin memastikan bahwa kau tidak membuat masalah di luar. Aku sudah tua, sekarang ini aku hanya ingin hidup 
+tenang dengan teman-temanku di pasar. Untuk apa kau cari masalah seperti ini?"
+
+Yin Li memindahkan sebuah kursi ke dekat jendela, lalu duduk di situ. Saat itu Dongfang Yuxian kembali bersama seorang pelayan yang membawa baskom 
+berisi air hangat. Baskom itu diletakkannya di hadapan Yin Li, lalu ia membantu Yin Li membuka sepatunya dan mencuci kaki di dalam baskom. 
+"Aku hanya menuruti nasihat ayah," kata Yin Li dengan nada datar. "Aku bukan Meimei — aku juga tidak sepintar itu, jadi hanya ini yang bisa 
+kulakukan."
+
+"Hm!" kata Ki Seung Nyang. "Jadi hari ini kau menemui ayahmu lagi?"
+
+"Sama sekali tidak," jawab Yin Li. "Kemarin dia bilang, jangan terlalu sering menemuinya."
+
+"Dan dia juga tidak menitipkan uangnya?" tanya Ki Seung Nyang.
+
+Yin Li tertawa dan berkata, "Mama, sekarang ini aku punya penghasilanku sendiri. Jangan kuatir tentang hal kecil seperti itu."
+
+Ia sudah selesai mencuci kakinya, lalu memberi isyarat supaya si pelayan membuang air itu keluar jendela. Kemudian ia sendiri mengenakan sepatunya.
+
+Tiba-tiba dari jendela terdengar suara orang menjerit terkejut. Rupanya orang itu tersiram air dari baskom yang dibuang oleh si pelayan.
+
+Yin Li cepat-cepat menengok keluar dari jendela dan berkata, "Hei, apa yang kau lakukan di situ?"
+
+Semua orang bergegas mendekati jendela itu dan melongok keluar. Mereka melihat seorang pria yang basah kuyup tersiram air bekas cuci kaki 
+Yin Li. Ia menunjuk ke arah tanah di dekat jendela, yang tampaknya sedang dikeduk, lalu menunjuk ke arah semak mawar yang tampaknya akan di tanam 
+di situ. Kelihatannya orang itu bisu. 
+
+"Oh, rupanya kau ingin menanam mawar itu di situ ya?" tanya Yin Li. "Kau bisu?"
+
+Pria itu mengangguk-angguk tanpa mengatakan apa-apa. Yin Li berteriak dari jendela untuk memanggil salah seorang pengawal. Setelah pengawal 
+itu datang, ia berkata dengan dingin, "Amankan orang ini! Aku akan menanyainya sebentar lagi!"
+
+"Ah Li," tegur Ki Seung Nyang. "Kau mau apa?"
+
+"Ma, orang ini jelas sedang memata-matai aku. Aku hanya ingin menanyainya," kata Yin Li.
+
+"Kalau seperti ini, ayahmu akan berpikir bahwa aku tidak mengajarimu dengan benar," kata Ki Seung Nyang sambil berjalan menuju ke pintu 
+tanpa menengok ke belakang lagi. "Yuxian, kita pulang sekarang!"
+
+"Baik, Furen," kata Dongfang Yuxian dengan patuh.
+
+Pelayan yang membawa baskom itu ikut keluar bersama mereka, lalu menutup pintu rapat-rapat.
+
+
+
+
 
 
 
