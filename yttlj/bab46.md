@@ -153,7 +153,7 @@ makanan ini ke rumahku. Dia tidak menjual ayam, takut bersaing dengan beberapa p
 di pasar, karena itu dia menyuruhku mengantarkan dua keranjang ini ke sini."
 
 "Ck ck ck... Jinglan, nanti siang antarkan keranjang ini kepada Bibi Ying di pasar. Jangan lupa mengisinya dengan makanan buatanmu!" kata Ki Seung Nyang 
-dengan setulus hati. "Dasao, Ah Zhu pergi ke kota lain, sayangnya aku tidak punya makanan enak untuk membalas kebaikannya. Tolong katakan, Ah Li 
+dengan setulus hati. "Dasao, Ah Zhu pergi ke kota lain, sayangnya aku tidak punya makanan enak untuk membalas kebaikan Ah Ying. Tolong katakan, Ah Li 
 sangat menyukai masakannya."
 
 Bibi Liu agak kecewa. Ia berkata, "Kau tidak mengerti maksudku. Keponakan Ah Ying di Nanjing mendengar dari teman-temannya, bahwa di situ 
