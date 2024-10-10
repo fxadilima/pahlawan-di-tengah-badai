@@ -1332,8 +1332,8 @@ petugas, jadi dua petugas lain kemudian memegang kedua tangannya."
 
 Para pengawal Guo Limin segera melepaskan cekalan di tangan ketiga petugas penagih pajak yang sebelumnya mereka pukul dengan menggunakan tongkat.
 
-Yin Li kembali berpaling kepada Guo Limin, lalu mengamati para pengawal yang sedang berjaga di sekitar rumah itu, dan berkata dengan santai, "Huo Daren, 
-kulihat para petugasmu di sini teralu banyak. Ini memboroskan uang negara, padahal mereka sudah jelas tidak mengerjakan tugas dengan baik. Berapa 
+Yin Li kembali berpaling kepada Guo Limin, lalu mengamati para pengawal yang sedang berjaga di sekitar rumah itu, dan berkata dengan santai, "Guo Daren, 
+kulihat jumlah petugasmu di sini terlalu banyak. Ini memboroskan uang negara, padahal mereka sudah jelas tidak mengerjakan tugas dengan baik. Berapa 
 orang yang kau pakai di sini?"
 
 "Tidak banyak," jawab Guo Limin. "Hanya seratus orang."
