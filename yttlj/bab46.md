@@ -133,7 +133,7 @@ Sayangnya makanan itu tidak menimbulkan selera bagi Yin Li. Mula-mula ia mengira
 kecuali ukurannya sangat besar, tetapi ternyata ia kurang menyukai isinya. Akhirnya ia mengupas telur rebus dan meninggalkan sisa tangbao itu.
 
 Melihat Yin Li kurang berselera, Ki Seung Nyang hendak bertanya, tetapi ruangan itu segera ramai ketika Bibi Liu masuk sambil membawa dua buah 
-keranjang besar berisi makanan. Ia mengusap keringat di dahinya sambil berkata dengan penuh semangat, "Kalian harus tahu apa kudengar pagi ini!"
+keranjang besar berisi makanan. Ia mengusap keringat di dahinya sambil berkata dengan penuh semangat, "Kalian harus tahu apa yang kudengar pagi ini!"
 Tetapi kemudian matanya melihat mangkuk Yin Li, dan sisa tangbao yang masih cukup besar, lalu berkata, "Haaa... rupanya Junzhu tidak suka tangbao 
 itu!"
 
