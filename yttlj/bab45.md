@@ -1172,7 +1172,7 @@ Tiba-tiba dari jendela terdengar suara orang menjerit terkejut. Rupanya orang it
 Yin Li cepat-cepat menengok keluar dari jendela dan berkata, "Hei, apa yang kau lakukan di situ?"
 
 Semua orang bergegas mendekati jendela itu dan melongok keluar. Mereka melihat seorang pria yang basah kuyup tersiram air bekas cuci kaki 
-Yin Li. Ia menunjuk ke arah tanah di dekat jendela, yang tampaknya sedang dikeduk, lalu menunjuk ke arah semak mawar yang tampaknya akan di tanam 
+Yin Li. Ia menunjuk ke arah tanah di dekat jendela, yang tampaknya sedang digali, lalu menunjuk ke arah semak mawar yang tampaknya akan di tanam 
 di situ. Kelihatannya orang itu bisu. 
 
 "Oh, rupanya kau ingin menanam mawar itu di situ ya?" tanya Yin Li. "Kau bisu?"
