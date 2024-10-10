@@ -1171,7 +1171,7 @@ Tiba-tiba dari jendela terdengar suara orang menjerit terkejut. Rupanya orang it
 
 Yin Li cepat-cepat menengok keluar dari jendela dan berkata, "Hei, apa yang kau lakukan di situ?"
 
-Semua orang bergegas mendekati jendela itu dan melongok keluar. Mereka melihat seorang pria yang basah kuyup tersiram air bekas cuci kaki 
+Semua orang bergegas mendekati jendela itu dan melongok keluar. Mereka melihat seorang pria yang basah kuyup tersiram air cucian kaki 
 Yin Li. Ia menunjuk ke arah tanah di dekat jendela, yang tampaknya sedang digali, lalu menunjuk ke arah semak mawar yang tampaknya akan di tanam 
 di situ. Kelihatannya orang itu bisu. 
 
@@ -1190,6 +1190,261 @@ tanpa menengok ke belakang lagi. "Yuxian, kita pulang sekarang!"
 "Baik, Furen," kata Dongfang Yuxian dengan patuh.
 
 Pelayan yang membawa baskom itu ikut keluar bersama mereka, lalu menutup pintu rapat-rapat.
+
+Yu'er agak susah payah menahan tertawa setelah pelayan itu pergi. tetapi Yin Li segera meletakkan telunjuk di depan mulutnya. "Aku tidak tinggal 
+di sini," katanya dengan suara nyaring. "Aku hanya menggunakan tempat ini untuk bekerja. Jadi sekarang Chang Furen yang akan mengurusnya. Pastikan 
+orang seperti itu tidak mengintip ke dalam kamar kalian!"
+
+Ia lalu menulis sebuah pesan, dan meninggalkannya di atas meja kerjanya, lalu berkata, "Han Lin, aku akan keluar untuk mengurus sesuatu. 
+Mulai sekarang, Chang Yuanshuai akan tinggal di tempat ini bersama istrinya, jadi kau suruh pelayan menyiapkan ruangan untuk mereka! Aku akan mengajak 
+Liang Zhihui dan Li Zhenxing." Lalu ia berpaling kepada Chang Yuchun sambil berkata, "Yuanshuai, mulai sekarang kau adalah majikan rumah ini, 
+pastikan tidak ada pelayan, tukang kebun, atau siapapun mengintip-intip seperti tadi!"
+
+Tanpa menunggu komentar orang lain, ia segera keluar dari ruangan itu. Di luar ruangan, seorang pelayan mendatanginya sambil membawa sebuah 
+nampan berisi seperangkat pakaian wanita yang berwarna merah menyala, lalu berkata, "Junzhu, utusan dari Qu Daren mengirimkan hadiah ini. 
+Sekarang dia sedang menunggu di pintu depan, katanya ingin bicara dengan Junzhu secara pribadi."
+
+"Apa ini?" kata Yin Li dengan gusar. "Baju konyol ini akan membuatku tampak seperti banci. Kalau kau suka, kau boleh memakainya! Katakan kepada 
+utusan itu untuk datang lain kali, aku mau pergi ke tempat lain." 
+
+Pelayan itu tergopoh-gopoh berbalik untuk beranjak pergi, tetapi Yin Li memanggilnya, lalu menambahkan, "Setelah itu, kau suruh Liang Zhihui dan 
+Li Zhenxing menungguku di pintu depan!"
+
+"Baik."
+
+Ia lalu mengajak dua orang pelayan wanita lainnya untuk mengikutinya pergi ke ruangan lain. Di situ tampak seperangkat baju perang yang berukuran 
+sangat pas dengan ukuran tubuhnya. Yin LI memandang pakaian itu dan tersenyum puas, lalu berkata, "Kalian bantu aku memakainya."
+
+Sementara kedua pelayan itu menyiapkan rompi dan helm, Yin Li mengeluarkan sebuah ikat kepala yang baru dibelinya dari Ying Furen, dan berkata, 
+"Helm itu tidak usah dipakai!"
+
+Hanya sepuluh menit kemudian, kedua pelayan itu sudah selesai mendandaninya. Yin Li mengikat rambutnya ke belakang, lalu memakai ikat kepalanya 
+yang baru. Ia mengambil pedang panjang yang tergantung di dinding, dan keluar dari ruangan itu tanpa mengatakan apa-apa. 
+
+Di luar pintu gerbang, Liang Zhihui dan Li Zhenxing sudah menunggunya. Liang Zhuhui berkata, "Orang kita di Xiangfu dan Tongxu melaporkan, 
+barusan ada insiden kecil antara prajurit dan penduduk kota."
+
+"Hm, itu menarik. Tapi sekarang kita akan pergi ke Daxing, urusannya hampir sama," kata Yin Li. "Ah Xing, kau sudah menghubungi orang-orang Kai Pang 
+di situ?"
+
+Li Zhenxing berkata, "Hu Zhanglao menempatkan enam orangnya untuk mengawasi tempat kejadian itu dari jauh. Sampai sekarang belum ada kabar lagi."
+
+Yin Li menaiki kudanya sambil berkata, "Baik, sekarang juga kita menuju ke situ!"
+
+Tanpa membuang waktu mereka segera memacu kuda ke Daxing, dan tiba di kawasan yang dimaksud Li Zhenxing hanya dalam waktu sepuluh menit.
+Di alun-alun Yin Li melihat beberapa orang petugas sedang memukuli tiga petugas lain dengan menggunakan tongkat kayu. Liang Zhihui melihat 
+ada seorang pengemis sedang ikut berkerumun di belakang para penduduk yang ikut menyaksikan kejadian itu. Ia memanggil pengemis itu dengan 
+lambaian tangannya.
+
+Yin Li bertanya dengan nada rendah, "Ada apa?"
+
+Pengemis itu membawa dua kantong di punggungnya. Ia menjawab dengan nada rendah, "Tiga orang itu sebelumnya memukuli seorang warga kota 
+yang belum membayar pajak. Ada orang melaporkan peristiwa itu kepada Guo Daren, dan Guo Daren langsung mengirim orang untuk menangkap 
+petugas itu, lalu menghukumnya."
+
+"Oh, jadi begitu," kata Yin Li. "Dan orang yang dipukuli itu?"
+
+"Dia menghilang ketika para petugas itu ditangkap," jawab pengemis itu lagi. "Tapi Hu Zhanglao berhasil menangkapnya di luar pintu gerbang."
+
+Yin Li mengangguk, lalu berkata sambil turun dari kudanya dan melangkah mendekati alun-alun, "Baik, sekarang kau ikut aku!"
+
+Melihat kedatangan mereka, kerumunan penduduk itu buru-buru memberi jalan. Yin Li berkata kepada orang-orang yang memukuli para petugas itu, 
+"Hentikan! Siapa yang menyuruh kalian memukuli petugas pajak ini?"
+
+Para petugas itu menghentikan kegiatan mereka, lalu membungkuk hormat sambil menyapa, "Junzhu!"
+
+"Kami mendengar laporan bahwa mereka bertindak kasar kepada warga," kata salah seorang dari mereka. "Guo Daren sudah mendengar bahwa Junzhu melarang 
+orang untuk bertindak kasar kepada warga kota, jadi langsung memerintahkan kami untuk menghukum mereka dengan lima puluh pukulan."
+
+Yin Li berpaling kepada pengemis di sebelahnya, lalu berkata, "Bawa orang itu kemari!"
+
+Pengemis itu pergi, lalu beberapa menit kemudian ia kembali bersama beberapa pengemis lain yang membawa seorang pria bertubuh sedang. Salah seorang 
+pengemis yang tampaknya adalah pemimpin kelompok itu mendorong pria itu ke depan, lalu berkata, "Beri hormat kepada Junzhu!"
+
+"Tidak perlu," kata Yin Li sambil mengamati pria itu lekat-lekat. Penampilannya tampak seperti seorang sastrawan yang lemah dan tidak mengerti 
+ilmu silat. "Siapa namamu?"
+
+"Zaixia bermarga Deng," kata pria itu dengan sopan. "Biasa dipanggil Jizhong."
+
+"Kau tinggal di mana?" tanya Yin Li lagi.
+
+Deng Jizhong tidak segera menjawab, dan salah seorang pengemis yang baru datang mewakilinya, "Tadi dia mengatakan alamatnya di dekat sini. Tapi 
+ternyata tempat itu adalah sebuah rumah bordil."
+
+"Oh, gitu ya?" kata Yin Li. Sebuah gagasan melintas di benaknya. Ia berkata, "Jadi kau pemilik Wisma Terang Bulan itu rupanya."
+
+Deng Jizhong tertawa dan berkata, "Junzhu, sebenarnya aku datang dari Dadu. Kaifeng ini punya banyak cerita menarik sejak jaman kuno, jadi 
+aku mencari inspirasi untuk menulis puisi di sini. Tak disangka, tiga petugas itu menagih pajak, padahal aku sudah bilang bahwa aku bukan 
+penduduk kota ini. Mereka tidak percaya, lalu langsung memukulku. Untungnya ada warga yang segera melaporkannya kepada Guo Daren, jadi aku 
+bermaksud pergi setelah mereka ditangkap. Tapi di luar Kaifeng, beberapa pengemis mendatangiku, dan menanyakan aku tinggal di mana, jadi aku 
+menjawab asal-asalan, karena aku takut mereka memukuliku seperti tiga orang itu."
+
+"Kalau datang dari jauh, kenapa buru-buru pergi," kata Yin Li sambil tersenyum ramah. "Mustinya kau mampir ke Wisma Terang Bulan itu sebentar, 
+di situ pasti banyak inspirasi untuk puisimu. Kudengar Guo Daren juga sering datang ke situ."
+
+Deng Jizhong hanya tertawa ringan. Beberapa penduduk yang sedang berkerumun untuk menyaksikan kejadian itu mulai tertawa sambil berbisik-bisik 
+di antara mereka sendiri. "Junzhu pasti bercanda," kata Deng Jizhong. "Istriku di Dadu akan marah jika mendengar aku pergi ke situ."
+
+"Ya sudah," kata Yin Li lagi. "Kalau begitu kau boleh pergi sekarang. Mereka tidak akan mengganggumu lagi." Ia menoleh kepada pengemis yang 
+memimpin kelompok kecil itu, dan berkata, "Katakan kepada Hu Zhanglao, antarkan Deng Gongzi ini sampai di luar kora, supaya tidak ada lagi 
+orang memukulinya! Kalian juga jangan mengganggunya lagi, mengerti?"
+
+"Siap!"
+
+Deng Jizhong mengucapkan terima kasih, lalu beranjak pergi mengikuti pengemis itu.
+
+Setelah mereka pergi, Yin Li mendekati pengemis tiga kantong yang memimpin kelompok itu dan berbisik ke telinganya, "Suruh Hu Zhanglao mengirim orang 
+untuk mengawasi orang ini baik-baik, tapi jangan mengganggunya."
+
+Pengemis tiga kantong itu segera pergi, dan Yin Li berkata kepada beberapa pengemis lain yang masih di situ, "Kalian ikut aku!"
+
+Ia kemudian berpaling kepada para petugas yang sebelumnya menghukum tiga petugas pajak sambil berkata, "Bawa aku menemui Guo Daren!"
+
+Pejabat yang dimaksud itu bernama Guo Limin, ia berusia sekitar empat puluh lima tahun. Perawakannya agak tinggi, dan tubuhnya kurus. 
+Dari tempat kejadian itu menuju ke rumahnya hanya memerlukan waktu sepuluh menit untuk berjalan kaki. Yin Li menuntun kudanya sambil berbicara 
+dengan beberapa warga kota yang masih terus mengikuti mereka karena ingin tahu apa yang sebenarnya terjadi.
+
+Kepada pengawal yang sedang berjaga di depan rumah itu, Liang Zhihui berkata, "Junzhu ingin berbicara dengan Guo Daren tentang apa yang baru 
+terjadi di alun-alun."
+
+Lima menit kemudian Guo Limin keluar bersama dua orang ajudannya, dan segera memberi hormat kepada Yin Li. Ia berkata, "Kami tidak tahu 
+bahwa Junzhu akan datang ke sini. Seharusnya kami menyambut Junzhu dengan lebih baik, Zaixia minta maaf."
+
+"Tidak usah bertele-tele," kata Yin Li dengan nada datar. "Guo Daren, aku tidak pernah menyuruhmu memukuli para petugas pajak. Itu tindakan yang 
+melanggar hukum — kecuali kalau kau punya bukti dan kasus yang kuat untuk melakukannya."
+
+Air muka Guo Limin berubah pucat. Ia sudah mendengar cara Yin Li menangani para pengawal Fang Diande, dan kemudian mengambil alih jabatannya. 
+Ia berkata dengan hati-hati, "Junzhu, tindakan para petugas itu disaksikan oleh para penduduk kota, dan orang yang dipukul itu jelas bukan warga 
+Kaifeng. Mereka bertindak sewenang-wenang kepada orang yang salah. Jadi..."
+
+Yin Li memotong kalimatnya, "Orang bermarga Deng itu memang bukan warga Kaifeng, tapi dia menjawab pertanyaanku dengan cara yang berbelit-belit. 
+Aku sendiri mencurigainya, jadi sekarang ini aku sedang mengirim orang untuk mengusut siapa sebenarnya orang itu. Siapa yang melihat bagaimana cara 
+petugas memukulinya tadi?" Ia berpaling ke arah kerumunan penduduk yang sedang menyaksikan peristiwa itu.
+
+Salah satu warga berkata, "Aku sedang lewat di situ tadi. Sebenarnya mereka memang berdebat, dan orang itu juga sempat mendorong salah seorang 
+petugas, jadi dua petugas lain kemudian memegang kedua tangannya."
+
+"Apa kedua petugas itu memukulinya?" tanya Yin Li lagi.
+
+"Sepertinya tidak," jawab warga lain. "Memang sempat terjadi saling mendorong. Mungkin ada penduduk yang langsung melaporkannya kepada Guo Daren."
+
+"Nah, aku juga tidak melihat ada bekas pukulan di muka atau bagian tubuh lain orang itu," kata Yin Li. "Bebaskan para petugas itu!"
+
+Para pengawal Guo Limin segera melepaskan cekalan di tangan ketiga petugas penagih pajak yang sebelumnya mereka pukul dengan menggunakan tongkat.
+
+Yin Li kembali berpaling kepada Guo Limin, lalu mengamati para pengawal yang sedang berjaga di sekitar rumah itu, dan berkata dengan santai, "Huo Daren, 
+kulihat para petugasmu di sini teralu banyak. Ini memboroskan uang negara, padahal mereka sudah jelas tidak mengerjakan tugas dengan baik. Berapa 
+orang yang kau pakai di sini?"
+
+"Tidak banyak," jawab Guo Limin. "Hanya seratus orang."
+
+"Baik, kalau begitu aku akan menggantinya dengan lima puluh orang yang jauh lebih baik," kata Yin Li sambil memberi isyarat kepada Li Zhenxing 
+untuk mendekat. "Ah Xing, katakan kepada Panglima Chang untuk mengirim seorang komandan bersama seratus orang ke sini!"
+
+"Siap, Junzhu!" kata Li Zhenxing. Lalu ia segera menaiki kudanya dan beranjak pergi.
+
+Yin Li melanjutkan, "Untuk mengatasi masalah seperti ini, kau lebih membutuhkan bantuan dari orang-orang Jianghu. Para pengawalmu ini semuanya hanya 
+bisa menganggukkan kepala. Jadi aku akan memberimu dua puluh orang militerku yang terbaik, ditambah dengan empat puluh orang anggota Kai Pang 
+untuk membantumu di sini. Kungfu mereka tiga puluh kali lipat dari para pengawalmu ini."
+
+"Junzhu, ini..." kata Guo Limin tergagap.
+
+"Kau tidak usah takut," potong Yin Li lagi. "Mereka tidak akan menggigitmu. Lagipula, semua anggota Kai Pang yang akan bekerja di sini adalah 
+yang berbaju bersih. Mereka tidak akan mengganggu keluargamu, atau para penduduk di daerahmu. Jika ada yang menemukan mereka melanggar hukum, 
+semua orang boleh langsung melaporkannya kepadaku. Aku sendiri yang akan mengadili mereka menurut aturan Jianghu!"
+
+"Tapi ini sungguh tidak biasa..."
+
+"Kenapa?" tanya Yin Li lagi. "Menurutmu _aku_ salah ya?"
+
+"Zaixia tidak berani," kata Guo Limin sambil merangkapkan kedua tangannya. "Tapi..."
+
+Yin Li mendecakkan lidahnya dengan tidak sabar, lalu berkata, "Kau terlalu cerewet. Begini saja, aku akan membantumu lagi. Kau boleh membayar 
+gaji untuk dua puluh orang perwiraku itu. Gaji mereka biasa saja, tidak tinggi. Tapi aku yang akan menanggung semua pengeluaran empat puluh orang 
+anggota Kai Pang yang bekerja di sini. Ini cukup adil, kan?"
+
+Guo Limin masih ingin bicara, tetapi Yin Li tidak memberinya kesempatan lagi. Ia menoleh kepada para anggota Kai Pang yang mengikutinya sambil 
+berkata, "Katakan kepada Hu Zhanglao supaya memilih empat puluh anggotanya yang berbaju bersih untuk membantu Guo Daren di tempat ini. Hu Zhanglao 
+harus mengawasi semuanya baik-baik, jangan sampai mereka melakukan sesuatu yang melanggar hukum!"
+
+"Baik, Junzhu!"
+
+Guo Limin masih berpikir-pikir setelah para pengemis itu pergi. Yin Li berkata, "Tunggu apa lagi? Cepat, kumpulkan semua pengawalmu di depan 
+sini. Panglima Chang akan memberikan pelatihan dan pengertian yang benar, supaya berikutnya mereka bisa bekerja dengan lebih baik!"
+
+Tanpa berani membantah lagi, Guo Limin segera menyuruh semua anak buahnya berbaris di depan tempat kediamannya. Tak lama kemudian seratus 
+prajurit kiriman Chang Yuchun tiba di situ bersama seorang komandan mereka. Yin Li berkata kepada komandan itu, "Pilih sepuluh orangmu yang terbaik 
+untuk ditempatkan di sini! Kau mengawal semua orang ini untuk dilatih oleh Panglima!"
+
+Tanpa menunggu komentar Guo Limin, Yin Li menaiki kudanya, lalu menambahkan sambil tersenym ramah, "Guo Daren, aku senang melihatmu bisa bekerja 
+sama dengan baik. Sebentar lagi para anggota Kai Pang itu akan tiba. Aku masih ada urusan lain, jadi tidak sempat minum-minum bersamamu."
+Ia menoleh kepada Liang Zhihui dan Li Zhenxing sambil berkata, "Kita harus cepat pergi sekarang!"
+
+Guo Limin masih termenung di tempatnya berdiri sambil memandangi punggung Yin Li yang dengan cepat menghilang bersama kedua ajudannya. Dalam 
+sekejap Yin Li sudah menggantikan seratus orang yang dikirim oleh Bolad Temur untuk mengawal rumahnya, dengan da puluh orang prajuritnya sendiri, 
+ditambah dengan empat puluh anggota Kai Pang yang belum tiba di situ. Para penduduk yang menyaksikan peristiwa itu mulai membubarkan diri untuk 
+kembali ke tempat mereka masing-masing. Ia merasa seperti sedang bermimpi, dan tak tahu apakah saat itu ia seharusnya menangis atau tertawa.
+Dalam hati ia sedang mengarang cerita untuk melaporkan kejadian ini kepada Bolad Temur di Shanxi.
+
+***
+
+Empat hari kemudian, Zhou Zhiruo menerima kabar mengenai peristiwa yang terjadi di Kaifeng itu dari surat yang dikirimkan oleh Ki Seung Nyang 
+melalui seorang anggota Kai Pang, berikut setumpuk berkas yang dibungkus kain berwarna biru. Anggota Kai Pang itu telah menceritakan apa yang 
+dialaminya sendiri ketika melihat tindakan yang dilakukan Yin Li di beberapa tempat yang menjadi wilayah kekuasaannya di Kaifeng. Tak lama setelah itu, 
+ia segera berpamitan untuk kembali ke Kaifeng.
+
+Zhou Zhiruo memberikan surat yang baru selesai dibacanya kepada Zhao Min yang duduk di hadapannya. Mereka sedang berada di perpustakaan istana. 
+Shuang'er kemudian membacakan isi surat itu, setelah melihat Zhao Min sedang sibuk mencampur irisan cabe rawit dan bawang dengan sedikit garam, 
+lalu membelah sepotong roti bundar di tengah, dan mengisi rongga itu dengan campuran yang baru dibuatnya tadi. Roti itu berisi daging domba yang 
+diolah sesuai dengan seleranya. Ia kemudian menambahkan sedikit telur dadar, dan mulai menggigit makanan itu sambil terus mendengarkan bacaan 
+Shuang'er.
+
+Zhou Zhiruo tersenyum setelah Shuang'er selesai membaca semua isi surat itu. "Tampaknya sekarang Yin Li sudah kembali menjadi galak seperti dulu," katanya. 
+"Jadi dia bukan gila."
+
+"Sudah pasti dia tidak gila," kata Zhao Min setelah menelan makanan di mulutnya. Ia tertawa, lalu melanjutkan, "Tapi kelihatannya sekarang dia agak 
+lain. Langkah-langkah itu sungguh menarik."
+
+"Itu sudah jelas ajaran Bibi Qi," kata Zhou Zhiruo sambil tertawa. "Siapa lagi yang punya ide seperti itu."
+
+"Bukan semuanya," kata Zhao Min lagi. "Coba lihat, Bibi Qi sengaja memberinya nama Shaoli Junzhu, lalu menyuruhnya memanggil ayahku dengan sebutan 'ayah', 
+di depan banyak orang. Ayahku kelihatannya mengikuti semua sandiwara itu dengan sukarela untuk menjebak Bolad Temur. Anehnya, Zhu'er dengan 
+gembira mengikuti permainan itu. Mungkin dia beranggapan semua ini lucu."
+
+"Memang sangat lucu," kata Zhou Zhiruo. "Entah bagaimana, Bibi Qi sekarang punya banyak teman baru di Kaifeng, yang dengan sukarela membantu mereka 
+melakukan segala kegiatan itu." Ia menarik sebuah lembaran, yang ternyata berisi pesan dari Ah Zhu, lalu tertawa sambil berkata, "Ini beberapa 
+resep masakan dari Ah Zhu. Sepertinya teman-teman Bibi Qi itu mengajarinya membuat makanan Kaifeng."
+
+"Makanan Kaifeng berbumbu ringan," kata Sikong Jiumei. "Dulu aku sempat tinggal di Kaifeng."
+
+Zhou Zhiruo memberikan surat Ah Zhu itu kepadanya sambil berkata, "Nah, berikan ini kepada Lingshan. Kalian boleh mencobanya." Tiba-tiba ia 
+merasa mual. Tampaknya aroma makanan yang sedang dimakan Zhao Min membuatnya merasa terganggu. "Meizi, kau sedang makan apa?"
+
+"Daging domba," kata Zhao Min. Rotinya sudah habis, dan ia meraih sebuah mangkuk, lalu mengisinya dengan sup. "Sebelumnya kau juga menyukai 
+makanan ini. Kenapa sekarang jadi aneh?"
+
+Tetapi sekarang Zhou Zhiruo merasa lebih mual. Ia mengeluarkan saputangan untuk menutupi mulutnya. Jing'er dan Li Xian buru-buru membuka jendela 
+lebih lebar supaya lebih banyak udara segar masuk ke ruangan itu, sementara Shuang'er menepuk-nepuk punggung Zhou Zhiruo dengan lembut. 
+
+Zhao Min tertawa sambil berkata, "Ini sudah hampir dua bulan sejak kita meninggalkan Xiangyang. Kurasa aku akan menulis kabar gembira kepada 
+Wuji Gege!"
+
+Zhou Zhiruo menarik nafas panjang beberapa kali untuk mengusir rasa mual itu sambil menghadap ke jendela. Ia bertanya sambil tersenyum, "Dari mana kau tahu?"
+
+"Kabar gembira apa?" tanya Jing'er penasaran.
+
+"Zhou Xiangzhang kita sebentar lagi akan menjadi seorang ibu," jawab Zhao Min. "Masa kalian belum sadar? Zhang Wuji kecil itu sudah pasti calon 
+pemberontak. Sekarang saja dia berani mengaduk-aduk perutmu."
+
+Empat orang gadis muda itu bersorak kegirangan. Mereka cepat-cepat memeluk dan mencium pipi Zhou Zhiruo sambil mengucapkan selamat. Jing'er 
+bergegas keluar sambil berkata, "Aku akan mengambil susu dan menyuruh Lingshan membuat bubur. Rasanya bumbu daging dan sup itu yang membuat mual."
+
+
+
+
+
+
+
 
 
 
