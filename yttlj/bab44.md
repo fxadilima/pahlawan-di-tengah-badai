@@ -864,12 +864,11 @@ penciumannya. Ia berkata, "Hmm, kelihatannya kalian semua pandai memasak."
 Yin Li tertawa sambil meletakkan ubi rebus di meja, dan berkata, "Bibi, aku cuma bisa merebus ubi-ubi ini. Semua sayuran dan daging ini adalah 
 masakan Ah Zhu dan Yuxian."
 
-"Zhou Xiangzhang yang mengajar kami semua memasak," kata Ah Zhu terus terang. Sebenarnya ia lebih menyukai Zhao Min, tetapi soal memasak, ia 
-tetap harus mengakui kelebihan Zhou Zhiruo.
+"Zhou Xiangzhang yang mengajar kami semua memasak," kata Ah Zhu. Dalam hal memasak dan membuat kue-kue, Ah Zhu adalah murid kesayangan Zhou Zhiruo.
 
 "Di Xiangyang, tidak ada orang yang tidak menyukai masakan Zhou Xiangzhang!" tambah Dongfang Yuxian dengan penuh semangat. Ia memang sangat 
-menyukai masakan Zhou Zhiruo. Meskipun ia kurang teliti, tetapi kalau soal memasak, ia dengan cepat belajar dari Zhou Zhiruo. Selain Lingshan, 
-Dongfang Yuxian adalah murid kesayangan Zhou Zhiruo jika bicara soal memasak.
+menyukai masakan Zhou Zhiruo. Meskipun ia kurang teliti, tetapi kalau soal memasak, ia dengan cepat belajar dari Zhou Zhiruo. Selain Ah Zhu dan Lingshan, 
+Dongfang Yuxian adalah salah satu murid kesayangan Zhou Zhiruo, jika bicara tentang memasak.
 
 "Baiklah," kata Ki Seung Nyang. "Malam ini kalian boleh merayakan kemenangan sebentar. Ayo kita makan!"
 

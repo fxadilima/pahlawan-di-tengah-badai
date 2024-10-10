@@ -1388,7 +1388,7 @@ Dalam hati ia sedang mengarang cerita untuk melaporkan kejadian ini kepada Bolad
 
 ***
 
-Empat hari kemudian, Zhou Zhiruo menerima kabar mengenai peristiwa yang terjadi di Kaifeng itu dari surat yang dikirimkan oleh Ki Seung Nyang 
+Empat hari kemudian, pagi-pagi sekali, Zhou Zhiruo menerima kabar mengenai peristiwa yang terjadi di Kaifeng itu dari surat yang dikirimkan oleh Ki Seung Nyang 
 melalui seorang anggota Kai Pang, berikut setumpuk berkas yang dibungkus kain berwarna biru. Anggota Kai Pang itu telah menceritakan apa yang 
 dialaminya sendiri ketika melihat tindakan yang dilakukan Yin Li di beberapa tempat yang menjadi wilayah kekuasaannya di Kaifeng. Tak lama setelah itu, 
 ia segera berpamitan untuk kembali ke Kaifeng.
