@@ -1439,6 +1439,53 @@ pemberontak. Sekarang saja dia berani mengaduk-aduk perutmu."
 Empat orang gadis muda itu bersorak kegirangan. Mereka cepat-cepat memeluk dan mencium pipi Zhou Zhiruo sambil mengucapkan selamat. Jing'er 
 bergegas keluar sambil berkata, "Aku akan mengambil susu dan menyuruh Lingshan membuat bubur. Rasanya bumbu daging dan sup itu yang membuat mual."
 
+Setelah itu seorang pengawal istana masuk sambil berkata, "Junzhu, ada sebuah kereta datang dari Xiangyang bersama dua orang pengawal, mereka 
+memberikan surat ini."
+
+Zhao Min membaca surat itu sekilas, lalu berkata, "Xian'er, katakan kepada Komandan Xu supaya menemui aku di pintu gerbang istana! Dia sedang ada 
+di baraknya."
+
+Setelah Lu Xian pergi, ia berkata kepada Zhou Zhiruo sambil menyerahkan surat itu, "Jiejie, ada hadiah besar untuk Xu Da. Aku harus menjemputnya sekarang!"
+
+Tanpa menunggu jawaban Zhou Zhiruo, ia berlari meninggalkan perpustakaan diikuti oleh pengawal yang mengantarkan surat itu.
+
+Di pintu gerbang istana, Jiang He sudah menunggu bersama kedua pengawal kereta dari Xiangyang. Zhao Min sengaja menunggu sampai Xu Da datang 
+bersama Li Xian, lalu ia berkata sambil membuka pintu kereta, "Komandan Xu, ini hadiah dari Ma Furen!"
+
+Xu Da terheran-heran melihat seorang gadis berusia sekitar delapan belas atau sembilan belas tahun, yang turun dari kereta itu sambil tersenyum 
+karena mendengar pengumuman Zhao Min. Tidak seperti Yu'er yang sedikit lebih dewasa ketimbang Zhou Zhiruo, Fei'er tampak agak kekanak-kanakan. 
+Ia sama sekali tidak malu-malu, dan dengan bebas menyapa Zhao Min, seolah-olah tidak melihat kehadiran Xu Da di situ, "Junzhu, aku pernah melihat 
+kalian di Haozhou ketika kalian mampir dalam pemakaman keluarga Guo Zixing itu. Tapi sekarang Junzhu tampak gagah perkasa, dan sekaligus lebih 
+cantik dari sebelumnya."
+
+"Wah, aku tidak tahu kau memperhatikan kedatangan kami," kata Zhao Min sambil tertawa.
+
+"Ayahku memang mengenal Guo Zixing, karena itu Ma Furen juga mengenal kami," jawab Fei'er. "Saat itu, orang ini..." Ia menuding Xu Da dengan telunjuknya, 
+lalu melanjutkan, "mengajak gerombolannya minum-minum sampai mabuk di kedai ayahku..."
+
+Seketika itu Xu Da menepuk dahinya sendiri dan berkata, "Ah! Ternyata kau anak pemilik kedai itu!"
+
+Fei'er memukuli dadanya dengan tinjunya yang kecil. Xu Da tertawa sambil memegang kedua tangan Fei'er, lalu berkata, "Hei, hei, hei! Aku saat itu 
+sama sekali tidak mabuk. Dan aku juga tidak ikut memukul ayahmu. Malah aku yang akhirnya menangkap teman-temanku sendiri." Lalu ia tampak 
+agak muram, sebelum melanjutkan, "Sebetulnya mereka kasihan juga..."
+
+"Huh!" dengus Fei'er sambil meronta untuk melepaskan tangannya. "Komandan Xu, aku tetap akan menuruti anjuran Ma Furen untuk menikahimu. Tapi kalau 
+kau pulang dalam keadaan mabuk, aku pasti akan menendang pantatmu keluar dari rumah, dan membiarkan kau tidur di halaman."
+
+Zhao Min merangkul bahu Fei'er sambil berkata, "Fei'er, kalau kau memang tidak menyukai orang jelek ini, nanti aku akan mengatakannya kepada 
+Ma Furen. Jadi kau bisa memilih orang lain."
+
+Xu Da tertawa sambil berkata, "Aku mulai menyukai gayamu. Suka atau tidak, kau tetap sudah berjanji untuk menikahiku, jadi aku tidak akan memaksamu. 
+Kapan kau ingin menikah, kau bisa menentukannya sendiri. Sekarang aku sedang memanggang seekor angsa di barakku. Kalau mau, kau boleh ikut 
+makan di sana."
+
+"Sekarang aku ingin menyapa Zhou Xiangzhang," kata Fei'er. "Nanti kalau aku punya waktu, baru aku akan berurusan denganmu."
+
+Zhao Min berkata, "Komandan Xu, aku masih punya banyak makanan di dapur. Kalau mau, kau juga bisa ikut menemui Zhou Xiangzhang. Terserah kau, mau makan 
+daging domba atau angsa."
+
+"Wah, tentu saja aku akan menemui Zhou Xiangzhang," kata Xu Da.
+
 
 
 
