@@ -74,3 +74,8 @@ Mongolia
 3. Torebeg
 4. Elbeg
 
+## Lokasi
+
+- Lembah Kupu-kupu terletak di Huaibei, masih termasuk wilayah utara, tetapi sedikit di selatan Kaifeng.
+
+

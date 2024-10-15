@@ -414,5 +414,234 @@ Yin Li juga memberikan instruksi singkat supaya Zhong Zhanglao menghubungi rekan
 dan melaporkannya begitu ditemukan ada sekelompok orang yang mencurigakan masuk ke situ. Setelah itu ia langsung memacu kudanya kembali ke rumah 
 Ki Seung Nyang.
 
-Bibi Liu kembali berkunjung ke situ untuk menagih janji Yin Li tadi pagi. 
+Bibi Liu kembali berkunjung ke situ untuk menagih janji Yin Li tadi pagi. Begitu melihat Yin Li, ia bertanya, "Bagaimana?"
+
+"Memang ada," kata Yin Li. Ia menuangkan secawan arak, lalu meminumnya sampai habis dalam sekali teguk. 
+
+"Lalu apa yang akan kita lakukan?" tanya Bibi Liu.
+
+Ki Seung Nyang berkata dengan tenang, "Kau tetap berjualan seperti biasa. Jangan menyebarkan berita ini kemana-mana. Biarkan ayah Ah Li menangani 
+mereka semua." Ia berpaling kepada Yin Li, sebelum bertanya, "Kau mengerti maksudku, kan?"
+
+"Maksud Mama aku harus mengambil alih empat wilayah yang lain itu?" tanya Yin Li.
+
+"Kau hanya perlu _mengatakan_, bahwa mulai sekarang mereka semua harus mendengarkan ayahmu, dan bekerja sama denganmu," kata Ki Seung Nyang. "Mereka tetap boleh 
+memegang jabatan dan bekerja seperti biasa."
+
+"Bagaimana jika mereka tidak mau?" tanya Yin Li.
+
+"Huh," dengus Ki Seung Nyang. "Bagi yang tidak mau, selanjutnya mereka akan berurusan langsung dengan ayahmu. Aku ingin tahu, apa reaksi mereka 
+setelah mendengar ini."
+
+Bibi Liu bertanya, "Dan bagaimana dengan meriam-meriam itu?"
+
+"Jika mereka mau bekerja sama dengan Ah Li, maka kau sudah tidak perlu lagi memusingkan soal meriam," kata Ki Seung Nyang. "Aku berani mengatakan kepadamu, 
+Zhu Yuanzhang tidak akan sembarangan menggunakan meriam, karena dia harus menaati ketuanya. Meriam sangat membahayakan keselamatan rakyat jelata, padahal Ming Jiao 
+membela rakyat, jadi Zhang Wuji sudah pasti tidak akan menggunakan meriam itu."
+
+Setelah Yin Li menjalankan semua perintah Ki Seung Nyang, ternyata yang terjadi memang tepat seperti yang diperkirakan oleh permaisuri cantik itu. 
+Di masa itu, semua penguasa kota sangat takut kepada Chaghan Temur, padahal menurut berita yang beredar, Yin Li sebenarnya adalah putri Chaghan dari 
+salah seorang selirnya yang tak dikenal. Meriam Gongsun Bao adalah kiriman dari Bolad Temur. Jadi ia berpikir, Bolad Temur dan Chaghan pasti adalah sekutu, 
+mengingat Chaghan juga adalah anak didik Dash Badalugh, ayah Bolad Temur. Jika Chaghan bermaksud memegang kendali atas semua wilayah, mengapa mereka 
+harus menantangnya? Tiga wilayah lainnya tidak memiliki meriam, mereka hanya mengandalkan kerja sama dengan Gongsun Bao jika harus mengatasi serangan 
+dari selatan, karena itu mereka hanya mengikuti keputusan Gongsun Bao.
+
+Selama beberapa bulan setelah itu, keadaan menjadi aman. Ki Seung Nyang menggunakan kesempatan itu untuk menyelidiki asal-usul sumbangan yang mengalir 
+kepada Zhang Wuji di Xiangyang, terutama sekali yang datang dari Kaifeng. Sementara itu pihak mereka sendiri juga menerima sumbangan yang sama, yang 
+disalurkan melalui Yin Li. Beberapa nama yang sama ternyata menyumbangkan harta mereka kepada dua pihak sekaligus, jadi Ki Seung Nyang segera 
+menyimpulkan bahwa nama-nama tersebut hanya ingin mencari aman — pihak manapun yang akan berkuasa di wilayah mereka — seandainya terjadi konflik.
+
+Dana yang sangat besar terkumpul dari para penduduk kota sendiri, yang digalang oleh Bibi Liu, Ying Furen dan teman-teman mereka. Dalam waktu setengah 
+tahun, Ki Seung Nyang bisa menyimpulkan bahwa sebagian besar penduduk kota Kaifeng sangat puas atas kepemimpinan Yin Li. Pertumbuhan ekonomi kota itu 
+jauh lebih besar ketimbang kota-kota lain di wilayah kekuasaan Dinasti Yuan, termasuk daerah selatan, yang saat ini sebagian besar telah dikuasai oleh 
+pihak pemberontak. Mereka hanya kalah oleh Hanyang, yang dikelola bersama oleh Zhou Zhiruo dan Zhao Min. Tetapi bagaimanapun juga, Hanyang hanya sebuah 
+kota kecil, baik luas wilayah maupun jumlah penduduknya sangat jauh dibandingkan Kaifeng.
+
+Di Hanyang, banyak orang merayakan Natal bersama dengan Zhou Zhiruo yang sedang menunggu kelahiran anak pertamanya. Sembilan bulan bersama dengan 
+Zhou Zhiruo, para penduduk merasakan kedamaian yang sudah lama mereka rindukan. Frater Andre bersama dengan anak-anak muda dari tempat penampungan pengungsi 
+menghias pohon cemara besar di istana dengan berbagai hiasan, yang meskipun cukup sederhana, tetapi tampak meriah. Anak-anak muda itu mengajak Zhou Zhiruo 
+dan Zhao Min ikut menyanyikan lagu-lagu gembira, untuk menyambut kelahiran Juru Selamat mereka. Syair dan lagu-lagu itu tidak asing bagi telinga Zhao Min, 
+tetapi Zhou Zhiruo harus belajar menyanyikannya. Di malam Natal, mereka berdoa bersama di sekeliling istana, lalu menggantungkan kertas-kertas bertuliskan 
+harapan mereka di ranting-ranting pohon cemara itu. 
+
+Seminggu kemudian, mereka kembali berkumpul untuk merayakan Tahun Baru menurut kalender Gregorian. Saat itu kelahiran anak Zhou Zhiruo hanya tinggal 
+menunggu waktu, tetapi ia tetap berkumpul di halaman istana bersama dengan para penduduk kota yang sedang bergembira. Di tengah pesta itu, Zhou Zhiruo 
+mengeluh sambil memegang perutnya, ternyata air ketubannya pecah. Mereka segera membawanya memasuki istana, lalu memanggil seorang wanita dari tempat 
+penampungan pengungsi yang sudah terbiasa membantu proses kelahiran.
+
+Setelah berjuang sekitar dua jam, bayi laki-laki Zhou Zhiruo lahir. Bayi itu sangat sehat, kulitnya putih, matanya lebar, seperti Zhang Wuji. Alisnya 
+terang dan melengkung indah, dengan ekspresi muka seperti Zhou Zhiruo.
+
+Zhao Min menggendong bayi yang telah dibersihkan itu dengan kedua tangannya. Ia tampak terharu, tetapi tersenyum gembira menyaksikan ekspresi muka 
+bayi itu. "Zhou Jiejie, kelihatannya anak ini bakalan dikelilingi banyak perempuan seperti ayahnya," katanya. Ia hendak memberikan bayi itu kepada 
+Zhou Zhiruo, yang masih sibuk mengatur nafasnya. Zhou Zhiruo ingin tertawa, tetapi sesaat kemudian ia kembali merasa kesakitan. Mereka baru menyadari 
+bahwa di rahimnya masih ada seorang bayi lagi, yang sedang menunggu untuk dilahirkan.
+
+Tak terlalu lama kemudian, Zhou Zhiruo melahirkan seorang bayi perempuan, yang nyaris tak berbeda dengan ibunya. Hanya sepasang matanya yang lagi-lagi 
+mirip dengan Zhang Wuji. Jing'er menggendong bayi perempuan itu, dikelilingi oleh keempat temannya yang tertawa cekikikan sambil mengajak anak itu 
+bicara. "Furen, yang satu ini sungguh-sungguh Zhou Xiangzhang kecil!" katanya.
+
+Saat itu Frater Andre mengetuk pintu, lalu dipersilakan masuk. Ia tertawa gembira dan mengucapkan selamat atas kelahiran bayi kembar Zhou Zhiruo.
+
+[^ying]: Ying (tradisional 應 atau disederhanakan 应), secara literal berarti pintar atau berani. Nama Ziying (子应) bisa diartikan sebagai 'anak pintar' atau 'anak pemberani'.
+
+Wanita yang menolong kelahiran kedua bayi itu berkata dengan gembira, "Kedua anak ini lahir di malam Tahun Baru, ini pertanda pertolongan Allah bagi kita 
+semua!"
+
+Tiba-tiba Zhou Zhiruo berkata, "An Shifu, sudikah kau membaptis kedua anak ini?" Ia sudah mendengar tentang proses pembaptisan dari semua penganut Kristen 
+di tempat penampungan pengungsi, dan juga dari Zhao Min.
+
+Semua mata memandangnya dengan pandangan bertanya. "Furen, benarkah apa yang kudengar barusan?" tanya Frater Andre. "Furen ingin menyerahkan kedua bayi 
+ini kepada Yesus?"
+
+"Betul," kata Zhou Zhiruo dengan muka serius. "Ayah mereka memang sedang berada di Xiangyang, tetapi aku sangat yakin dia tidak akan keberatan dengan 
+keputusanku ini. Aku juga minta supaya An Shifu memilih nama untuk anak laki-laki ini." Ia kemudian berpaling kepada Zhao Min sambil tersenyum dan 
+berkata, "Meizi, kau lebih kenal nama-nama Kristen, mungkin kau bisa membantuku memilih nama untuk anak perempuan kita."
+
+Zhao Min sangat gembira, ia berkata, "Sinar mata anak ini menunjukkan kecerdasannya, dan kelihatannya dia juga pemberani. Aku jadi teringat cerita 
+kuno tentang seorang penakluk dunia yang bernama Alexander. Jadi aku menamai anak ini Alexandra!"
+
+Semua orang bersorak gembira, lalu Zhou Zhiruo berkata, "Nama itu kedengarannya cantik sekali. Tapi aku harus belajar bagaimana cara mengucapkannya."
+
+"Kita bisa minta supaya Wuji Gege memberikan nama dalam bahasa Han untuk anak laki-laki ini," kata Zhao Min. "Kalau kau merasa sulit memanggil nama Alexandra, 
+kita bisa memanggilnya Ziying[^ying]."
+
+Zhou Zhiruo sangat gembira. Ia berkata, "Meizi! Nama itu sungguh-sungguh cocok — Zhang Ziying!"
+
+Malam itu juga Frater Andre membaptis kedua bayi yang baru dilahirkan Zhou Zhiruo itu, dengan disaksikan oleh semua orang yang sedang berkumpul 
+di halaman istana. Ia memberikan nama Agustinus bagi anak laki-laki Zhou Zhiruo, menurut nama Bapa Gereja yang juga pernah menjadi penganut Ming Jiao, sebelum dibaptis. Dalam hati 
+ia berharap bahwa anak ini akan selalu mengingat asal-usul namanya, dan mengikuti semangat hidup Agustinus sendiri.
+
+Zhou Zhiruo termenung setelah mendengar penjelasan Frater Andre mengenai nama Agustinus yang diberikan sebagai nama anaknya. Saat ini mereka bertiga 
+juga sedang berusaha memperbaiki ajaran Ming Jiao yang mereka anggap tidak sesuai dengan apa yang mereka yakini. Setiap kali teringat akan hal ini, 
+mereka selalu merasakan beban yang sangat berat menghimpit bahu mereka. Ia berharap anaknya akan tumbuh seperti Sungai Han, yang mengalir sepanjang 
+masa, dan menghubungkan wilayah sebelah utara dan selatan sungai itu. Di tepian sungai itulah ia untuk pertama kalinya bertemu dengan Zhang Wuji kecil, 
+dan sekarang mereka kembali ke Sungai Han yang sama. Lebih jauh lagi, ia sekarang secara tak terduga memimpin kota Hanyang.
+
+Ia berkata sambil memandang ke kejauhan, "Karena adiknya dipanggil Ziying, kurasa aku akan memanggilnya Zihan. Suamiku pasti akan setuju."
+
+"Kelihatannya Furen sedang memikirkan kota ini," kata Frater Andre.
+
+Zhou Zhiruo hanya tersenyum. Zhao Min yang mewakilinya menjawab, "Frater betul, tapi kami juga memikirkan tentang Sungai Han."
+
+"Nama-nama ini sangat bagus," kata Frater Andre sambil tersenyum.
+
+Xu Da, Jiang He dan Fei'er mengucapkan selamat kepada Zhou Zhiruo, sambil berebut ingin menggendong kedua bayi itu.
+
+"Hei, kalian berdua kasar," kata Fei'er. "Anak-anak ini takut melihat kalian."
+
+Tetapi Xu Da berkata, "Tapi kedua anak ini sama sekali tidak takut!" 
+
+Saat itu Zihan sedang memegang jari telunjuk Xu Da kuat-kuat, dan tampaknya ia tertawa kegirangan, sedangkan Ziying mencengkeram punggung tangan 
+Jiang He dengan telapak tangannya yang kecil. Zhao Min mengoleskan minyak di dada kedua bayi yang baru lahir itu, untuk melindungi mereka dari hawa dingin.
+
+Fei'er berkata, "Sebaiknya kita membawa mereka masuk sekarang. Di sini cukup dingin, dan Zhou Xiangzhang juga baru melahirkan, nanti masuk angin."
+
+Zhou Zhiruo tertawa. "Sekarang giliranku menjadi ibu," katanya. "Kurasa mereka sudah lapar."
+
+Ia melambaikan tangan kepada semua orang sambil mengucapkan selamat tahun baru, lalu berjalan masuk ke istana dengan dibantu oleh Fei'er dan Zhao Min. 
+Jing'er dan teman-temannya berebut untuk menggendong kedua bayi itu.
+
+Zhao Min segera mengirimkan kabar kepada Zhang Wuji dan Ki Seung Nyang mengenai kelahiran bayi kembar itu.
+
+Yin Liting yang mengajak beberapa murid Wudang dari generasi ketiga untuk menggantikan Zhang Songxi begitu gembira mendengar kabar kelahiran anak 
+kembar Zhang Wuji. Ia segera mengutus Ming Yue untuk kembali ke Wudang dan menceritakan kabar gembira itu kepada Zhang Sanfeng. Karena pagi ini 
+mereka juga menerima kabar perkembangan terakhir di Kaifeng dari Ki Seung Nyang, Zhang Wuji juga mengutus Dou Sujian pergi menemui kakek gurunya bersama 
+Ming Yue. Ia merasa mereka semua akan menghadapi tantangan yang sangat berat beberapa bulan setelah ini, karena itu ia ingin mendengar pendapat Zhang Sanfeng.
+
+Yin Liting berkata, "Aku tahu kau ingin buru-buru menyatukan Fancheng dan Xiangyang, tapi itu tidak mungkin terlaksana dalam waktu dekat."
+
+"Yin Liushu, aku memang penasaran karena saat ini ayah Minmin sudah berada di Nanyang," kata Zhang Wuji. "Kalau sebelumnya kita harus memperhitungkan 
+reaksi dari pihak utara, maka sekarang hal itu pasti bisa dipikirkan oleh ayah mertuaku."
+
+"Justru karena itulah, kita harus lebih berhati-hati," kata Yu Daiyan. "Ayah Minmin dalam posisi serba salah, jika kalian memaksanya untuk mengatasi 
+para pejabat di Fancheng, maka ia tidak akan bisa menangani masalah di Kaifeng dengan baik."
+
+Zhang Wuji termenung, tampaknya ia sedang berpikir dalam-dalam. Lalu ia berkata, "Aku tidak mengerti, kenapa justru di saat ini Bibi Qi ingin 
+mengajak Zhu'er ke istana? Bukankah ini akan membuat posisi kita di Kaifeng menjadi goyah?"
+
+He Taichong dan Ban Shuxian saat itu sudah kembali ke Xiangyang bersama dua orang murid mereka. Xi Huazi mereka tinggalkan di Kaifeng bersama 
+murid-murid mereka yang lain, untuk membantu Yin Li. Karena sebelumnya mereka sempat mampir di Kaifeng, dan bertemu dengan Ki Seung Nyang, maka 
+mereka bisa memahami kesulitan yang ada di situ dengan lebih baik.
+
+He Taichong berkata, "Karena sampai sekarang Bozhou masih meneruskan rencana mereka untuk menyerang Kaifeng, maka rencana itu memang pilihan yang 
+terbaik. Qi Furen pasti sudah menjelaskan bahwa berikutnya — dan justru di titik kritis — kita akan menempatkan Shaomin Junzhu di Kaifeng, dan Qi Furen 
+akan membawa Shaoli Junzhu ke istana. Langkah ini akan membingungkan lawan, baik di utara maupun selatan."
+
+Zhang Wuji justru merasa langkah itu juga membingungkan baginya. "Aku tahu Minmin pasti lebih berpengalaman menangani masalah politik ketimbang Zhu'er. 
+Tapi saat ini para pejabat di Kaifeng sudah terbiasa mendengar instruksi dari Zhu'er, sementara Minmin masih harus mempelajari apa yang terjadi dari 
+Chang Yuchun. Selain itu, jika Bozhou tiba di Kaifeng, bukankah kehadiran Minmin akan lebih mencurigakan?"
+
+"Soal itu sama saja," kata Ban Shuxian. "Dari kabar yang beredar di Kaifeng, orang-orang di situ, saat ini, berpendapat bahwa Nona Yin _juga_ adalah 
+putri dari Chaghan Temur — dan menganggap Qi Furen adalah ibunya — salah satu selir ayah Minmin, yang paling tidak diperhatikan. Selama ini Nona Yin 
+selalu menampilkan diri sebagai orang Mongolia, terutama jika sedang berhadapan dengan para pejabat dari kalangan Mongolia. Pihak Bozhou hanya mendengar 
+dari mata-mata mereka, yang pasti hanya melaporkan kabar yang sama."
+
+Zhang Wuji sampai sekarang tak habis pikir, bagaimana cara Yin Li meyakinkan semua orang bahwa dirinya adalah seorang keturunan Mongolia, padahal Yin Li 
+sudah jelas tidak bisa berbahasa Mongolia sama sekali. Jika berada di istana, bukankah rahasia ini akan lebih mudah terbongkar? Ia merasa penjelasan 
+Ban Shuxian itu membuatnya semakin bingung, karena itu ia berkata, "Sima Zhanglao, tolong panggil Situ Peng. Ada sesuatu yang ingin kutanyakan."
+
+Pagi ini Situ Peng baru tiba di Xiangyang. Setelah menyampaikan surat Ki Seung Nyang, dan menjawab sedikit pertanyaan Zhang Wuji, lalu ia disuruh 
+beristirahat, karena baru menempuh perjalanan jauh. Sekarang sudah lewat tengah hari, ia merasa cukup segar setelah tidur beberapa jam. Ia segera 
+menceritakan selengkap-lengkapnya apa yang ingin diketahui oleh Zhang Wuji.
+
+"Sebenarnya masih ada satu masalah lagi, yang tidak diceritakan oleh Qi Furen dalam surat," tambah Situ Peng. "Qi Furen sudah terlalu lama di luar 
+istana, dan saat ini semakin berat untuk mempertahankan penyamarannya di Kaifeng. Pergerakan kita banyak mengandalkan dukungan para penduduk kota itu, 
+yang sama sekali tidak diberitahu siapa Qi Furen sebenarnya. Jika berikutnya Junzhu menghilang bersama dengan Qi Furen, tetapi Xiao Furen yang 
+muncul menggantikannya, para penduduk yang menjadi sekutu dekat Qi Furen itu akan lebih mudah memahaminya. Mereka juga akan menyebarkan berita 
+yang isinya pasti akan mendukung cerita mengenai Junzhu menjadi lebih kuat."
+
+Semua orang di situ belum terbiasa dengan cara Situ Peng memanggil Yin Li dengan sebutan 'Junzhu', tetapi memanggil Zhao Min dengan sebutan Xiao Furen.
+Situ Peng menceritakan banyak hal yang tidak diketahui oleh He Taichong dan Ban Shuxian, karena ia sejak awal sudah ikut membantu Ki Seung Nyang 
+dan Yin Li hingga akhirnya mereka menguasai Kaifeng.
+
+"Jika semuanya sesuai dengan perkiraan, maka begitu Xiao Furen tiba di Kaifeng, kita harus segera memindahkan Chang Yuchun ke Hanyang." tambah Situ Peng. 
+"Zhou Xiangzhang saat ini memang sudah menguasai pengelolaan kota, tetapi tetap belum terlalu memahami strategi militer. Nantinya, ketika perintah 
+menyerang diserukan dari Bozhou, Xiao Furen akan memerintahkan Komandan Xu bergerak dari Hanyang menuju ke Kaifeng. Pada saat itulah Chang Yuchun 
+diperlukan di Hanyang, untuk melindungi kota itu dari kemungkinan diserang oleh pihak lain."
+
+Bicara sampai di sini, semua orang menjadi tegang. Saat ini semua pihak saling memata-matai. Mereka tahu bahwa Liu Futong tidak akan berani bergerak, 
+jika Kaifeng dalam keadaan aman dan damai, semua rakyat mencintai pemimpinnya, dan mereka juga merasa mendapat keadilan, meskipun sistem hukum 
+sebetulnya masih berat sebelah, menguntungkan warga keturunan Mongolia. Kalaupun Liu Futong ingin menyerang, maka ia pasti akan memakai sistem hukum 
+Dinasti Yuan yang dirasa berat sebelah oleh suku Han ini sebagai alasannya.
+
+Zhang Wuji tahu, untuk mengatasi kepincangan ini, Ki Seung Nyang memakai banyak trik yang melibatkan anak-anak sebagai saksi di pengadilan. Jadi 
+meskipun hukum itu tetap tidak bisa diubah, kesaksian anak-anak itu sangat memberatkan para pelanggar hukum dari suku Mongolia. Ini adalah 
+taktik yang sangat jitu, karena sekaligus menciptakan keadilan bagi warga dari suku Han, tetapi kaki tangan Bolad Temur yang dibebaskan dari hukuman 
+itu tetap akan melakukan pelanggaran yang sama lagi. Dengan demikian Yin Li akan punya alasan untuk mendepak mereka dari jabatannya. Ketika hal itu 
+terjadi, tak seorang pun berani membela pejabat atau petugas yang bersalah itu lagi, karena secara naluriah mereka semua akan merasa bahwa diam-diam 
+Yin Li sudah pernah membantu mereka dari belakang.
+
+Hal ini menimbulkan konsekuensi logis, yaitu Yin Li semakin terkenal. Jika Yin Li semakin terkenal, maka banyak orang di luar Kaifeng pasti ingin menyelidiki latar belakangnya, 
+bahkan sampai ke keluarga dekatnya, dan dalam hal ini yang dimiliki Yin Li hanya Ki Seung Nyang, yang mereka anggap sebagai ibunya. Ki Seung Nyang 
+memang bisa menipu semua orang lain yang tidak pernah melihatnya di istana, tetapi tentu saja ia tidak mungkin menipu seorang pejabat tinggi seperti 
+Bolad Temur. 
+
+Sekarang Zhang Wuji baru memahami, mengapa Ki Seung Nyang merasa perlu mengambil tindakan drastis, yaitu menghilang dari Kaifeng bersama Yin Li. 
+"Baik, sekarang aku mengerti," katanya. "Bei Shijie, Sima Zhanglao, masih ada berita lain lagi yang ingin dibahas?"
+
+"Sebentar lagi Ding Shijie akan tiba dari Emei sambil membawa banyak murid-murid yang akan bergabung dengan kita di sini," kata Bei Jinyi. "Tadinya 
+Qi Furen menyiapkan mereka untuk mendukung Kaifeng, tetapi karena ada perubahan rencana, maka sekarang Ding Shijie langsung menuju ke sini."
+
+"Bagus," kata Zhang Wuji. "Saat ini Xiangyang akan membutuhkan lebih banyak orang, karena aku sendiri akan lebih sering bepergian."
+
+Sima Han berkata, "Jiaozhu, barusan ada kabar dari Wu Zhanglao. Zhu Yuanzhang berhasil menekan Chen Youliang samppai keluar dari Jiangxi. Mereka 
+terdesak sampai ke dekat Danau Poyang."
+
+"Maksudmu sekarang semuanya sudah menyingkir ke situ?" tegas Zhang Wuji.
+
+"Ada beberapa kelompok yang tersisa di Jiangxi, tetapi tidak terlalu banyak lagi."
+
+Yin Liting berkata, "Hm, Danau Poyang tidak menguntungkan bagi Zhu Yuanzhang. Chen Youliang sangat menguasai pertempuran di air!"
+
+"Itu benar!" kata Zhang Wuji. Ia teringat bahwa Chen Youliang berasal dari keluarga nelayan. Tajkis pernah mengujinya dengan sejumlah pertanyaan, 
+saat itu Chen Youliang jelas sekali sedang pura-pura tidak mengerti. "Tapi pertempuran di danau akan membuat kita bisa menggunakan meriam yang ada 
+di Nanjing, karena para penduduk pasti menghindari berlayar di danau itu sekarang."
+
+"Agak percuma, karena pihak Chen Youliang juga memiliki meriam," kata Yu Daiyan. "Anak-anak sudah menemukan kabar mengenai hal itu."
+
+"Ini membuatku kuatir," kata Zhang Wuji. "Jika Chen Youliang ingin menggunakan meriam itu, maka Xu Shouhui pasti akan mencegahnya. Tapi dengan begitu 
+konflik di antara mereka pasti akan menjadi terbuka. Pada saat itu, aku kuatir Chen Youliang sudah tidak takut lagi untuk membunuhnya."
+
+
 
