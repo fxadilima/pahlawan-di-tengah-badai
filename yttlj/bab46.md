@@ -224,7 +224,7 @@ Saat itu Yin Li masuk ke ruang tamu sambil berkata, "Nah, nah, Ah Yi — _aku_ m
 
 "Coba pikir, bagaimana seandainya ada orang yang sengaja menyebarkan berita palsu, untuk membuat kita panik, lalu menyebarkan berita itu 
 ke segala tempat? Misalnya, sampai ke Nanjing — yang Ah Yi sebutkan sendiri tadi?" kata Yin Li. "Bayangkan lagi, bagaimana jika Nanjing kemudian panik, 
-dan bermaksud mendahului menyerang Kaifeng dengan meriam, padahal sebenarnya meriam itu sama sekali tidak ada di sini?"
+dan bermaksud mendahului menyerang Kaifeng dengan meriam, padahal sebenarnya meriam itu sama sekali tidak ada di sini? Lalu apa yang terjadi?"
 
 Bibi Liu terdiam. Tampaknya penjelasan Yin Li mulai menyadarkannya. Beberapa saat kemudian ia baru bertanya, "Lalu apa yang harus kita lakukan?"
 
@@ -242,10 +242,177 @@ bergegas menuju ke pintu.
 
 Langkah Yin Li terhenti sebelum mencapai pintu, sesaat kemudian ia berbalik dan berkata, "Aku tahu."
 
+Sambil menaiki kudanya, Yin Li terus berpikir, "Sebenarnya apa yang ingin dikatakan Bibi Qi? Chaghan Temur berpesan supaya aku mengunjungi wilayah 
+tetangga? Jika dihubungkan dengan masalah saat ini, bukankah wilayah yang dimaksud adalah Laodong? Untuk apa aku ke Laodong, padahal meriam itu 
+belum tentu ada?"
 
+Ia lalu menyingkirkan semua itu dari benaknya, dan bertekad untuk mencari tahu apakah meriam itu sungguh-sungguh ada. Setibanya di Kantor Kepala Wilayah, 
+ia langsung memasuki sebuah ruangan untuk mengganti pakaian yang dikenakannya dengan busana wanita suku Han biasa, dan mengikat rambutnya mengikuti 
+cara yang umum dipakai oleh para wanita Jianghu. Kemudian ia mengambil pedang panjangnya, dan beranjak dari situ menuju ke pintu selatan kota.
 
+Di salah satu sudut, ia melihat ada dua orang pengemis yang membawa dua kantong di punggungnya. Ia lalu mendekati kedua pengemis itu, dan berkata 
+dengan nada rendah, sambil menunjuk ke sebuah kedai, "Suruh Zhong Zhanglao menemuiku di kedai itu." Setelah itu ia langsung memasuki kedai, memesan 
+arak, dan minum perlahan-lahan.
 
+Sepuluh menit kemudian, Zhong Zhanglao muncul, dan bermaksud memberi hormat sambil menyebutkan namanya. Tetapi Yin Li segera berkata, 
+"Panggil aku Nona Qi. Apa yang kalian dapatkan?"
 
+"Rumah Gongsun Bao dua blok dari sini," kata Zhong Zhanglao. "Belum ada tanda-tanda, tapi dijaga ketat."
 
+"Kalian membawa berapa orang ke situ?"
 
+"Hanya sepuluh, tersebar di semua sudut."
+
+"Ada yang pernah mengintip di sebelah dalamnya?"
+
+"Belum. Kami tidak punya kesempatan."
+
+Yin Li bangkit dari kursinya, dan meletakkan uang untuk membayar harga minumannya, lalu berkata, "Kita ke situ sekarang. Kalian tunjukkan jalannya."
+
+Dua blok dari situ, Yin Li melihat sebuah bangunan yang sangat lebar jika dilihat dari depan. Empat orang pengawal berseragam menjaga di luar pintu 
+gerbang. Dari tempatnya berdiri, ia bisa melihat ada sebuah menara tiga lantai di dalamnya, yang dari lantai dua orang sudah bisa melihat ke 
+segala arah. Ia segera mengajak kedua pengemis itu untuk menyingkir hingga beberapa meter, lalu berbelok ke arah kiri hingga mereka tak terlihat.
+
+"Kabar itu menyebutkan soal 'gudang', apakah di dalam situ ada sebuah gudang yang cukup besar untuk menyimpan sejumlah meriam?" tanya Yin Li.
+
+"Dilihat dari luas bangunan itu, seharusnya memang ada," jawab Zhong Zhanglao. "Tapi menara tiga lantai itu menghalangi kami untuk menyelinap ke 
+dalamnya."
+
+Sebuah Yin Li muncul di benak Yin Li. Ia berkata sambil berlari ke arah kudanya, "Kalian tetap di sini seperti biasa, nanti sore aku kembali."
+
+Ia bergegas memacu kudanya menuju ke pasar, dan menemui pemilik kedai penjual kain, yang pernah ditolongnya membayar pajak. Pemilik kedai yang 
+sekarang selalu dipanggilnya Paman Zuo itu tertawa melihat kedatangannya. Ia berkata, "Junzhu, barusan ibumu memesan banyak seragam baru untuk 
+anak-anak belasan tahun. Kami memang punya persediaan untuk para pemain sirkus keliling yang sering memesan pakaian semacam itu, tapi hanya sekitar 
+lima puluh potong."
+
+"Ibu memesan pakaian semacam itu? Kapan?" tanya Yin Li heran.
+
+"Baru tadi pagi," kata Paman Zuo. "Barusan Touba Yong mengambilnya."
+
+Yin Li dalam hati merasa bahwa Ki Seung Nyang memang sudah mempersiapkan langkah yang sama sebelumnya, tetapi ia tetap masih belum memahami kaitannya 
+dengan apa yang dikatakannya tadi pagi. "Ayah bilang supaya aku mengunjungi wilayah tetangga," pikirnya. "Apa artinya itu?" Ia tidak ingin pulang ke rumah 
+saat itu, karena Bibi Liu dan teman-temannya pasti masih ada di situ. Karena itu ia langsung pergi ke rumah yang ditempati oleh anak-anak lain, 
+yang sekarang ini sedang diberi pelatihan oleh Dongfang Yuxian. Kalaupun Ki Seung Nyang menyuruh Touba Yong memesan banyak kostum sirkus, kemungkinan 
+besar semuanya akan dikirim ke rumah itu.
+
+Setibanya di situ, ternyata Dongfang Yuxian bersama-sama semua anak-anak belasan tahun lainnya memang sedang mengamat-amati beberapa kotak berisi 
+kostum-kostum bergaya Asia Tengah. Anak-anak yang lebih besar tampak sedang mencoba-coba pakaian seperti para penari perempuan, dengan bagian perut 
+dan pusar terbuka. Mereka sedang tertawa gembira, memperhatikan model pakaian itu. Sun Jiayi mengenakan pakaian untuk penari yang tampak kebesaran 
+baginya. Pakaian yang sama tampak lebih pas dikenakan oleh Zhuzhu.
+
+Yin Li melihat seorang anak perempuan yang kira-kira seusia dengan Wu Shiniang dan Murong Bing sedang mengenakan kostun yang sangat menarik ini. Ia 
+mendengar semua orang memanggil anak ini Zihua. Tampaknya busana itu memang membuatnya penampilannya sangat mengesankan. Lekuk-lekuk tubuhnya yang baru tumbuh 
+sempurna sebagai gadis remaja sempat membuat Touba Yong, Shangguan Wu, Shen Feiling dan teman-teman mereka lainnya terpesona. Zihua juga pandai menari, 
+dan ketika ia memperagakan tariannya, hampir semua teman-temannya bertepuk tangan.
+
+"Zihua, coba sekali lagi," kata Shen Feiling.
+
+Muka Zihua merona, ia berkata, "Semua anak perempuan lain juga bisa menari seperti ini. Aku justru belajar dari Sun Jiayi."
+
+"Huh, Sun Jiayi kan anak kecil," kata Shen Feiling lagi. "Kami ingin melihatmu menari."
+
+Dongfang Yuxian dan Zhuzhu mencoba menirukan gerakan Zihua, tetapi Shangguan Wu berkata sambil tertawa, "Kalian juga masih kecil. Percayalah, di sini 
+tidak ada yang bisa menandingi Ji-hwa."
+
+"Shangguan Wu, kenapa kau memanggilnya 'Ji-hwa'?" tanya Yin Li ingin tahu. Kemunculannya yang tiba-tiba itu mengejutkan mereka semua, tetapi setelah 
+melihat Yin Li tertawa senang, mereka merasa lega. 
+
+[^nama-jihwa]: Nama Zihua ditulis dalam bahasa Goryeo 임지화, yang dibaca Im Ji-hwa atau Lim Ji-hwa, tetapi bisa ditulis dalam bahasa mandarin 子花, dengan marga Ren 任 atau Lin 林. 
+
+Shangguan Wu berkata, "Junzhu, namanya memang Im Ji-hwa, dan ayahnya seorang Goryeo, tetapi ibunya orang Han.[^nama-jihwa] Bibi Qi memanggilnya Lin Zihua, 
+untuk membedakannya dari marga Chan-mi, yang menurut Bibi Qi sebaiknya dipanggil Ren Zanmei."
+
+Seorang anak perempuan lain, yang kira-kira sebaya dengan Zihua, tertawa cekikikan sambil berkata, "Bibi Qi bisa saja menemukan nama-nama ini. Kedengarannya 
+nama kami memang lebih sesuai dan masuk akal bagi kalian semua."
+
+"Kami tetap akan memanggilmu Chan-mi," kata Shen Feiling. "Nama 'Zanmei' itu rasanya agak aneh."
+
+Sekarang Yin Li mulai mengerti, tampaknya kedua orang tua Chan-mi berasal dari Goryeo, atau ayahnya seorang Goryeo, dengan pendidikan yang tidak setinggi
+ayah Im Ji-hwa, jadi ia tidak mengerti bagaimana cara menamai putri mereka dalam bahasa Han. Ki Seung Nyang hanya memberinya nama yang cukup sesuai 
+dengan bunyi nama itu sendiri dalam bahasa Goryeo, dan ternyata karakter 'Zan' itu cukup sesuai, lalu sengaja ditambahkan karakter 'Mei' yang umum 
+bagi anak perempuan, supaya bunyi yang dihasilkan cukup mirip. Diam-diam Yin Li mengakui kecerdikan Ki Seung Nyang dalam permainan kata.
+
+[^kaesong]: Songdo adalah ibukota Goryeo, yang di jaman modern adalah Kaesong. Terletak di wilayah utara Korea, di dekat perbatasan dengan Korea Selatan.
+
+Ayah Im Ji-hwa memang berasal dari Songdo, ibukota Goryeo, dan adalah seorang pejabat rendah di Songdo. Ia melarikan diri sampai ke Henan setelah 
+dituduh ingin memberontak, dan hendak dijatuhi hukuman mati. Ia bertemu dengan seorang wanita dari suku Han yang kemudian menjadi ibu Im Ji-hwa 
+di Xinxiang. Ibu Im Ji-hwa adalah putri dari seorang sastrawan, karena itu cukup terpelajar, meskipun bukan dari keluarga bangsawan atau pejabat. 
+Ketika mereka menikah, ayah Im Ji-hwa menuliskan marganya sebagai karakter Ren yang bisa dimengerti oleh suku Han, tetapi kemudian ia menyebutkan 
+bahwa nama itu juga bisa ditulis sebagai 'Lin'. Ketika Im Ji-hwa lahir, ayah dan ibunya melihat banyak sekali bunga gerdenia tumbuh di sekitar gubuk kecil 
+yang menjadi tempat tinggal mereka, lalu ayahnya mengambil nama bunga itu untuk memberinya nama. Ibunya merasa bahwa nama bunga ini dalam bahasa Han, yaitu Zihua, 
+cukup manis bagi seorang anak perempuan, jadi ia menggabungkannya menjadi Ren Zihua.
+
+[^nama-chanmi]: Nama Chan-mi (Hangul 찬미) dalam bahasa Goryeo bisa diartikan 'memuji' atau 'menyetujui', dan bahkan 'memuliakan'. Bunyi kedua karakter tersebut cukup mirip dengan Zanmei (赞美) dalam bahasa mandarin, yang punya makna sama.
+
+[^bukhansan]: Bukhansan yang dimaksud adalah sebuah wilayah di dekat Seoul di jaman modern. Nama-nama seperti Bukhansan dan Pyongyang bisa jadi membingungkan jika dihubungkan nama yang sama di dunia modern, karena di era tersebut nama yang sama bisa jadi bukan mengacu ke tempat yang sama saat ini.
+
+Sebaliknya, orang tua Im Chan-mi sebenarnya adalah pasangan suami-istri yang berasal dari sebuah desa kecil, di propinsi yang saat itu dikenal sebagai 
+Bukhansan[^bukhansan], di sebelah selatan Goryeo. Saat itu di daerah mereka sedang ada acara rutin untuk memilih orang-orang yang hendak dikirim ke 
+ibukota Dinasti Yuan, Dadu, untuk menjadi pelayan istana Dinasti Yuan. Acara itu tentu saja bukan acara favorit para penduduk desa. Ayah Im Chan-mi 
+melontarkan kata-kata pedas, yang didengar oleh salah satu perwira yang mengawal Kepala Desa mereka. Disertai protes oleh banyak penduduk lain, ayah 
+Im Chan-mi kemudian ditangkap, dan Kepala Desa itu akhirnya berpikir bahwa orang ini perlu dihukum mati, guna memberikan contoh kepada banyak orang, 
+supaya para penduduk itu untuk selanjutnya tidak berani lagi melakukan hal yang sama.
+
+Menyadari bahwa ia dan istrinya tidak dapat menghindari hukuman tersebut, diam-diam ayah Im Chan-mi nmemberi isyarat kepada para penduduk supaya 
+melarikan Im Chan-mi yang saat itu belum berusia setahun, ke rumah neneknya. Tanpa membuang waktu, nenek Im Chan-mi yang tidak melihat harapan untuk 
+bertahan hidup di Goryeo, segera membawa cucunya melarikan diri lewat laut sampai ke Shandong. Di situ mereka tinggal di sebuah kota kecil, sebelum 
+neneknya memutuskan untuk pergi ke Dadu, setelah Im Chan-mi berusia sekitar tiga tahun. Tetapi sayangnya, perjalanan ke Dadu cukup jauh, dan nenek 
+Im Chan-mi kehabisan ongkos, meskipun ia berusaha mencukupi kebutuhan sehari-hari mereka dengan menjual hasil kerajinan tangannya. Mereka kemudian 
+terjebak di antara para pengungsi dari utara yang sedang menuju ke arah barat untuk mencari daerah aman yang cukup luas untuk ditinggali, dan jauh 
+dari peperangan antara para pengikut Hongjin Qiyi dengan Dinasti Yuan. Di dalam perjalanan itu, nenek Im Chan-mi meninggal, dan akhirnya Frater Andre 
+bersama keluarga Im Jin-hwa membesarkan Im Chan-mi.
+
+Setelah mendengar cerita mereka berdua, Ki Seung Nyang sangat menghargai sikap ayah Im Chan-mi, dan juga orang tua Im Ji-hwa, yang akhirnya juga 
+meninggal di perjalanan, sebelum mereka mencapai Hanyang. Ki Seung Nyang berpendapat bahwa marga Lin, dalam bahasa Han berarti 'hutan', akan lebih 
+bermakna bagi nama Zihua, karena nama itu akan menjadi 'Hutan Bunga Gardenia'. Ia lalu mengganti marga Im Ji-hwa dalam bahasa Han menjadi Lin, dan 
+sebaliknya, ia mempertahankan marga Ren itu bagi Chan-mi. Ia kemudian memberikan nama dalam bahasa Han yang mirip dengan 'Chan-mi', yaitu Zanmei.
+
+Setelah Shen Feiling berkomentar, tiba-tiba Ki Seung Nyang muncul di belakang Yin Li, yang sangat mengejutkan Yin Li sendiri. Melihat kehadirannya, 
+Shen Feiling dan teman-temannya berhenti tertawa, dan terdiam sejenak sambil menundukkan kepala, lalu menyapa, "Bibi Qi!"
+
+"Bahasa Han mereka sangat bagus," kata Ki Seung Nyang. "Jika semua orang mendengar kalian memanggilnya 'Chan-mi', bukankah mereka akan mulai bertanya-tanya? 
+Itu tidak menguntungkan bagi kita. Muka Zanmei juga tidak bisa dibedakan dengan anak-anak perempuan di Jiangnan pada umumnya. Sedangkan Zihua, dia 
+lebih mirip para penduduk Liaodong, jadi jika semua anak perempuan bekerja dan belajar di sini sebagai pembuat pakaian, akan sangat wajar. Begitu 
+juga kalian, biarkan Shangguan Wu pura-pura menjadi anak pemilik peternakan, kalian menjual dan mengolah daging-daging hewan itu menjadi makanan."
+
+Semua anak-anak itu tertawa setelah mendengar kalimat terakhir Ki Seung Nyang. Touba Yong, Shen Feiling dan Zhong Zhihui mendahului teman-temannya 
+yang lain membungkuk dengan sikap berlebihan di hadapan Shangguan Wu sambil memanggilnya, "Gongzi."
+
+Yin Li berkata dengan muka serius, "Ma, aku ingin meminjam beberapa orang untuk membuat pertunjukan kecil di dekat rumah Gongsun Bao."
+
+"Kau ingin menyuruh mereka melakukan _apa_?" tanya Ki Seung Nyang dengan nada tajam.
+
+"Aku hanya ingin mengalihkan perhatian semua orang kepada mereka," jawab Yin Li. "Gongsun Bao punya menara tiga lantai, jadi kami tidak punya kesempatan 
+untuk melongok ke dalam melalui tembok. Aku bisa melompat ke halaman sendirian, setelah itu aku akan keluar lagi tanpa ribut-ribut."
+
+Setelah berpikir sejenak, Ki Seung Nyang berkata, "Baik, tapi tidak lebih dari sepuluh orang! Dan sebetulnya _kau_ tidak perlu melakukannya sendiri. 
+Kau bisa menyuruh salah satu anggota Kai Pang melakukannya. Aku tadi sudah bilang, kau sebetulnya bisa saja mendatangi pejabat seperti Gongsun Bao ini 
+dengan meminjam nama ayahmu. Tapi kalau kau hanya ingin memastikan bahwa mereka memang menyimpan meriam, kurasa tidak ada salahnya. Hanya saja, kalian 
+harus berhati-hati."
+
+Sekarang Yin Li baru mengerti apa yang dimaksud Ki Seung Nyang ketika berbicara di depan Bibi Liu tadi pagi. Tetapi ia tetap merasa mereka harus memastikan 
+bahwa meriam itu sungguh-sungguh ada sebelum ia beraksi di depan para pejabat ini. Ia bertanya, "Mama punya usul, mereka harus melakukan atraksi 
+semacam apa?" Ia tertawa ringan, lalu menambahkan, "Maksudku, saat ini mereka bukan sungguh-sungguh bisa membuat orang menghilang, atau semacam itu, kan?"
+
+Sebenarnya, meskipun Ki Seung Nyang belum sempat mengajarkan kungfu, tetapi ia selalu mengajar anak-anak ini melakukan tarian pedang, dengan memakai 
+formasi pedang ciptaannya sendiri, berdasarkan ilmu pedang yang diajarkan guru-gurunya. Ah Zhu atau Dongfang Yuxian juga selalu memimpin mereka berolah raga setiap 
+hari dengan menggunakan jurus-jurus Taiji ajaran Zhou Zhiruo dan Zhao Min, jadi mereka cukup siap menerima ajaran sederhana, sekedar untuk membuat 
+pertunjukan. Ki Seung Nyang lalu menyuruh Wu Shiniang dan Murong Bing bergabung dangan Lin Zihua dan Chan-mi. Ia juga mengajak Touba Yong, Shen Feiling dan 
+Zhong Zhihui ikut melengkapi formasi itu menjadi tujuh orang, lalu mulai mengajarkan tarian pedang yang cukup sederhana dan mudah diperagakan.
+
+Sekitar satu jam kemudian, kelompok kecil itu berkuda bersama Shangguan Wu menuju ke pintu gerbang selatan, dengan mengikuti Yin Li yang mendahului 
+mereka. Kira-kira rua ratus meter dari tempat kediaman Gongsun Bao, mereka mulai menarik perhatian orang-orang di jalan dengan atraksi tarian pedang 
+yang diajarkan Ki Seung Nyang. Setelah Yin Li menilai para pejalan kaki yang berkumpul untuk menyaksikan pertunjukan itu cukup menarik perhatian, 
+ia segera mengajak beberapa anggota Kai Pang mengitari tembok luar tempat kediaman Gongsun Bao menuju ke halaman belakang.
+
+Yin Li hanya membutuhkan waktu sekitar sepuluh menit untuk menemukan puluhan meriam di sebuah gudang, setelah menggunakan qinggong-nya untuk melompat 
+ke halaman melalui tembok belakang rumah. Beberapa kepala tampak sedang melongok keluar di lantai atas menara, semuanya memperhatikan atraksi Shangguan Wu 
+dan teman-temannya, dan sama sekali tidak melihat Yin Li. Ia dengan cepat menyelinap keluar lagi setelah menemukan apa yang dicarinya. Ia lalu menyuruh Zhong Zhanglao 
+memberi isyarat kepada Shangguan Wu bahwa pertunjukan itu bisa dihentikan kapan saja. 
+
+Yin Li juga memberikan instruksi singkat supaya Zhong Zhanglao menghubungi rekan-rekannya untuk mengawasi tiga wilayah tetangga terdekat yang lain, 
+dan melaporkannya begitu ditemukan ada sekelompok orang yang mencurigakan masuk ke situ. Setelah itu ia langsung memacu kudanya kembali ke rumah 
+Ki Seung Nyang.
+
+Bibi Liu kembali berkunjung ke situ untuk menagih janji Yin Li tadi pagi. 
 

@@ -57,6 +57,12 @@ Goryeo
 5. Im (Hanja 任 atau 林, Hangul 임)
    Marga ini semuanya sama saja dengan Lim atau Lin
    Mungkin menarik jika kita bikin Im Seong-hwa
+   - Im Chi-ja, nama ini berarti 'gardenia flowers' bloom. (Hangul 치자, selengkapnya 임치자), karena agak sulit menemukan Hanja yang 
+     cukup bermakna untuk nama ini, sebaiknya diterjemahkan menjadi 'Ivory', yang berarti Xiangya (​象牙).
+     Variasi lain yang tampaknya cukup menarik adalah Im Ji-hwa, yg berarti Bunga Kacapiring. (Hangul 지화) Hanja 子花 juga dibaca Zihua, 
+     yang secara literal berarti Gardenia Flower.
+   - Im Chan-mi, bermakna 'praise'. Hangul 찬미, Hanja 讚美 atau 赞美 bisa diterjemahkan 'memuji' atau 'pujian', dan dibaca Chengzan.
+     Untuk membuatnya lebih menarik, kita bisa menamai anak ini Lin Chan-mi atau Ren Zanmei (任赞美).
 6. Park Seo-yang 朴瑞陽 kita ambil namanya, dan ganti marganya menjadi Lee, atau Im
    Nama Seo-yang (Hanja 瑞阳) dibaca Rui Yang dalam bahasa mandarin
 
