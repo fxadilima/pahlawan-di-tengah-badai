@@ -625,12 +625,12 @@ Qi Furen menyiapkan mereka untuk mendukung Kaifeng, tetapi karena ada perubahan 
 
 "Bagus," kata Zhang Wuji. "Saat ini Xiangyang akan membutuhkan lebih banyak orang, karena aku sendiri akan lebih sering bepergian."
 
-Sima Han berkata, "Jiaozhu, barusan ada kabar dari Wu Zhanglao. Zhu Yuanzhang berhasil menekan Chen Youliang samppai keluar dari Jiangxi. Mereka 
-terdesak sampai ke dekat Danau Poyang."
+Sima Han berkata, "Jiaozhu, barusan ada kabar dari Wu Zhanglao. Zhu Yuanzhang berhasil menekan Chen Youliang. Mereka terdesak sampai ke Longxing, 
+di dekat Danau Poyang."
 
 "Maksudmu sekarang semuanya sudah menyingkir ke situ?" tegas Zhang Wuji.
 
-"Ada beberapa kelompok yang tersisa di Jiangxi, tetapi tidak terlalu banyak lagi."
+"Ada beberapa kelompok yang tersisa di Jiangzhou, tetapi tidak terlalu banyak lagi," jawab Sima Han. "Tetapi Xu Shouhui justru berada di Longxing."
 
 Yin Liting berkata, "Hm, Danau Poyang tidak menguntungkan bagi Zhu Yuanzhang. Chen Youliang sangat menguasai pertempuran di air!"
 
@@ -642,6 +642,418 @@ di Nanjing, karena para penduduk pasti menghindari berlayar di danau itu sekaran
 
 "Ini membuatku kuatir," kata Zhang Wuji. "Jika Chen Youliang ingin menggunakan meriam itu, maka Xu Shouhui pasti akan mencegahnya. Tapi dengan begitu 
 konflik di antara mereka pasti akan menjadi terbuka. Pada saat itu, aku kuatir Chen Youliang sudah tidak takut lagi untuk membunuhnya."
+
+"Kalau begitu kita harus segera mengirimkan surat rahasia untuk memperingatkannya," kata Bei Jinyi. "Kalian harus tahu, beberapa hari yang lalu, 
+Chen Youliang sudah mengumumkan diri sebagai Raja Han di Jiangzhou. Anak-anak menemukan kabar itu."
+
+"Sima Zhanglao, tolong tulis surat itu," kata Zhang Wuji. "Wu Zhanglao pasti punya cara untuk membaca surat rahasia, kan?"
+
+"Mereka sudah sering menerima pesan rahasia kita, kau tidak perlu memikirkannya," kata Yu Daiyan. "Yang jelas Zhou Dian harus mencoba melindungi 
+Xu Shouhui, kalau perlu dia harus memaksanya menyingkir dari situ."
+
+"Sepertinya Xu Shouhui tidak rela meninggalkan Jiangxi begitu saja," kata Yin Liting. "Saat ini dia sudah tidak punya militer yang bisa diandalkan 
+untuk melawan Chen Youliang. Jadi sebenarnya memang percuma dia ada di situ."
+
+Zhang Wuji teringat akan sesuatu. Ia bertanya, "Yu Sanbo, apakah ada perkembangan tentang Ming Yuzhen itu?"
+
+"Soal ini, kami masih menemui jalan buntu," kata Yu Daiyan.
+
+"Jika bicara tentang 'bisa diandalkan', maka Ming Yuzhen sekarang ini adalah satu-satunya andalan Xu Shouhui," kata Bei Jinyi. "Tapi sayangnya 
+kita tidak tahu seberapa banyak pasukan yang berpihak kepadanya. Kita tidak punya cara untuk membedakannya dari para prajurit Chen Youliang."
+
+Ban Shuxian berkata, "Murid-muridku sering mendengar orang-orang di Chengdu dan Chongqing menyebutkan namanya. Berarti mereka semua memang punya 
+hubungan baik dengan Ming Yuzhen, tetapi sayangnya kami tidak punya informasi lebih banyak selain itu."
+
+"Sebaliknya, aku mendengar kabar mengenai seorang panglima Dinasti Yuan di Shaanxi, yaitu Li Siqi," kata He Taichong. "Menurutku orang ini agak 
+meragukan. Kata Qi Furen, dia adalah salah satu anak didik Chaghan Temur, tetapi mereka berdua sama-sama menerima tugas untuk melawan para pemberontak 
+di sekitar Kaifeng dan Shaanxi. Bukannya mengikuti ayah mertuamu, dia ternyata memilih untuk menetap di Shaanxi."
+
+Zhang Wuji mengangguk, lalu berkata, "Aku akan mengingat masalah ini. Aku terpaksa menitipkan kedua masalah ini kepada kalian semua, dan juga markas ini. 
+Aku sendiri harus segera berangkat sendirian ke Hanyang, selain untuk menengok kedua anakku yang baru lahir, aku juga ingin berunding dengan Minmin dan Zhiruo. 
+Kemungkinan besar Minmin akan langsung kembali bersamaku ke sini."
+
+Yin Liting segera mengangguk. "Jangan kuatir, dari sini ke Hanyang cukup dekat. Kami sudah cukup terbiasa di sini, kau bisa tenang. Aku pun ingin 
+menengok kedua keponakanku itu di Hanyang, mungkin lain kali aku akan berkunjung ke situ."
+
+Zhang Wuji segera berangkat ke Hanyang setelah menitipkan beberapa pesan lain untuk pasukannya. Ia memacu kudanya secepat mungkin setelah tiba di luar 
+pintu gerbang kota Xiangyang. Ia hanya berhenti di Suizhou untuk beristirahat sejenak, dan memberi minum kudanya sambil membeli bakpao untuk dimakan 
+di jalan. Menjelang senja ia telah tiba di lingkar luar wilayah Hanyang, dan melihat bahwa daerah itu sekarang menjadi jauh lebih ramai ketimbang sebelumnya.
+Ketika mampir di sebuah kedai untuk membeli makanan ringan sambil minum teh, ia mendengar tamu-tamu di kedai itu ramai membicarakan kemajuan kota 
+Hanyang setelah dipimpin oleh Zhou Zhiruo. "Pekerjaan mereka sungguh bagus," pikir Zhang Wuji. "Hanya dalam waktu setahun mereka membuat begitu banyak 
+perubahan yang dibanggakan oleh rakyat di mana-mana."
+
+Ia cepat-cepat menghabiskan makanan dan minuman yang dipesannya, lalu bergegas pergi untuk memasuki kota. Kepada para pengawal di pintu gerbang kota, 
+ia menunjukkan tanda pengenalnya sebagai ketua Ming Jiao, lalu segera meletakkan jari telunjuknya di depan mulut sebagai isyarat supaya mereka tidak 
+bicara. Ia turun dari punggung kudanya dan berbisik, "Aku tidak ingin menarik perhatian banyak orang. Jangan katakan kedatanganku, aku bisa ke istana 
+sendiri."
+
+Sambil menuntun kudanya, Zhang Wuji berjalan-jalan sejenak mengitari kota, dan semakin mengagumi betapa bersih dan tertibnya kota itu. Begitu matahari 
+turun di ufuk barat, para penjual makanan, tempat-tempat hiburan, dan kedai-kedai, mulai menerangi kota dengan lampu mereka. Setelah berbelok ke jalan 
+menuju istana Xu Shouhui yang kini ditempati oleh Zhou Zhiruo, ternyata salah seorang anak buah Xu Da yang sedang menyamar menjadi pedagang makanan 
+keliling mengenalinya. Ia mendekati Zhang Wuji sambil berbisik, "Jiaozhu! Zaixia adalah bawahan Komandan Xu. Selamat datang di kota Hanyang."
+
+Zhang Wuji menoleh, lalu tersenyum dan berkata, "Teruskan pekerjaanmu, aku akan ke istana sendiri."
+
+Tetapi orang itu tetap meneruskan isyarat tentang kedatangan Zhang Wuji secara berantai sampai ke kepala pengawal istana, dan begitu Zhang Wuji 
+tiba di situ, mereka semua sudah berbaris rapi bersama Xu Da dan Jiang He untuk menyambutnya, sambil membungkuk hormat dan menyapa serempak, "Jiaozhu!"
+
+"Tidak perlu banyak aturan," kata Zhang Wuji dengan gembira kepada semua pengawal itu. Kemudian ia segera merangkul Xu Da dan Jiang He erat-erat, 
+sambil menepuk-nepuk bahu mereka. "Kalian sudah bekerja keras, aku bisa melihat jelas hasil jerih payah kalian!" kata Zhang Wuji. "Kenapa aku tidak 
+melihat Ba Mengtian?"
+
+"Komandan Ba sedang melatih pasukan di barak," kata Jiang He. "Junzhu membagi pasukan menjadi kelompok utara dan selatan kota. Masing-masing barak 
+juga menangani prajurit baru yang sedang magang. Saat ini semua barak di bawah komando Komandan Ba, sedangkan Komandan Xu bertindak sebagai pelaksana 
+perintah harian Junzhu."
+
+Zhang Wuji menganggukkan kepalanya tanda mengerti. "Bagus!" katanya. "Jiang He, tolong kabarkan kepada Komandan Ba, dalam dua jam setelah ini, 
+aku akan hadir di barak selatan untuk mengadakan rapat bersama semua komandan pasukan. Komandan Xu juga harus hadir, kau tetap di sini untuk mewakili 
+tugasnya sementara kami rapat."
+
+Xu Da mengiringinya memasuki istana setelah Jiang He pergi. Ia berkata, "Jiaozhu, selamat atas kelahiran sepasang anak kembar yang pemberani!"
+
+Zhang Wuji tertawa sambil berkata, "Anakku lahir dalam situasi menegangkan. Kita sungguh tidak punya banyak waktu, karena besok pagi-pagi sekali aku 
+harus kembali ke Xiangyang. Setelah ini aku ingin mengunjungi tempat penampungan pengungsi itu, sekedar untuk menyapa mereka."
+
+Mereka telah tiba di depan ruang kerja Zhou Zhiruo, dan berpapasan dengan Lingshan yang sedang membawa beberapa hidangan ringan sebelum makan malam. 
+
+"Jiaozhu!" sapa Lingshan dan tiga orang temannya, sambil memberi hormat. Ia segera mengetuk pintu, dan dibukakan oleh Shuang'er.
+
+Begitu melihat kehadiran Zhang Wuji, Shuang'er berseru kegirangan, dan buru-buru mengajak teman-temannya memberi hormat. Ternyata mereka semua 
+memang sedang menunggu kedatangannya, karena dengan cepat berita itu sudah sampai ke istana melalui anak buah Xu Da. Zhou Zhiruo baru selesai menyusui 
+Ziying, dan tampak berseri-seri di belakang meja kerjanya. Jing'er segera menggendong Ziying yang masih memegang kerah jubah ibunya, lalu berdiri 
+di sisi Zhao Min yang sedang menggendong Zihan sambil tersenyum lebar.
+
+Zhang Wuji segera memeluk Zhou Zhiruo erat-erat, lalu mencium keningnya, dan berkata, "Zhang Wuji menyapa dan mengucapkan selamat kepada Zhou Xiangzhang."
+
+Zhou Zhiruo memukul dadanya sambil membelalakkan matanya yang indah. "Sudah jadi ayah, masih juga bercanda!" katanya. "Kau tidak malu dilihat semua 
+anak ini?"
+
+Jing'er mendekati Zhao Min, lalu menyandingkan Ziying yang sedang digendongnya ke sisi Zihan, sambil berkata, "Jiaozhu, coba lihat betapa lucunya 
+mereka berdua."
+
+Kedua bayi itu memang sedang menatap ke arah Zhang Wuji, dan ketika ayah mereka mendekat, keduanya meletakkan telapak tangan di pipi kiri-kanan 
+sang ayah. Sepintas lalu kedua bayi itu tampak mirip dengan ayah dan ibunya, tetapi ketika memperhatikan mata mereka, Zhang Wuji segera teringat 
+akan Yin Li. Ia kemudian menggendong Zihan, dan menyerahkannya kepada Shuang'er sambil berkata, "Sebaiknya kita tidak menyia-nyiakan waktu, karena 
+situasi di Kaifeng membuatku semakin tegang." Ia menyuruh semua orang mengambil tempat duduk, sementara Zhou Zhiruo tetap duduk di tempatnya.
+
+Ia melanjutkan, "Minmei, kulihat situasi di kota ini sudah terkendali. Menurutmu, apakah cukup aman jika saat ini kau sendiri pergi ke Kaifeng 
+dan menggantikan posisi Zhu'er?"
+
+"Bagaimana aku bisa menggantikan posisinya, bukankah Kaisar sendiri yang mengangkatnya menjadi Kepala Wilayah?" kata Zhao Min.
+
+"Awalnya memang begitu," kata Zhang Wuji. "Tetapi sekarang situasi berubah. Bibi Qi akan mengajak Zhu'er ke istana, dan memang hanya kau yang bisa 
+menggantikan posisinya sebagai Kepala Wilayah. Saat ini pada dasarnya Zhu'er sudah menguasai keempat wilayah tetangga, karena empat pejabat itu 
+tidak berani membantah ayahmu."
+
+Zhao Min berkata, "Tapi yang mereka kenal sebagai Kepala Wilayah tetap adalah Zhu'er — bukan aku. Bagaimana jika mereka tidak mau mendengarkan perintahku?"
+
+"Kau tetap bisa mengatakan bahwa Shaoli Junzhu sedang menghadap Kaisar di Dadu," kata Zhang Wuji lagi. "Sekali lagi, yang mereka pandang sebenarnya 
+adalah ayahmu. Jadi di mata mereka, hampir tidak ada bedanya, Zhu'er atau kau yang tampil di situ."
+
+Zhao Min agak heran. "Jika nantinya Liu Futong memasuki Kaifeng, bukankah akan lebih baik kalau Zhu'er yang menghadapinya? Bagi Liu Futong, aku terang-terangan 
+adalah seorang Mongolia, sedangkan Zhu'er — pada saat itu dia bisa mengatakan siapa dia sebenarnya."
+
+"Di sini memang sangat riskan," kata Zhang Wuji. "Sama seperti Xu Shouhui, Liu Futong juga tidak ingin mendengarkan nasihat kita. Bahkan kemungkinan 
+dia lebih keras kepala. Han Lin'er sudah terlanjur mengikuti ajaran untuk membenci orang-orang Mongolia, jadi dia juga tidak bisa kita harapkan. 
+Satu-satunya cara adalah langsung menunjukkan tanda perintahku sebagai ketua Ming Jiao, karena baik Han Shantong maupun Liu Futong adalah anggota Ming Jiao. 
+Katakan bahwa _aku_ melarang mereka mengganggu para penduduk kota yang manapun juga — termasuk warga dari golongan Mongolia."
+
+Zhou Zhiruo berkata, "Aku punya firasat, mereka tidak akan mendengarkan laranganmu." Ia masih ingat bagaimana cara Han Lin'er memaki-maki penduduk 
+yang memberikan dukungan kepada Kaisar Toghon Temur. Ia tidak pernah bertmu dengan Liu Futong, tetapi jika mendengar cerita banyak orang, ia segera 
+menyimpulkan bahwa sikap Han Lin'er itu sedikit banyak pasti datang dari ajaran Liu Futong dan para jajarannya, termasuk Han Shantong sendiri, yang memanfaatkan 
+fenomena batu yang ditemukannya di sungai sebagai bahan untuk membangkitkan semangat anti-Mongolia. "Kurasa satu-satunya cara adalah memanfaatkan 
+jasa teman-teman Bibi Qi di Kaifeng, yang saat ini sudah sepenuhnya mendukung Yin Li."
+
+Zhao Min menggelengkan kepalanya. "Hukum Dinasti Yuan yang berat sebelah, dan sangat merugikan suku Han, pasti tetap menjadi ganjalan bagi kita," katanya. 
+Hukum itu memang tidak mungkin diubah, _kecuali_ jika kau saat ini juga mengambil posisi sebagai Kaisar, dan menetapkan hukum baru."
+
+"Sebenarnya hal itulah yang ingin dilakukan oleh Liu Futong dan Han Lin'er," kata Zhang Wuji. "Sayangnya aku tidak bisa tahu apa tepatnya yang 
+ada di benak mereka. Aku takut mereka akan mengeksekusi banyak suku lain di luar suku Han, yang sebetulnya tidak bersalah."
+
+"Kita tetap boleh mencobanya," kata Zhou Zhiruo. "Kalau kita perhatikan, selama ini Bibi Qi dan Yin Li sudah berusaha keras memperjuangkan keadilan 
+bagi warga Kaifeng dari suku Han, meskipun hukum itu sendiri tidak berubah. Jika perubahan yang dibuat Liu Futong _ternyata_ menimbulkan kekacauan 
+antar-etnis, bukankah rakyat di situ juga akan menolak mereka?"
+
+"Dan jika Liu Futong mengambil sikap seperti Xu Shouhui — mengabaikan semua anjuranku?" tanya Zhao Min.
+
+"Maka kita akan lepas tangan," kata Zhou Zhiruo.
+
+"Selanjutnya apa yang akan terjadi?" tanya Zhang Wuji.
+
+"Reaksi rakyat sulit ditebak," kata Zhao Min sambil berpikir-pikir. "Tapi reaksi dari Dadu sudah jelas — Kaisar akan terpaksa menuruti Bolad Temur, 
+dan menyuruh ayah menyerang Kaifeng, untuk menyingkirkan Liu Futong dan Han Lin'er. Jika itu terjadi, kau ingin kita diam saja?"
+
+Yang terbayang di benak Zhang Wuji adalah perang. Ia berkata lambat-lambat, "Melihat perangai Liu Futong, perang memang sulit dihindarkan. Tapi 
+untuk mengurangi penderitaan rakyat, hal pertama yang _harus_ kau lakukan, setelah tiba di Kaifeng, adalah menyita semua meriam, yang saat ini diketahui
+Zhu'er berada di tangan Gongsun Bao — salah satu Kepala Wilayah tetangga. Persenjataan itu sudah jelas dikirim dari Dadu, atas perintah Bolad Temur. 
+Aku sendiri sudah mengalihkan Zhu Yuanzhang dari urusan Kaifeng, jadi untuk sementara boleh kita anggap aman dari sisi Nanjing."
+
+"Huh," dengus Zhao Min. "Aku tidak mempercayai Zhu Yuanzhang. Kau yakin dia tidak akan mengirimkan meriam ke Kaifeng?"
+
+Zhou Zhiruo berkata, "Aku juga tidak mempercayainya, tapi aku tahu Ma Xiuying pasti akan memberi kabar kepada kita jika ada meriam dikirim ke 
+Bozhou secara diam-diam."
+
+Tetapi Zhang Wuji berkata dengan yakin, "Untuk hal ini, kalian boleh tenang. Zhu Yuanzhang hanya akan berkonsentrasi pada tugasnya menaklukkan 
+Jiangxi dan Fujian. Itu bukan pekerjaan gampang, kelihatannya Chen Youliang saat ini kalah, tapi dia justru menempati posisi yang lebih baik jika 
+diserang, karena Danau Poyang itu sudah jelas lebih menguntungkan dirinya."
+
+Setelah mendengar keterangannya, akhirnya Zhao Min dan Zhou Zhiruo juga berpendapat masalah meriam dari pihak mereka bisa diatasi. Zhao Min berkata, 
+"Baiklah, kurasa aku bisa berangkat bersamamu. Aku harus meninggalkan Xu Da di sini. Jika kau ingin menarik pulang Chang Yuchun, sebaiknya aku memanggil 
+Xu Da di saat terakhir, setelah Chang Yuchun sendiri berangkat dari Kaifeng. Untuk ini sebaiknya kau menaikkan pangkat Xu Da menjadi panglima, untuk 
+menggantikan posisiku setelah aku berangkat. Kita tetap harus mewaspadai langkah Chen Youliang, jika dia berusaha mundur ke sini, Xu Da bisa 
+menghadapinya."
+
+"Kau benar," kata Zhang Wuji. "Jing'er, tolong panggil Komandan Xu!"
+
+Karena Xu Da sedang mengobrol dengan Fei'er di luar pintu ruang kerja Zhou Zhiruo, maka tak lama kemudian Jing'er sudah kembali bersama kedua orang itu.
+
+"Xu Da, terima perintah!" kata Zhang Wuji dengan muka serius.
+
+Xu Da segera berlutut sambil meletakkan tangan di dada, lalu diam mendengarkan dengan penuh perhatian.
+
+"Malam ini juga aku mengangkatmu menjadi panglima di Hanyang. Shaomin Junzhu harus menunaikan tugas ke tempat lain, jadi tugas utamamu adalah 
+menggantikan posisinya sebagai panglima militer!" lanjut Zhang Wuji.
+
+Xu Da membenturkan dahinya di lantai, lalu berkata dengan muka serius, "Xu Da akan melaksanakan tugas dari Jiaozhu dengan taruhan nyawa!"
+
+Zhao Min menyerahkan tanda perintah sebagai panglima kepada Xu Da, lalu berkata, "Hati-hati dengan wilayah timur. Bukan tidak mungkin Chen Youliang 
+akan berusaha masuk kembali ke sini."
+
+"Siap!" kata Xu Da.
+
+"Xu Dage," tambah Zhao Min dengan nada lebih ramah. "Siapkan Ba Mengtian untuk mewakili tugasmu, karena sewaktu-waktu aku bisa menarikmu ke tempat 
+lain untuk melakukan tugas yang berbahaya, dalam hal ini aku tidak mempercayai orang lain selain kau!"
+
+"Siap!" kata Xu Da lagi. Tetapi mendengar nada bicara Zhao Min, ia tahu bahwa sekarang atasannya lebih santai. Ia tersenyum lebar sambil bertanya, 
+"Aku memang tidak bisa menggantikan tugasmu menjadi penasihat Zhou Xiangzhang, tapi aku tetap akan berusaha."
+
+"Kau bisa menangani semua urusan militer," kata Zhou Zhiruo sambil tertawa. "Anakku sudah lahir. Meskipun aku belum sepenuhnya pulih, tapi aku sekarang 
+bisa mengurus lebih banyak tugas dibanding sebelumnya. Aku bukan perempuan lemah, kalian jangan meremehkanku."
+
+Fei'er berkata, "Kalau mau, saat ini juga Zhou Xiangzhang bisa mematahkan kakimu dengan tangan kosong!"
+
+Zhou Zhiruo hanya tersenyum, lalu berkata, "Fei'er, bagaimana kalau kalian menikah sekarang juga? Saat ini boleh dibilang kita sudah menguasai 
+Kaifeng, meskipun posisi kita belum cukup kokoh di situ."
+
+"Sayangnya Fei'er belum ingin menikah," kata Xu Da. "Kemarin aku mabuk, dan dia menyuruh orang menyeretku keluar tenda."
+
+Semua orang tertawa mendengar gurauannya. Fei'er bertanya, "Ada satu hal yang tidak kumengerti. Mengapa semua orang di Haozhou mengira kau alergi daging 
+angsa, padahal kulihat kau sering makan daging angsa di sini?"
+
+"Aku pernah mengatakan begitu," jawab Xu Da. "Maksudku supaya Panglima Besar kita itu mengirimiku daging lain yang lebih mahal. Akhirnya setiap kali 
+aku ingin makan daging angsa, aku harus berburu sendiri."
+
+Lingshan berkata, "Panglima Xu, kau sedang beruntung, kami memasak daging angsa untuk makan malam. Jiaozhu, apakah makan malam bisa dibawa ke ruangan ini?"
+
+"Boleh juga," kata Zhang Wuji. Ia mengajak semua orang bekerja sama untuk mengatur ruangan itu menjadi ruang makan yang nyaman. "Kalian semua juga 
+ikut makan bersama di sini. Lingshan, jangan lupa membagikan makanan istimewa untuk keluarga Chen Youliang."
+
+"Baik, Jiaozhu," jawab Lingshan, sambil mengajak teman-temannya mengambil makanan dari dapur.
+
+Setelah makan malam, Zhang Wuji mengajak Xu Da dan Zhao Min ke barak militer yang ditempati Ba Mengtian. Di situ ia mengumumkan kenaikan pangkat Xu Da, 
+dan sekaligus rencana keberangkatan Zhao Min ke Kaifeng.
+
+"Saat ini kita sedang menghadapi konflik di dua tempat, yaitu Jiangxi dan Kaifeng," kata Zhang Wuji. "Jiangxi sudah ditangani oleh Panglima Zhu, 
+dan kurasa urusannya tidak akan bisa diselesaikan dalam waktu dekat. Sedangkan Kaifeng, untuk saat ini sebenarnya kita sudah menguasai semua wilayah, 
+akan tetapi Kekaisaran Song yang baru ternyata tetap ingin mendudukinya dengan cara mereka sendiri. Jika kita bersikap menantang mereka, maka yang 
+terjadi selanjutnya lagi-lagi adalah perang, padahal aku sudah mengatakan supaya semua pihak mencari jalan damai, karena perang hanya akan menyengsarakan 
+rakyat. Akhirnya kita memutuskan untuk membiarkan mereka berkuasa di situ, meskipun kita tetap akan mengawasi langkah-langkah mereka. Kita akan berusaha 
+untuk bekerja sama, tetapi jika kebijakan mereka kuanggap terlalu menyimpang dari apa yang sudah kugariskan, maka kita akan mundur secara bertahap 
+dari Kaifeng."
+
+Ia berhenti sejenak untuk memperhatikan ekpresi muka para komandan pasukan yang ada di hadapannya, sebelum melanjutkan, "Mencari jalan tengah yang damai 
+sama sekali tidak gampang. Urusan ini melibatkan pihak Dinasti Yuan, kita sendiri, lalu Kekaisaran Song yang baru itu sendiri. Selain itu masih ada 
+lebih banyak pihak yang sampai sekarang ini mengambil sikap diam, tapi aku tahu mereka sebenarnya ingin melibatkan diri. Karena itulah, aku hari ini 
+mengutus Shaomin Junzhu, yang adalah panglima kalian, untuk pergi ke Kaifeng, dan menangani peralihan kekuasaan itu. Selama Junzhu pergi, tugasnya akan 
+digantikan oleh Panglima Xu, jadi kalian semua harus mendengarkan perintahnya. Aku ingin supaya semua orang bisa bekerja sama, mendukung Walikota Zhou 
+dalam menjalankan tugasnya."
+
+Selama ini, karisma dan kecerdikan Zhao Min membuat kota administratif itu aman dan tentram. Kehadiran sepuluh ribu pasukan dari Xiangyang sejak 
+pertama kalinya Zhou Zhiruo ditunjuk untuk mengelola kota Hanyang membuat semua pihak yang ingin menyerang mereka harus berpikir ribuan kali, dan 
+akhirnya membatalkan niatnya. Sekarang Zhao Min harus pergi untuk mengurus tugas lain, beberapa komandan merasa agak tegang. Mereka tahu Xu Da adalah 
+seorang militer yang tangguh, hal ini sudah dibuktikannya ketika menangkap orang-orang Chen Youliang yang dikirim ke Hanyang untuk membawa keluar 
+keluarganya. Tetapi Xu Da tidak memiliki karisma seperti Zhao Min, yang hanya dengan kehadirannya saja telah menarik simpati warga kota dari semua 
+kalangan. 
+
+Ba Mengtian bertanya, "Kapan Junzhu akan kembali ke sini?"
+
+"Sayangnya aku sendiri belum bisa memperkirakan berapa lama Junzhu akan berada di Kaifeng," kata Zhang Wuji. "Tapi aku bisa berjanji, paling lama 
+empat bulan, aku akan menarik Junzhu keluar dari situ."
+
+Ba Mengtian adalah komandan pasukan yang dikirim oleh Wang Baobao dari Henan. Sebelumnya, ia pernah berhadapan dengan Xu Da sebagai musuh di medan perang. 
+Hanya karena kehadiran Zhao Min dan Zhang Wuji, ia dan Xu Da bisa bekerja sama dengan baik di kota ini. Sejauh ini sikap Xu Da memang bersahabat terhadap 
+para prajuritnya, tetapi sekarang Zhao Min akan meninggalkan Hanyang, sedangkan Zhou Zhiruo sama sekali tidak mengerti urusan militer. Ba Mengtian bisa 
+merasakan ketegangan beberapa pemimpin regu yang berada di bawah komandonya.
+
+"Ba Mengtian, selama kau bekerja menurut garis kebijakan Zhou Xiangzhang dan Panglima Xu, maka aku bisa menjamin tidak akan terjadi kekacauan di kota ini," 
+kata Zhao Min, yang menebak jalan pikirannya. "Prinsipnya adalah kita harus selalu memperjuangkan keadilan bagi rakyat, karena hal itu memang tidak 
+bisa tercapai dengan mengandalkan hukum Dinasti Yuan, yang secara berat sebelah meringankan warga dari suku Mongolia, dan memberatkan suku Han. 
+Hal inilah yang kulakukan di Henan, dan akhirnya juga kulakukan di Hanyang ini. Hal yang sama juga selalu menjadi pemikiran Jiaozhu dan Zhou Xiangzhang, 
+dan akhirnya Panglima Xu. Masalah yang kita hadapi di Hanyang termasuk sangat ringan, jika dibandingkan dengan apa yang ada di Henan. Selama ini 
+mereka juga melakukan hal yang sama di Kaifeng, tetapi karena Shaoli Junzhu harus menghadap Kaisar di Dadu, maka kami kuatir beberapa pejabat di situ 
+akan mulai mengacaukan rencana kita, karena itulah aku harus datang ke Kaifeng. Aku ingin kalian semua benar-benar memahami apa yang sedang kami usahakan 
+di semua tempat ini. Karena sekali kalian memahaminya, maka selanjutnya tidak menjadi masalah lagi di mana kalian akan ditempatkan, atau dengan siapa 
+kalian diharuskan bekerja sama."
+
+Karena Zhao Min sudah menyinggung masalah yang sensitif, akhirnya Zhang Wuji berkata, "Kalian sudah melihat sendiri, selama kita bisa menjamin keamanan 
+dan keadilan bagi rakyat jelata, tak peduli dari suku manapun mereka berasal, maka tak seorang pun akan berontak, karena pada dasarnya rakyat tidak 
+menginginkan perang. Para pengungsi dari utara yang ada di sini, tak sedikit dari mereka berasal dari suku-suku lain di luar suku Han, bahkan 
+ada di antaranya berasal dari Goryeo, atau Asia Barat. Kulihat mereka akhirnya mendapatkan keadilan dan keamanan di kota ini, maka kita harus menjadikan 
+kehidupan kita di sini sebagai contoh bagi wilayah lain di Zhongyuan. Kekaisaran Song yang baru ingin menggantikan hukum Dinasti Yuan dengan hukum yang 
+mereka tetapkan sendiri. Tetapi sejauh ini mereka baru menerapkannya di wilayah selatan, dan sekarang mereka ingin melangkah ke Kaifeng. Aku kuatir 
+banyak pihak tidak bisa menerima begitu saja kebijakan mereka, dan hal itu akhirnya akan dimanfaatkan orang lain sebagai alasan untuk kembali menindas 
+warga dari suku Han, dan berperang melawan mereka. Bukankah yang akhirnya paling menderita adalah rakyat jelata? Warga dari suku Han jelas adalah 
+rakyat jelata, tetapi warga biasa dari suku Mongolia _juga_ adalah rakyat, begitu juga mereka yang berasal dari Goryeo atau tempat lain. Di Kaifeng, 
+situasinya tidak sama dengan di Hanyang ini. Karena sebelumnya Junzhu sudah berpengalaman mengatasi masalah di wilayahnya sendiri, di bagian barat 
+propinsi Henan, maka kita bisa berharap Junzhu akan bisa mengatasi masalah yang akan terjadi di Kaifeng. Untuk mendukungnya, kalian harus mempertahankan 
+apa yang saat ini sudah kita capai dengan susah payah di kota ini."
+
+Dari pembicaraan pribadi, Xu Da tahu bahwa ibu Ba Mengtian adalah seorang wanita Mongolia. Jadi ia kemudian berkata sambil menepuk bahu Ba Mengtian, 
+"Saudara-saudara, aku memang seorang Han, tetapi sejauh ini aku dan Komandan Ba bisa bekerja sama untuk mengamankan wilayah kita. Cita-citaku adalah 
+Jiaozhu akhirnya akan mengambil alih kepemimpinan negara ini, dan merumuskan hukum yang baru. Tetapi untuk itu, saat ini, kita harus mengamankan Kaifeng, 
+dan mempertahankan keadilan, dan kedamaian, bagi semua orang di kota ini. Sebelum ini kita sudah menyingkirkan pengacau yang ingin merusak kota. 
+Dan kita akan melakukannya lagi, seandainya mereka ingin kembali ke sini. Xu Da akan mempertaruhkan nyawa, dan berjuang bersama kalian!" Ia kemudian mengulurkan 
+tangannya sambil bangkit berdiri dan memandang semua komandan yang menjadi bawahannya.
+
+Mendengar kata-kata Xu Da, semua komandan itu satu persatu menumpangkan tangan mereka di atas tangan Xu Da, dan mengucapkan ikrar untuk berjuang bersamanya.
+
+Zhang Wuji dan Zhao Min akhirnya bisa bernafas lega. Mereka kemudian mengambil guci arak dan mengajak semua orang minum bersama.
+
+Setelah itu, Zhang Wuji menghabiskan sisa waktu untuk berkumpul bersama keluarganya di istana. 
+
+Pagi-pagi sekali ia sudah berangkat kembali ke Xiangyang bersama Zhao Min. Tetapi setelah keluar dari Hanyang, akhirnya Zhao Min memutuskan 
+untuk mengambil jalan pintas menuju ke Kaifeng, ia berpisah dengan Zhang Wuji di Xiaogan, lalu memasuki Henan melalui Xinyang setelah menyeberangi Sungai Huai. 
+
+Di Xinyang, Zhao Min menyempatkan diri berjalan kaki keliling kota, dan tidak menemukan keributan antar etnis di situ. Dengan gembira ia kemudian 
+meneruskan perjalanan setelah beristirahat sekitar empat jam di sebuah penginapan. Di tengah perjalanan menuju ke Xuchang, ia sempat tergoda untuk 
+berbelok ke arah Nanyang, dan menyapa ayahnya, tetapi kemudian ia memutuskan untuk secepat mungkin sampai di Kaifeng, dan kembali memacu kudanya 
+ke arah utara. Sekitar empat jam kemudian, ia sudah tiba di Xuchang. Ketika memasuki pintu gerbang kota, matanya segera melihat dua sosok pria berpakaian 
+hitam dan putih, yang sudah sangat dikenalnya. Pria berbaju putih itu sedang celingukan memandangi wanita-wanita muda yang sedang lewat di jalan.
+
+Ia menegur mereka dengan santai, "Xuanming Er Lao, apa yang kalian lakukan di sini?"
+
+Kedua pria itu memang adalah Lu Zhangke dan He Biweng. Mereka segera menoleh, dan tampak kaget melihat Zhao Min. Lu Zhangke kemudian tertawa konyol, 
+seperti orang yang tertangkap basah ketika melakukan sesuatu yang tidak seharusnya dilakukannya, dan balas bertanya, "Junzhu, apa yang _kau_ lakukan di sini?"
+
+"Itu bukan urusanmu," kata Zhao Min dengan ketus. "Kalian sedang bersama Xiao Wangye atau ayahku — atau jangan-jangan Bolad Temur?"
+
+"Xiao Wangye menyuruh kami menemui Wangye," kata He Biweng. "Sebenarnya kami memang sedang menunggu Junzhu di sini."
+
+Zhao Min tak pernah mempercayai kedua orang ini. Bukan seperti Delapan Panah Dewa, atau Ah Da dan kedua saudaranya, atau bahkan Fan Yao yang kemudian 
+mengkhianatinya, Lu Zhangke dan He Biweng tidak pernah sungguh-sungguh menghormatinya, dan menganggapnya tak lebih dari anak kecil. Ia bertanya dengan 
+nada datar, "Berarti kalian tahu saat ini Wangye ada di mana?"
+
+Lu Zhangke merendahkan suaranya ketika menjawab, "Junzhu, kami memang sedang menuju ke Nanyang untuk menemui Wangye. Saat ini Wangye terus didesak 
+untuk memasuki Kaifeng, karena para penduduk di beberapa daerah melawan petugas pajak."
+
+"Aku sudah mendengar masalah itu," kata Zhao Min. "Tapi sekarang seharusnya sudah beres, kecuali ada pihak yang sengaja ingin memancing keributan. 
+Jika kalian tahu ayah ada di mana, mengapa masih tidak segera menghilang dari sini? Katakan kepada ayah, aku akan segera menemui Jiejie!"
+
+Kalimat terakhir itu agak membingungkan bagi Lu Zhangke dan He Biweng. Mereka tahu, Zhao Min punya beberapa orang saudara laki-laki dan perempuan, 
+yang dilahirkan oleh ibu-ibu yang berbeda, karena itu mereka semua tidak saling akur. Bagaimana sekarang Zhao Min bisa mengatakan bahwa ia akan 
+menemui salah seorang kakak perempuannya? Akhirnya, Lu Zhangke, yang rajin mengamati setiap selir baru Chaghan Temur, berkata sambil tertawa, 
+"Jiejie? Oh, mungkin yang Junzhu maksud adalah adik yang baru dilahirkan di Suzhou itu. Wangye sangat menyayanginya, dan memberinya nama Min, eh... 
+aku lupa siapa nama lengkapnya..."
+
+Zhao Min memotongnya dengan kesal, "Lu Xiansheng, sejak kapan kau mulai bawel? Pokoknya katakan saja seperti itu!"
+
+"Baik, baik," kata Lu Zhangke, sambil memutar kudanya ke arah selatan, dan mengajak He Biweng segera pergi dari situ.
+
+Diam-diam Zhao Min merasa geli. Satu-satunya saudara yang pantas dipanggil 'Jiejie' baginya adalah adik perempuan Wang Baobao, yang bernama 
+Minlie. Saat ini usianya memang kurang lebih sama dengan Yin Li, tetapi ia berasal dari keluarga Wang, dan tentu saja hanya keponakan ayahnya. 
+Kata-kata Lu Zhangke tadi cukup menarik baginya. Tampaknya sekarang ia punya seorang adik perempuan yang baru dilahirkan di Suzhou, dan ayahnya 
+memberikan nama yang mengandung karakter 'Min', seperti namanya. "Sepertinya ayah sangat merindukanku," pikirnya. Ia tiba-tiba ingin mengunjungi 
+adik barunya ini, tetapi kemudian ia teringat akan tugasnya pergi ke Kaifeng. "Kalau aku harus perhi ke Hangzhou, aku pasti akan mencari mereka," 
+pikirnya, sambil melompat kembali ke punggung kuda merahnya. Ia segera keluar dari pintu utara Xuchang, dan membiarkan kudanya berlari secepat yang 
+diinginkannya. Kuda merah itu sangat gembira, ia meluncur secepat anak panah selama dua jam, lalu memperlambat langkahnya ketika melihat mata air 
+jernih di pinggir jalan. Di situ Zhao Min berhenti sejenak, supaya kuda itu bisa minum dan beristirahat. Setelah mencuci mukanya yang berdebu, Zhao Min 
+mengelus-elus leher kudanya sambil memperhatikan sekelilingnya.
+
+Saat itu mereka sudah berada sekitar lima atau enam puluh _li_ dari pintu gerbang selatan kota Kaifeng. Ia tidak ingin terburu-buru menemui Gongsun Bao, 
+yang menurut keterangan Zhang Wuji memiliki sejumlah meriam di gudangnya. Anehnya, mengapa mereka mengirimkan senjata berat itu ke wilayah selatan 
+Kaifeng? Bukankah akan jauh lebih aman mencari sebuah wilayah yang berada di dekat pintu gerbang utara kota, karena meriam-meriam itu dikirim dari 
+utara? Kaifeng boleh dikatakan sebagai kota yang 'tak pernah mati'. Kota itu tetap ramai sepanjang hari. Jika ada sejumlah prajurit, atau sekelompok 
+orang mengawal peralatan sebanyak itu melintasi kota, pasti akan menarik perhatian. 
+
+Tiba-tiba sebuah kecurigaan muncul di benaknya. "Mungkinkah meriam-meriam itu sebetulnya berasal dari wilayah selatan?" pikirnya. Bolad Temur 
+memang memiliki sejumlah besar sekutu di wilayah selatan, tetapi orang-orang ini sampai sekarang tidak terlalu menonjol. Zhao Min menyimpan kemungkinan 
+ini di dalam hati, dan bergegas menaiki kudanya untuk meneruskan perjalanan dengan santai ke arah Kaifeng.
+
+[^dapho]: Dapho adalah jubah pendek, yang populer di era menjelang akhir Dinasti Yuan. Yang dikenakan Zhao Min saat itu adalah model yang baru dikenal setelah Ki Seung Nyang berkuasa sebagai permaisuri Dinasti Yuan. Jubah luar semacam ini juga banyak dipakai di Goryeo.
+
+Zhao Min sangat memperhatikan gaya berbusana. Ia sengaja mengenakan jubah pendek, yang di masa itu dikenal sebagai Dapho[^dapho], tetapi telah 
+diubahnya dengan memakai aksesori di pergelangan tangan, yang membuat penampilannya tampak seperti seorang pendekar wanita. Ia juga memakai ikat kepala 
+berhiaskan pernak-pernik, yang umum dipakai oleh seorang wanita Mongolia. Sebuah busur besar dan seperangkat anak panah tergantung di belakang punggungnya. 
+Sepatu bot berwarna hitam melengkapi dandanannya sebagai seorang pemburu. Melihat penampilannya, para penjaga pintu gerbang kota tak ada yang merasa perlu 
+menanyakan identitasnya, dan membiarkannya lewat begitu saja.
+
+Ketika melewati pasar di pusat kota, ia menanyakan di mana Shaoli Junzhu tinggal, kepada seorang penjual makanan ringan. Tetapi ketika penjual 
+makanan itu sedang sibuk menerangkan jalan ke arah rumah Ki Seung Nyang, Touba Yong yang sedang membawa segerobak bahan makanan bersama tiga orang 
+anak perempuan menyapanya, "Junzhu!"
+
+Tiga orang anak perempuan itu ternyata adalah Sun Jiayi, Dongfang Yuxian dan Murong Bing. Ketiganya bersorak kegirangan melihat Zhao Min. Sun Jiayi 
+memeluk Zhao Min dengan manja. Dongfang Yuxian dan Murong Bing sejak awal adalah murid-murid kesayangan Zhao Min dan Zhou Zhiruo. Touba Yong dan 
+Sun Jiayi adalah dua anak pertama yang paling menarik perhatian Zhao Min sejak melihat mereka di tempat penampungan pengungsi.
+
+Zhao Min mengangkat Sun Jiayi, dan mendudukkan anak itu di atas punggung kuda merahnya. Kuda Ferghana itu sama sekali tidak berontak, karena tahu bahwa 
+majikannya ada di dekat situ, dan sedang memegang tali kekangnya. mereka berlima berjalan santai sambil mengobrol, menuju ke rumah yang disewa Ki Seung Nyang. 
+Rumah itu akhirnya dibeli, karena Ki Seung Nyang sudah memutuskan bahwa tempat itu punya posisi terbaik sebagai tempat berkumpul bagi teman-teman 
+akrabnya di pasar.
+
+"Hm, baiklah," kata Zhao Min setelah mendengar cerita mereka mengenai sepak terjang Yin Li. "Sebaiknya di sini kalian memanggilku Xiao Junzhu, karena ada dua orang Junzhu. 
+Dan jangan pernah mengatakan apa-apa mengenai Jiaozhu. Aku tidak tahu bagaimana sikap teman-teman Bibi Qi tentang Ming Jiao."
+
+Touba Yong bertanya, "Betulkah Frater membaptis anak-anak Zhou Xiangzhang?"
+
+"Ya," kata Zhao Min sambil tersenyum. "Mereka berdua lahir di Tahun Baru. Waktu itu semua orang begitu gembira, dan Zhou Xiangzhang meminta 
+Frater kalian membaptis mereka."
+
+Saat itu mereka sudah sampai di luar pagar rumah. Touba Yong mendorong gerobaknya mendekati pintu dapur, dan mulai menurunkan bahan-bahan makanan 
+yang tadi dibelinya. Zhao Min berkata sambil tertawa, "Aku ingin makan kari daging kambing untuk makan siang!"
+
+"Wuah! Kami akan sangat sibuk, ada sembilan orang wanita bawel yang semuanya doyan makan di ruang tamu," kata Murong Bing.
+
+"Tepatnya sepuluh," kata Zhao Min. "Ditambah dengan Bibi Qi."
+
+Dongfang Yuxian mengantarnya ke ruang tamu untuk menemui Ki Seung Nyang. Selain sepulu orang wanita setengah baya itu, ternyata Yin Li juga 
+ada di ruangan itu. Zhao Min sudah lama tidak melihat Yin Li, sejak mereka berpisah di dekat Shaolin. Dalam pandangannya, Yin Li sekarang tampak 
+jauh lebih berbahagia, dan lebih dewasa. Ia juga lebih cantik, meskipun bekas-bekas luka di wajahnya tampak jelas, dan cukup mengganggu penampilannya. 
+Tetapi jelas sekali dari sikapnya, bahwa Yin Li sendiri tidak merasa terganggu oleh bekas-bekas luka itu. Mengingat persaingan cinta di antara 
+mereka, Zhao Min merasa tidak pasti bagaimana seharusnya bersikap. Ia juga tidak tahu bagaimana harus menyapa Ki Seung Nyang di hadapan begitu 
+banyak tamu, dan akhirnya memilih sebutan pertama yang paling masuk akal di benaknya. Ia menyapa, "Bibi Qi!"
+
+Ia merasa mata semua tamu sedang mengamatinya dengan penuh selidik, tetapi Ki Seung Nyang segera berkata, "Cepat sekali kau tiba di sini dari Hanyang."
+
+Dengan jawaban itu, Zhao Min segera menyimpulkan bahwa Ki Seung Nyang tidak bermaksud menyembunyikan identitasnya terlalu rapat di hadapan orang-orang 
+ini, jadi ia berkata dengan bebas, "Aku menemukan seekor kuda Ferghana dalam perjalanan ke Xiangyang. Kuda itu memang sangat cepat."
+
+Yin Li memeluknya sambil berbisik, "Ikuti saja sikapku." Lalu ia berkata kepada semua orang lain, "Ini adikku, Shaomin Junzhu." Dan kembali berpaling 
+kepada Zhao Min sambil menunjuk ke arah Bibi Liu, "Minmin, kau harus mencicipi kue-kue buatan Bibi Liu ini. Sama sekali tidak kalah dengan buatan 
+Zhou Zhiruo."
+
+Bibi Liu tampak agak bangga mendengar pujian itu, meskipun ia tidak pernah mendengar nama Zhou Zhiruo, karena di kalangan rakyat biasa Zhou Zhiruo 
+memang tidak terlalu dikenal. Hanya jika nama itu disebutkan di antara para pendekar dunia persilatan, banyak orang akan langsung mengenalnya sebagai 
+murid kesayangan Miejue Shitai. Bibi Liu berkata sambil mengamati kedua wanita muda di hadapannya, "Kalian berdua sama sekali tidak mirip."
+
+"Nah, nah," kata Yin Li, pura-pura tersinggung. "Aku tahu, aku memang jelek, adikku cantik. Jadi memang tidak mirip sama sekali. Lagipula, ibunya 
+juga bukan ibuku."
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
