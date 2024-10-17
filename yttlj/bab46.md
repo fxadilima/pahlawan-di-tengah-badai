@@ -1032,12 +1032,18 @@ kepada Zhao Min sambil menunjuk ke arah Bibi Liu, "Minmin, kau harus mencicipi k
 Zhou Zhiruo."
 
 Bibi Liu tampak agak bangga mendengar pujian itu, meskipun ia tidak pernah mendengar nama Zhou Zhiruo, karena di kalangan rakyat biasa Zhou Zhiruo 
-memang tidak terlalu dikenal. Hanya jika nama itu disebutkan di antara para pendekar dunia persilatan, banyak orang akan langsung mengenalnya sebagai 
+memang tidak terlalu dikenal. Hanya jika nama itu disebutkan di antara para pendekar dunia persilatan, banyak orang akan langsung mengenalinya sebagai 
 murid kesayangan Miejue Shitai. Bibi Liu berkata sambil mengamati kedua wanita muda di hadapannya, "Kalian berdua sama sekali tidak mirip."
 
 "Nah, nah," kata Yin Li, pura-pura tersinggung. "Aku tahu, aku memang jelek, adikku cantik. Jadi memang tidak mirip sama sekali. Lagipula, ibunya 
 juga bukan ibuku."
 
+Zhao Min merangkulnya sambil tertawa. "Jiejie, Bibi Liu ini tidak mengatakan aku cantik. Dia hanya bilang kita berbeda, mungkin maksudnya aku 
+terlihat seperti laki-laki."
+
+Ucapannya segera membuat semua orang tertawa. Berdiri di samping Zhao Min, sosok Yin Li yang ramping memang tampak jauh lebih feminin, bahkan 
+terkesan lebih cantik, jika orang tidak memperhatikan bekas-bekas luka di wajahnya. Zhao Min sekitar sepuluh sentimeter lebih tinggi, dan jauh lebih 
+atletis. Otot-otot lengannya tampak jelas di balik pakaian yang dikenakannya saat itu.
 
 
 
