@@ -1,6 +1,6 @@
 # Bab 46
 
-![Ilustrasi Bab 46](/assets/images/rebels-2.jpg "Serbuan ke Kaifeng")
+![Ilustrasi Bab 46](/assets/images/kaifeng-2.jpg "Kesibukan di Kaifeng")
 
 Zhou Zhiruo sudah membaca surat dari Ma Xiuying, yang dibawa oleh Fei'er, dan sebelumnya juga sudah dibaca oleh Zhao Min. 
 Sambil tersenyum senang, ia menyuruh Lingshan menyiapkan lebih banyak makanan, yang dimaksudkan untuk diberikan kepada Xu Da. Karena ia masih merasa mual 
@@ -1045,16 +1045,279 @@ Ucapannya segera membuat semua orang tertawa. Berdiri di samping Zhao Min, sosok
 terkesan lebih cantik, jika orang tidak memperhatikan bekas-bekas luka di wajahnya. Zhao Min sekitar sepuluh sentimeter lebih tinggi, dan jauh lebih 
 atletis. Otot-otot lengannya tampak jelas di balik pakaian yang dikenakannya saat itu.
 
+"Minmin," kata Ki Seung Nyang dengan sikap serius. "Apa rencanamu di sini?"
 
+Otak Zhao Min berputar cepat. Ia tahu Ki Seung Nyang sengaja ingin membocorkan beberapa informasi sekedar untuk menenangkan semua orang di sini, 
+dan itu juga punya efek yang akan tersebar ke semua penduduk kota melalui mereka. Ia berusaha mengukur kata-katanya, dan menjawab dengan hati-hati, 
+"Aku menerima perintah yang berkaitan dengan meriam. Ini hal pertama yang harus kulakukan di sini."
 
+Seperti perkiraannya, suasana langsung berubah hening, karena semua wanita itu sibuk dengan pikiran masing-masing. Ki Seung Nyang bertanya lagi, "Apa 
+tepatnya yang akan kau lakukan?"
 
+"Aku harus menyita semuanya," jawab Zhao Min dengan tenang.
 
+"Bagaimana jika mereka melawan?" tanya Ying Furen.
 
+Ki Seung Nyang segera memberi isyarat supaya mereka semua tenang. Ia berkata, "Ayah mereka pasti sudah memperhitungkan hal ini."
 
+Zhao Min mengeluarkan catatan kecil dari dalam sakunya, lalu berkata sambil menyodorkan kertas itu kepada Ki Seung Nyang, "Bibi Qi, kami sudah menyelidiki 
+nama-nama ini, dan aku yakin kita pasti bisa mengendalikan mereka. Tapi..." Ia menyodorkan catatan lain, yang berisi daftar lebih panjang, lalu 
+melanjutkan, "Tapi nama-nama yang ini adalah mereka yang bekerja di bawah komando Kepala Wilayah yang namanya kuberikan tadi. Justru merekalah 
+yang berbahaya, aku tidak yakin kita akan bisa mengendalikan semuanya."
 
+Ki Seung Nyang dan Yin Li meneliti kedua catatan itu dengan kening berkerut. Mereka menemukan nama Gongsun Bao ada di dalam daftar pertama, dan 
+Torebeg di daftar yang kedua. 
 
+Yin Li berkata sambil menunjuk nama Torebeg, "Hm, orang ini secara rutin memang mengirim para petugas yang menagih lebih dari daerahnya, tapi aku tahu 
+pasti sebenarnya jumlah mereka lebih banyak dari yang dikirim. Saat ini kita tidak bisa melakukan 'sapu bersih', karena ayah melarangku melakukannya."
 
+"Mengapa?" tanya Zhao Min heran. Selama ini ayahnya tidak pernah melarangnya melakukan tindakan keras kepada para pelanggar hukum, asalkan ia bisa 
+menunjukkan bukti-bukti tindakan itu.
 
+"Aku juga tidak mengerti," kata Yin Li. "Tapi melihat semua catatanmu ini, kita bisa menyimpulkan bahwa semua pelanggaran itu memang sengaja dibiarkan. 
+Kepala Wilayah yang lain itu semuanya hanya alat bagi musuh-musuh kita di majelis, dan bawahan mereka justru adalah bahaya yang sebenarnya. Jika terjadi masalah 
+besar, maka orang-orang seperti Gongsun Bao yang akan dikirim ke pengadilan. Ini persis seperti ketika aku mengambil alih posisi Fang Diande. Akhirnya 
+Fang Diande masuk penjara, tapi bukankah Torebeg kubiarkan bekerja di situ? Dengan cara ini, lama kelamaan orang akan berpikir bahwa aku juga tetap 
+menerapkan hukum yang tidak seimbang, dan membela orang-orang Mongolia seperti Torebeg. Karena itu akhirnya aku membiarkan Gongsun Bao tetap bekerja 
+di posisinya, begitu juga yang lain, asalkan mereka mengikuti perintahku."
+
+Sampai di sini, pembicaraan mereka mulai membingungkan bagi semua warga biasa seperti Bibi Liu dan kawan-kawannya. Meskipun begitu, Ying Furen yang 
+mengikuti pembicaraan mereka dengan tekun, tetap bertanya dengan penuh rasa ingin tahu, "Kalau begitu, mengapa tidak diringkus saja orang-orang 
+seperti Torebeg itu?"
+
+Yin Li berkata, "Bibi Ying, tidak segampang itu. Coba bayangkan, di bawah Torebeg masih ada jajaran lain, dan di bawah semua itu, masih ada jajaran lain lagi, 
+sebelum akhirnya kita sampai pada pelaku yang sebenarnya. Jika kita terus terpaku pada masalah itu, lalu bagaimana dengan tugas besar kita? Dan jika menyingkirkan 
+semua orang yang seperti Torebeg, berarti kita harus siap juga untuk mengganti semua orang yang menjadi bawahannya. Jika semua ini sengaja dilakukan 
+untuk mengganggu urusan besar kita, maka berarti kita akan masuk ke dalam jebakan mereka. Ini persis sama seperti ketika aku mengganti semua orang yang bekerja 
+di rumah dinas Fang Diande, ternyata kemudian aku menemukan ada mata-mata yang baru masuk ke situ, dan mereka bisa menyamar sebagai pelayan, tukang kebun, 
+prajurit, atau siapa saja."
+
+Ki Seung Nyang berkata, "Ying Furen, kalian semua tidak perlu gelisah. Yang perlu kalian ketahui hanyalah, apakah saat ini pajak yang ditagih kepada 
+kalian masih tetap sama, atau sudah berbeda? Dan apakah kalian merasa diperlakukan lebih adil ketimbang sebelumnya? Selebihnya, serahkan kepada anak-anak ini. 
+Jika masih ada keluhan dari warga, segera laporkan."
+
+"Dalam hal ini Bibi Qi benar," kata Zhao Min. "Memang itu tugas kami, yaitu mengupayakan keadilan bagi semua orang."
+
+Bibi Liu berkata, "Soal meriam itu, kapan kau akan bertindak? Sebenarnya sudah lama kami merasa gelisah mendengarnya."
+
+Zhao Min berpaling kepada Ki Seung Nyang, lalu berkata, "Soal ini kuminta semua orang bersikap tenang. Kami memang akan bertindak, tapi sebelumnya 
+aku harus minta kepada Bibi Qi supaya menyingkir dari sini. Dan juga — kuharap Bibi Qi juga memberitahu ibuku, dan semua wanita lain, karena mereka 
+semua hanya wanita biasa yang tidak mengerti politik, dan juga ilmu silat. Dan ada banyak hal yang sebaiknya kalian semua tidak perlu tahu, karena 
+bagi kalian akan lebih aman begitu."
+
+Ki Seung Nyang memahami isyarat Zhao Min. Ia berkata, "Soal ibumu, kau tidak perlu kuatir. Aku pasti akan mengamankan mereka semua, dan aku sendiri 
+juga akan menyingkir dari sini secepatnya." Ia menoleh kepada teman-temannya. "Sebaiknya kalian semua jangan mencariku. Juga jangan menanyakan keberadaanku 
+kepada anak-anak ini. Aku justru berharap kalian masih bisa memberikan masukan yang berharga bagi mereka, tapi jangan terlalu sering datang, atau tempat 
+ini akan dicurigai."
+
+Bibi Liu agak terkejut. Ia bertanya, "Saosao, kau mau kemana?"
+
+Ki Seung Nyang mendecakkan lidahnya dengan tidak sabar, lalu berkata, "Sudah kubilang — jangan tanya! Ini demi keselamatan kalian sendiri, dan juga 
+aku, dan semua orang lain itu."
+
+Bibi Liu masih ingin bertanya, tetapi Zhao Min segera berkata, "Ah Yi, percayalah, sebaiknya jangan bertanya. Aku dan Jiejie pun tidak ingin tahu. 
+Nanti, setelah keadaan aman, Bibi Qi pasti akan menghubungi kita, dan saat itu kita bisa menceritakan semuanya dengan bebas. Di sini, dan sekarang juga, 
+aku harus mengatakan bahwa setelah ini bisa dipastikan akan terjadi serangkaian peristiwa mengejutkan, tapi selama kalian semua mengikuti nasihat kami, 
+maka kami bisa menjamin — tidak akan terjadi apa-apa kepada kalian."
+
+Ki Seung Nyang berkata, "Minmin, kau membuat semua orang takut."
+
+Saat itu semua wanita itu memang tampak cemas. Mereka ingin bertanya, tetapi tidak tahu apa yang harus ditanyakan. Akhirnya Yn Li memandang 
+Ki Seung Nyang untuk minta persetujuan. Setelah Ki Seung Nyang mengangguk, ia berkata, "Kalian semua beberapa bulan yang lalu tentu sudah mendengar, 
+bahwa pihak Han Lin'er dan Liu Futong, yang sekarang menamakan diri Dinasti Song yang baru, punya rencana untuk menyerang Kaifeng. Langkah ini 
+mereka pandang perlu, karena sebelumnya Kaifeng adalah ibukota Dinasti Song. Kami semua sudah menyelidiki berita itu, dan ternyata memang benar."
+
+Istri pemilik penginapan tempat Ki Seung Nyang menginap beberapa bulan yang lalu tampak gugup. Ia bertanya, "Jadi memang akan ada perang?"
+
+[^laoban-niang]: Lao Ban (老板) = bos. Karena itu, istri seorang bos biasa dipanggil Laoban Niang (老板娘).
+
+Ki Seung Nyang tersenyum tenang dan berkata, "Laoban Niang[^laoban-niang], jangan kuatir. Aku sudah bilang, ikuti saja nasihat anak-anakku ini, 
+maka kalian akan aman, apapun juga yang akan terjadi."
+
+"Bibi," kata Zhao Min. "Jika semuanya sesuai dengan rencana kami, maka _tidak akan ada perang_. Karena mereka akan dibiarkan berkuasa di sini, asalkan 
+mereka bertindak adil kepada rakyat jelata — kepada semua kalangan, tak peduli dari suku apapun mereka berasal. Yang perlu kita lakukan hanyalah 
+mengganti bendera sebagai tanda bahwa kita tidak melawan mereka."
+
+Salah seorang teman Bibi Liu, istri dari seorang pemilik kedai yang menjual makanan khas Mongolia bertanya dengan cemas, "Bagaimana dengan kedai kami?"
+
+Ki Seung Nyang berkata, "Jika selama ini kalian takut kepada para pelanggan yang menyuruh kalian mengusir pelanggan lain dari suku Han, pada saat 
+itu bukan hanya kalian tidak perlu takut lagi, tapi kalian justru _harus_ membuka pintu selebar-lebarnya bagi para warga suku Han yang ingin makan di situ. 
+Jika kalian mengikuti nasihatku, maka kami bisa menjamin bahwa kalian akan aman, dan kedai kalian pun tidak akan diganggu."
+
+"Bukankah pihak Dinasti Yuan pasti akan bereaksi keras setelah mendengar hal ini?" tanya Ying Furen. "Bagaimana jika terjadi perang?"
+
+Yin Li berkata, "Bibi Ying, ini memang bagian yang paling sulit. Karena orang-orang yang saat ini merasa berkuasa, seperti Torebeg, pasti tidak akan 
+rela tunduk kepada Liu Futong dan Han Lin'er. Dan sebaliknya juga sama, orang semacam Liu Futong dan Han Lin'er sangat membenci penguasa semacam 
+Torebeg. Tapi kami akan berusaha meyakinkan para pejabat keturunan Mongolia itu untuk bekerja sama, demi keamanan dan kedamaian semua pihak. Jika 
+mereka tidak mau menurut, maka kami juga tidak bisa berbuat apa-apa lagi."
+
+Dalam hal ini semua orang merasa sangat pesimis. Bibi Liu berkata, "Berani taruhan, mereka pasti tidak akan mau tunduk."
+
+"Ah Li, kau hanya menceritakan sebagian kecil yang kau ketahui, tentu saja Bibi Liu tidak yakin," kata Ki Seung Nyang. lalu ia menoleh kepada 
+Zhao Min sambil berkata, "Minmin, beritahu mereka, siapa suamimu!"
+
+Zhao Min tidak segera menjawab. Ia tidak mengerti mengapa Ki Seung Nyang mengatakan semua itu, tetapi karena saat ini sudah tidak mungkin lagi 
+menyembunyikan segala hal tentang mereka, maka ia hanya tersenyum.
+
+Di lain pihak, Bibi Liu dan kawann-kawannya sejak tadi telah mendengar bahwa Zhao Min baru tiba dari Hanyang. Jika nama kota itu tidak disebutkan, 
+maka tak seorang pun akan menduga siapa Zhao Min sebenarnya, tetapi setelah mendengar nama kota Hanyang, Ying Furen yang sangat teliti langsung 
+menghubungkannya dengan berita tentang Zhou Zhiruo, yang telah lama beredar. Dari situ, ia kemudian teringat akan nama Shaomin Junzhu, yang adalah 
+panglima militer di kota itu. Setelah lama memikirkannya sendiri, semua cerita sebelumnya tentang Yin Li dan Ki Seung Nyang menjadi semakin masuk akal 
+baginya. Jadi inilah Shaomin Junzhu dari Henan, yang diusir ayahnya karena mencintai seorang pemberontak muda, ketua Ming Jiao, yang bernama Zhang Wuji.
+
+Setelah melihat Zhao Min hanya tersenyum, dan tidak mengatakan apa-apa tentang suaminya, Ying Furen menjadi makin pasti dengan kesimpulannya. Mula-mula 
+ia merasa terkejut, karena tidak menyangka di balik urusan yang kelihatannya sederhana, hanya kebetulan bertemu dengan Yin Li dan Ki Seung Nyang di pasar, 
+ternyata ada cerita yang begitu rumit dan menarik. Setelah mendengar ucapan Zhao Min lebih jauh, ia bisa menyimpulkan bahwa saat ini hubungan Zhao Min dengan 
+ayahnya telah pulih. Dan bukan hanya itu, tampaknya sang ayah malah berbalik mendukung Zhang Wuji.
+
+Sebagai pengamat politik yang baik, Ying Furen sudah lama mendengar tentang kedatangan Zhang Wuji di Xiangyang, dan kemudian kemajuan yang dicapai 
+kota Hanyang, lalu betapa rakyat di kedua tempat itu sangat mencintai pemimpin mereka. Mendengar perkembangan di kedua kota itu, ia lalu mulai 
+berpikir, "Mengapa mereka tidak juga datang berkunjung ke Kaifeng ini?"
+
+Setelah itu, pikiran lain datang, "Hei, bukankah Shaoli Junzhu dan ibunya _memang_ sudah hadir di sini sejak lama? Dengan begitu, keluarga mereka 
+sebenarnya memang sangat memperhatikan rakyat di Zhongyuan ini." Lalu tiba-tiba ia teringat cerita penduduk Henan di kawasan lain, yang pernah 
+menceritakan tentang cara-cara Zhao Min memberantas penindasan di wilayahnya sendiri. Ia berpikir, "Keluarga ini sungguh adalah keluarga yang baik. 
+Alangkah beruntungnya kita semua, jika salah satu dari mereka — terutama sekali Zhang Wuji — bisa menjadi pemimpin bagi semua orang."
+
+Karena Zhao Min tidak juga menanggapi ucapan Ki Seung Nyang, semua pikiran itu mulai berkembang menjadi desakan bagi Ying Furen, dan ia tidak bisa 
+menahan diri lagi. Ia bertanya dengan halus, "Junzhu, bukankah suamimu _sebenarnya_ bisa saja mengambil alih Kaifeng, dan tidak perlu lagi memberi 
+jalan kepada orang lain?"
+
+[^kong]: Kong (空) dalam bahasa mandarin berarti 'Kosong'.
+
+Zhao Min agak terkejut. Ia menyadari bahwa Ying Furen sudah tahu siapa dirinya, dan siapa Zhang Wuji. Ia berpikir sejenak, lalu berkata, "Bibi Ying, 
+mula-mula aku sendiri, dan juga Zhou Jiejie, tidak bisa memahami jalan pikirannya. Kami juga berpikir sama seperti Bibi Ying. Tetapi kemudian aku 
+bertemu dengan kakek guru suamiku. Zhang Zhenren menyuruhku merenungkan sepatah kata — Kong[^kong] — seumur hidupku. Ini pun mula-mula aku sama sekali 
+tidak memahaminya. Berikutnya kami semua tiba di Xiangyang, dan aku melihat begitu banyak anak-anak, para penduduk kota tua dan muda, semuanya 
+menaruh harapan kepada suamiku. Lebih aneh lagi, banyak orang ternyata mengirimkan sumbangan kepada kami untuk mendukung perjuangan suamiku dan 
+Ming Jiao. Padahal suamiku sedang berusaha keras memperbaiki ajaran Ming Jiao yang oleh banyak orang dinilai sesat dan salah. Semuanya itu menimbulkan 
+beban yang sangat berat bagi kami. Sebelum kami menyadari apa yang terjadi, aku dan Zhou Jiejie harus pergi ke Hanyang, dan di situ baru saja timbul 
+pemberontakan oleh Ni Wenjun melawan Xu Shouhui, yang adalah Kaisar mereka. Lebih mengejutkan lagi, akhirnya kami berdua bahkan diangkat menjadi 
+pemimpin kota itu. Xu Shouhui sendiri akhirya menyerahkan istananya kepada kami. Selain itu, Kaisar secara resmi mengangkat Zhou Jiejie menjadi 
+Walikota Hanyang, dan aku sendiri harus mendukugnya dari sisi militer, untuk mengamankan kota. Di kota itu kami bertemu dengan lebih dari seratus ribu orang 
+pengungsi dari utara, yang kehidupannya sangat menyedihkan. Mereka sangat berharap, bahwa dengan salah satu cara kami akan bisa menolong. Padahal kalau 
+dipikir-pikir, kami bertiga hanya orang biasa yang sebetulnya tidak mengerti apa-apa. Aku mungkin belajar tentang politik dan mengelola kota dari ayah, 
+tapi aku masih terlalu muda, dan kesalahanku banyak sekali. Aku akhirnya bahkan diusir oleh ayah karena mencintai seorang Zhang Wuji. Zhou Jiejie 
+sendiri juga sama, ia ditentang oleh banyak orang karena mencintai Zhang Wuji. Untuk itu, dia harus melawan kehendak gurunya sendiri, yang membesarkannya 
+sejak kecil. Dan bagaimana dengan Zhang Wuji? Bagi kami berdua Zhang Wuji sebenarnya hanya seorang plin-plan yang tidak juga bisa memutuskan siapa 
+yang paling dicintainya. Kalau bisa dia juga tidak ingin menjadi ketua Ming Jiao, tetapi saat itu Ming Jiao dalam bahaya. Enam perguruan arus utama di Wulin 
+serempak menyerang mereka. Zhang Wuji membela mereka hanya dengan mengandalkan kungfunya, yang saat itu masih tidak seberapa."
+
+Ia berhenti sejenak untuk menarik nafas, dan melihat bahwa semua orang sekarang dengan penuh perhatian mendengarkan ceritanya. Ia melanjutkan, 
+"Akhirnya, suatu hari aku menyadari bahwa justru karena kami semua tidak memiliki beban atau ambisi apa-apa, maka semua orang begitu berharap 
+kepada kami, dan kami bisa mengerjakan segala sesuatu dengan bebas untuk mewujudkan harapan mereka. Ini ternyata persis sama seperti yang diterangkan 
+oleh Tai Shifu — kakek guru suamiku — jika bagian tengah mangkuk tidak _kosong_, maka mangkuk itu tidak akan bisa dipakai untuk menampung air, atau 
+apapun juga yang ingin diletakkan di situ. Maka aku mulai menyadari, mengapa suamiku tidak ingin menjadi Raja atau Kaisar, seperti semua orang lain itu. 
+Karena jika dia melakukannya, pada saat itu dia tidak lagi kosong, maka apa gunanya lagi seorang Zhang Wuji?"
+
+Ia kembali menarik nafas panjang, sebelum berkata, "Bibi Ying, coba kita perhatikan wilayah selatan negeri ini. Di situ ada dua orang yang sudah 
+mengumumkan diri sebagai Kaisar. Yang seorang adalah Han Shantong — sekarang sudah meninggal, dan digantikan oleh anaknya, Han Lin'er — dan yang seorang 
+lagi adalah Xu Shouhui. Keduanya punya penasihat masing-masing, dan salah satu penasihat ini adalah mantan pejabat Dinasti Yuan, yang akhirnya 
+membelot ke kubu pemberontak. Yang seorang lagi ternyata sama dengan Han Shantong dan Xu Shouhui, yaitu seorang pengikut setia ajaran Ming Jiao. 
+Sumber ajaran itu kami kenal dengan baik, yaitu Biksu Peng Yingyu, yang sekarang sudah tewas. Kami lalu berpikir, mengapa kedua kubu ini tidak mau 
+bersatu? Dan sebenarnya tindakan mengangkat orang menjadi kaisar itu sendiri juga bertentangan dengan aturan yang diumumkan oleh suamiku. Selain mereka 
+berdua, masih ada satu kubu lagi yang juga cukup besar, yaitu Zhang Shicheng, yang berkuasa di pantai timur. Dia juga adalah pengikut Hongjin Qiyi. 
+Tetapi mereka semua sampai sekarang tidak mau bersatu. Mengapa?"
+
+Zhao Min memperhatikan wajah semua pendengarnya satu persatu, tetapi tak seorang pun menjawab pertanyaan itu. Kemudian ia kembali melanjutkan, 
+"Suamiku menerbitkan sejumlah peraturan sebagai syarat yang harus ditaati sebelum menerima jabatan sebagai Ketua Ming Jiao, dan pada saat itu 
+mereka semua setuju. Tetapi dalam kehidupan nyata, terutama sekali tentang aturan 'tidak boleh saling berkelahi di antara saudara', 
+mereka selalu melanggarnya. Sebelum aku dan Zhou Jiejie menikah dengan Zhang Wuji, kami sempat mendengar tentang peristiwa masuknya Chen Youliang 
+ke kubu Xu Shouhui. Saat itu Zhou Jiejie tidak ingin mencampuri urusan Ming Jiao, karena kami berdua wanita. Tetapi aku sempat mendengar bahwa 
+Biksu Peng Yingyu telah diutus untuk memperingatkan Xu Shouhui mengenai Chen Youliang. Dan ternyata, Xu Shouhui memilih untuk tidak mendengarkan 
+nasihatnya." Ia mendesah, lalu berkata lagi, "Belakangan ini, suamiku juga sempat mengirimkan anjuran secara tidak langsung, supaya Liu Futong 
+membatalkan niatnya menyerang Kaifeng, dan lebih memperhatikan Chen Youliang yang terus mencoba untuk menduduki tahta Xu Shouhui. Tetapi lagi-lagi 
+pendapatnya tidak didengarkan." Ia berpaling kepada Ying Furen, sebelum bertanya, "Bibi Ying, jika suamiku bersikeras supaya Liu Futong atau 
+Han Lin'er menuruti perintahnya, bukankah dia akan menjadi sama seperti mereka? Dengan begitu dia juga akan ikut berperang seperti yang lain, dan 
+menyebabkan rakyat lebih menderita. Aku lalu teringat akan wajah-wajah para pengungsi di Hanyang itu. Mereka semua membuatku terharu, dan aku tidak 
+ingin merusak harapan mereka. Karena itu aku dan Zhou Jiejie tidak lagi mau memaksa suamiku menjadi kaisar, seperti orang-orang lain itu."
+
+Ki Seung Nyang menghela nafas panjang dan berkata, "Minmin, aku tentu saja memahami maksudmu. Aku juga menghargai sikap suamimu. Zhang Wuji barangkali 
+adalah makhluk aneh yang hanya dilahirkan sekali dalam sepuluh ribu tahun. Tapi kau tentu menyadari, di dunia ini semua wilayah membutuhkan pemimpin, 
+dan dia sendiri saat ini juga sudah menjadi pemimpin Ming Jiao. Jika sebuah wilayah dibiarkan kosong, maka — kalian pasti tahu — yang akan berkuasa 
+di situ adalah para penjahat. Bukankah dengan begitu rakyat juga akan tetap tertindas? Dan dengan menolak menjadi pemimpin, bukankah suamimu bahkan 
+menjadi jauh lebih jahat ketimbang semua orang lain itu?"
+
+Saat ini bukan hanya Ying Furen, semua wanita lain yang ada di situ sudah sepenuhnya menyadari siapa sebenarnya Zhao Min, dan apa hubungannya dengan 
+Chaghan Temur dan Zhang Wuji. Mereka saling berbisik-bisik untuk berunding di antara mereka sendiri. Lalu Bibi Liu berkata mewakili yang lain, 
+"Saosao, kau benar. Kami juga berpendapat bahwa Zhang Wuji adalah orang baik yang jarang ada di dunia ini. Sayangnya dia tidak berambisi untuk 
+menjadi kaisar negeri ini. Padahal kami semua justru mengharapkan Zhang Wuji mau memimpin Zhongyuan, dan menyudahi segala masalah ini dengan cara 
+yang bijaksana. Kami tidak menginginkan perang. Zhang Wuji mendamaikan banyak orang tanpa perang."
+
+Ki Seung Nyang berkata, "Dasao, dan juga kalian semua, kuharap kalian bisa mengerti. Kaifeng ini tidak sama seperti Xiangyang atau Hanyang. Mereka bertiga bisa 
+melakukannya tanpa kekerasan adalah karena kedua kota itu ditinggalkan pemimpinnya, atau pemimpinnya sedang tidak tahu harus berbuat apa. Di Kaifeng 
+ini tidak pernah kosong. Yang ada adalah pemimpin dan hukum brengsek yang menyesakkan dada kita semua. Untuk memperbaiki keadaan, Ah Li harus 
+memaksa mereka tunduk. Itu pun hanya bisa dilakukan dengan memakai nama ayahnya, dan dengan dukungan Kaisar sendiri. Jadi untuk Kaifeng, atau bahkan 
+yang lebih besar lagi — Henan — memang tidak ada cara lain, kita harus memakai kekerasan."
+
+Yin Li berkata, "Sebenarnya kami memang sudah memikirkan cara untuk mengatasi masalah kita di Kaifeng tanpa perang. Tapi ini akan membutuhkan 
+bantuan dari bibi-bibi semua, kalian sungguh-sungguh harus mematuhi perintah kami — atau akan terjadi banyak korban. Kita akan memakai tipuan 
+untuk mengusir pihak yang ingin bikin kerusuhan di kota ini."
+
+Ying Furen dan kawan-kawannya langsung menatapnya dengan penuh perhatian. "Katakan saja, apa yang bisa kami bantu?"
+
+"Seperti yang dikatakan Minmin tadi, kita akan membiarkan pihak Liu Futong masuk," kata Yin Li. "Kami yakin mereka tidak punya meriam yang bisa 
+digunakan di sini, dan kita hanya akan mengatakan bahwa kota ini sudah berhasil ditaklukkan, karena kita akan membawa prajurit dari selatan 
+ke sini. Sebenarnya itu prajurit dari Hanyang atau Xiangyang. Aku dan ibu akan menyingkir dari sini, lalu Minmin akan tampil sebagai panglima 
+dari pihak selatan. Kami juga akan mengirim seorang panglima yang mereka kenal, karena sebelumnya dia adalah komandan pasukan Zhu Yuanzhang 
+di Haozhou. Jika kalian mengikuti nasihat kami, maka kalian tidak akan melawan siapapun juga yang akan datang ke situ, dan rakyat pasti tidak akan 
+diganggu. Demikian juga semua pejabat yang akan kami beri peringatan keras. Jika mereka menurut, maka posisi mereka akan aman." Ia berhenti sejenak, 
+menunggu reaksi para pendengarnya. Setelah beberapa saat, dan tak seorang pun bicara, ia melanjutkan, "Sampai di sini, kalian pasti akan mengatakan 
+aku kejam, atau licik, tapi ini memang diperlukan."
+
+"Apa yang akan kalian lakukan?" tanya Ying Furen.
+
+"Kami akan membiarkan Liu Futong dan pasukannya membereskan orang-orang semacam Torebeg — yang memang mengotori kota kita," kata Yin Li dengan 
+tenang dan dingin. "Jika aku dan Minmin sudah menjelaskan semuanya, tapi mereka tidak mau mendengar nasihat, maka bukan salah kami jika selanjutnya 
+mereka celaka." Ia tertawa, lalu melanjutkan, "Sekali lagi, ini semua akan membuat kalian terpaksa sedikit bekerja. Kami yakin, Liu Futong pasti 
+akan melakukan sesuatu yang akan membuat Majelis Agung Dinasti Yuan marah. Jika itu terjadi, maka ayah pasti akan ditekan untuk sungguh-sungguh 
+menyerang Kaifeng."
+
+"Dan kali ini ayahmu akan melaksanakannya?" tanya Bibi Liu dengan wajah tegang.
+
+"Betul," sambung Zhao Min, meneruskan pemikiran Yin Li, yang sebetulnya adalah usul Ki Seung Nyang, yang disempurnakan oleh Zhang Wuji. "Tapi 
+tidak juga. Tepatnya _kita_ akan membuatnya tampak seperti itu. Karena itu sejak tadi aku bilang bahwa semua ini membutuhkan kerja sama kalian. 
+Kita akan membiarkan ayah 'menyerang' Kaifeng, bahkan serangan itu harus tampak sangat besar, membuat kerusakan yang cukup besar. Ayah akan menyerang 
+dengan meriam, dan mereka tidak akan mampu membalasnya, karena _kita_ sudah menyita semua meriam yang ada di sini. Inilah sebabnya tugas itu mutlak 
+harus kulakukan. Aku pasti akan memaksa Gongsun Bao menyerahkan meriam itu. Yang akan diserang oleh meriam ayah adalah Kantor Kepala Wilayah kita, 
+yang saat itu pasti akan kita kosongkan sebelumnya, jadi tidak akan ada korban. Saat itu, Xu Da — panglima kiriman kami dari Hanyang — akan harus 
+mengajak Liu Futong, Han Lin'er, dan semua jajaran mereka untuk melarikan diri keluar kota. Dengan demikian, ayah akan menduduki Kaifeng, yang  
+bagi orang-orang di majelis akan berarti ayah sudah melaksanakan tugasnya. Di pihak lain, kita berhasil mengamankan Kaifeng, sedangkan Liu Futong 
+dan Han Lin'er hanya akan kembali ke wilayah mereka sendiri."
+
+"Lalu _apa_ yang harus kami lakukan untuk membantu kalian?" tanya Bibi Liu lagi.
+
+"Kalian harus membantu kami menyebarkan isu-isu palsu, dan juga berusaha menyingkirkan para penduduk kota dari semua tempat yang pasti akan 
+menjadi sasaran meriam ayah," kata Yin Li. "Bibi Liu, ini sangat penting. Kita akan melakukannya bersama-sama. Kita harus membuat semua penduduk kota 
+ini menyingkir dari sasaran meriam, jika kita gagal melakukannya, maka akan terjadi korban dalam jumlah besar."
+
+"Hm, aku bisa melihat, ini rencana yang bagus," kata Ying Furen. "Tapi sepertinya sangat sulit dilaksanakan. Bagaimana kalian akan meyakinkan 
+para pejabat di wilayah lain itu?"
+
+"Kali ini mereka akan mendengarkan nasihatku," kata Zhao Min dengan tenang. "Tapi orang-orang Mongolia yang sebenarnya kaki tangan Bolad Temur itu 
+memang sulit dijinakkan." Ia menoleh kepada Yin Li sambil menyeringai lebar dan berkata, "Karena itu kau harus menghadap Kaisar, dan mengatakan 
+apa yang terjadi di sini, di hadapan para anggota Majelis Agung. Biarkan semua orang menilai sendiri apa yang sebetulnya terjadi."
+
+Ki Seung Nyang bangkit dari kursinya, lalu berkata, "Yuxian, kau dan Murong Bing ikut aku! Kita berangkat malam ini juga, urusan kita di Henan ini 
+masih banyak, kita harus menyelamatkan banyak orang!"
+
+Teman-temannya menangis terharu sambil bergantian memeluk Ki Seung Nyang. Mereka tidak tahu kapan mereka akan melihat Ki Seung Nyang lagi, padahal 
+selama hampir setahun penuh mereka telah bersama-sama di Kaifeng ini, dan membuat banyak perubahan besar di kota. Tetapi Ki Seung Nyang berkata, "Hei, kenapa 
+kalian jadi cengeng? Aku tidak akan mati sebelum menyelamatkan keluarga besarku!"
+
+Malam itu juga Ki Seung Nyang bersama Dongfang Yuxian dan Murong Bing menghilang setelah melewati pintu gerbang utara Kaifeng. Tak seorang pun 
+menanyakan atau menyelidiki keberadaan seorang perempuan setengah baya yang bawel dan konyol. Keesokan harinya, sebelum tengah hari, sekelompok 
+biksuni Tibet telah diundang oleh Permaisuri Bayan ke istana, untuk memimpin doa bagi keselamatan harem. Tak seorang pun menyangka, bahwa Ki Seung Nyang 
+dan dua orang gadis muda itu berada di tengah-tengah para biksuni itu sambil menudungi kepala mereka memasuki istana. Mulai saat itu Bibi Qi yang konyol 
+lenyap ditelan bumi, yang tampil di istana adalah Permaisuri Qi yang cantik jelita dan anggun, dengan dandanan mewah, lengkap dengan segala aksesorinya 
+sebagai Permaisuri Dinasti Yuan. Kaisar Toghon Temur mulai membuat langkah-langkah aneh yang membingungkan semua jajarannya.
+
+Dongfang Yuxian dan Murong Bing mengikuti semua prosesi agama Buddha Tibet di harem istana dengan taat. Setelah itu mereka berdua menerima instruksi 
+dari Ki Seung Nyang di ruangan pribadinya, dan menyelinap keluar lagi bersama rombongan biksuni yang datang bersama mereka. Setelah tiba di kuil, 
+keduanya berganti pakaian seperti wanita muda dari suku Han biasa, lalu mengunjungi beberapa tempat di Dadu dan Shanxi, sebelum melanjutkan ke Suzhou 
+bersama beberapa orang wanita dan anak-anak yang juga mengenakan pakaian seperti suku Han dari kalangan menengah. Di Suzhou mereka memasuki sebuah kedai, 
+lalu berbicara dengan pemiliknya sambil menyerahkan surat dari Ki Seung Nyang. Akhirnya, mereka dibawa ke sebuah rumah yang baru dibeli, tak jauh dari 
+kedai itu. Untuk selanjutnya mereka tinggal di situ dengan nyaman sebagai keluarga biasa yang berjualan kain di pasar terdekat.
 
 
 
