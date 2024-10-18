@@ -297,6 +297,110 @@ Ia menyapa mereka dengan meriah, "Tian Daren, Wang Daren! Kalian belum tiba di s
 Kedua orang itu mengabaikan sindiran Ayushiridara, dan tertawa ringan. Wang Shicheng menyapa Yin Li, "Junzhu, kami kira kau sedang mengobrol dengan 
 kakekmu, ternyata sedang bercanda dengan Taizi[^taizi]."
 
+"Wang Daren, aku tidak berani memanggil orang lain dengan sebutan kakek," kata Yin Li. "Huang Shang tidak menyuruhku memanggilnya ayah, jika kalian 
+menyuruhku memanggil Wangye 'kakek', bukankah sama saja dengan menyuruhku bunuh diri?"
+
+"Junzhu suka bercanda," kata Tian Feng. "Kami mana berani menyuruh cucu Wangye bunuh diri."
+
+"Nah, kan?" kata Ayushiridara sambil tertawa dan mengedipkan sebelah matanya. "Entah kenapa, taman ini jadi dipenuhi bau kentut, padahal di sini 
+banyak bunga. Ah Li, kapan-kapan kalau kau main ke sini, kita bisa ngobrol sepuasnya di ruangan Muhou. Tadi kudengar ibuku menyuruh pelayan membuat 
+daging bakar yang diberi bumbu pedas. Lumayan, meskipun aku bosan makanan istana. Setidaknya di dapur tidak bau kentut, dan pelayan-pelayan yang ada 
+di situ pasti lebih cantik ketimbang Tian Daren. Betul tidak, Wang Daren?"
+
+Wang Shicheng dan Tian Feng tidak berani marah mendengar sindiran kasar itu. Mereka tertawa sambil mengawasi Ayushiridara pergi dari situ. Lalu 
+Tian Feng berkata, "Junzhu, apa pendapatmu tentang kesimpulan Huang Shang tadi?"
+
+"Kesimpulan yang mana?" tanya Yin Li sambil berjalan ke arah pintu gerbang istana.
+
+"Tentang Zhang Wuji," kata Wang Shicheng.
+
+"Aku sudah mengatakan pendapatku sejak tadi," jawab Yin Li. "Itulah yang kudengar dari adikku, dan kulihat dengan mataku sendiri. Sebaliknya, aku 
+juga ingin tahu, bagaimana pendapat kalian?"
+
+Tian Feng berkata, "Menurutku, Zhang Wuji hanya orang bodoh, yang diperalat oleh para pejabat tinggi Ming Jiao untuk mencapai tujuan mereka."
+
+"Kurasa Zhang Wuji tidak bodoh," kata Wang Shicheng. "Dia hanya terlalu lugu. Yang Xiao dan Peng Yingyu memanfaatkan peluang itu dengan baik."
+
+"Hm, menarik sekali," kata Yin Li. "Tampaknya kalian berdua tahu banyak mengenai Ming Jiao."
+
+"Nama Zhang Wuji sudah dikenal di mana-mana," kata Wang Shicheng lagi. "Karena itu semua orang juga banyak bercerita mengenai Ming Jiao. Yang Junzhu 
+katakan tadi kami pun sudah pernah mendengarnya, Ming Jiao memang tidak mengajarkan seperti ajaran Peng Yingyu. Tetapi mereka juga tidak akan ragu-ragu 
+untuk melawan pemerintah, jika dianggap perlu. Jadi bukan seperti Shaolin atau Wudang."
+
+Sebetulnya sejak tadi Yin Li berusaha mengingat-ingat, entah di mana ia pernah mendengar nama kedua orang ini. Sekarang setelah Wang Shicheng makin 
+sering menyebutkan nama Zhang Wuji, ia tiba-tiba teringat. Saat itu Ki Seung Nyang mengambil catatan Ding Minjun, dan memberi garis tebal di bawah 
+nama kedua orang ini, sambil mengatakan bahwa mereka berdua sangat mencurigakan, dan patut diwaspadai. Sekarang ia bertemu langsung dengan orang-orang 
+yang punya nama itu, dan ia juga merasakan hal yang sama.
+
+Yin Li berkata, "Wang Daren, aku bukan orang pintar seperti adikku, dan aku juga tidak cantik. Dalam hal ini, yang kupedulikan hanya satu, yaitu 
+melindungi keluargaku. Aku tidak peduli tentang Biksu Peng atau Biksu Li. Juga tidak mau tahu tentang Yang Xiao atau Yang Buxiao. Aku hanya peduli 
+tentang Zhang Wuji, yang adalah suami adikku. Jadi jika ada orang bermaksud membahayakan ayahku, ibuku, adikku atau suaminya, maka aku tidak akan 
+segan-segan membunuhnya atau membuatnya menjadi kasim, jika kuanggap perlu. Kau mungkin berpendapat aku konyol, karena kungfuku tidak setinggi adikku, apalagi suaminya. Tapi aku 
+sekarang punya pasukanku sendiri, jadi jika Bolad Temur menyuruh kalian menakut-nakuti aku, katakan saja bahwa satu-satunya jalan untuk membuat Shaoli Junzhu 
+takut adalah jika Wangye berani datang kepada ayahku untuk melamarku menjadi selirnya — jika dia memang punya nyali untuk melakukannya."
+
+Sebenarnya Tian Feng dan Wang Shicheng sangat terkejut melihat perubahan sikap Yin Li, tetapi mereka tetap tersenyum dan berusaha mengimbangi gaya 
+bicara Yin Li yang kasar dan tidak ramah. Tian Feng berkata, "Junzhu tidak perlu tegang. Semua orang tentu sudah mendengar sendiri apa yang dikatakan 
+Kaisar dan Permaisuri Bayan tadi. Di sini, tak seorang pun akan berani mengganggu Junzhu atau keluarga Junzhu yang manapun. Bahkan Wangye sekalipun 
+tidak akan berani sembarangan bertindak."
+
+"Tian Daren, aku tahu Wangye tidak punya nyali sebesar itu, tapi dia juga bukan orang dungu, kenapa dia harus takut kepada anaknya sendiri?" kata Yin Li 
+sambil tertawa ringan. "Aku bukan batu, kalian juga pasti melihat, sejak tadi aku terharu melihat ketulusan hati ibuku yang ini, padahal aku bukan 
+orang yang mudah dibuat terharu. Jadi aku tahu pasti, Muhou bukan orang yang pantas ditakuti."
+
+"Tentang hal itu, semua orang di istana juga tahu," kata Wang Shicheng sambil tersenyum. "Wangye sendiri sebenarnya ingin menarik keuntungan dari 
+posisinya sebagai ayah mertua Kaisar, tetapi sejauh ini ternyata dia selalu gagal. Semua selir di istana akan saling berebut untuk mendapat perhatian 
+dari Kaisar, tetapi Permaisuri Bayan tidak. Justru hal inilah yang membuat Kaisar sangat menghargainya. Sebaliknya, hal ini membuat Wangye putus asa. 
+Putra pertama Permaisuri Bayan meninggal sebelum genap berusia dua tahun. Hal ini tak diragukan lagi, pastilah ulah selir lain di harem, dan sejauh ini 
+tak ada bukti apapun yang menunjukkan siapa pelakunya, karena Permaisuri Bayan sendiri sama sekali tidak berniat untuk mencari tahu. Dia tentu saja 
+berduka, dan sangat mendalam, tetapi dia tidak ingin membuat keributan dengan memperpanjang urusan itu."
+
+"Tapi kemudian Muhou punya anak lagi?" tanya Yin Li ingin tahu.
+
+"Ya," jawab Tian Feng. "Tapi agak lama setelah Zhenjin — anaknya yang pertama itu — meninggal. Sekarang putranya yang kedua itu — Xueshan — baru berusia 
+sekitar enam tahun."
+
+Yin Li agak heran, dan bertanya, "Jadi kedua anak itu diberi nama menurut suku Han?"
+
+"Betul," jawab Tian Feng. "Hal ini membuat semua orang semakin menghargai Permaisuri Bayan."
+
+"Dan Wangye juga menyukai nama itu?" tanya Yin Li lagi.
+
+Tian Feng tertawa, lalu berkata, "Junzhu, yang jelas Wangye tidak bisa protes — hanya itu yang bisa kita harapkan dari Wangye."
+
+[^emas-murni]: Zhen Jin (真金) secara literal berarti 'emas murni'.
+
+"Kedua nama itu sangat menarik," kata Yin Li sambil termenung. "Bukankah Zhenjin[^emas-murni] adalah nama Putra Mahkota pilihan Kubilai Khan?"
+
+"Tepat sekali!" kata Wang Shicheng sambil tersenyum. "Kelihatannya Junzhu melihat apa yang menarik di situ. Menurut Junzhu, siapa yang memberikan nama itu?"
+
+"Aku justru ingin bertanya," kata Yin Li.
+
+"Semua orang pun ingin bertanya, karena ternyata tak ada yang tahu pasti," kata Tian Feng. "Permaisuri Bayan jelas sekali adalah orang yang sangat 
+mencintai tradisi dan budaya suku Han, termasuk makna dari nama-nama suku Han. Dia memang tidak seahli Permaisuri Qi, tetapi dalam hal ini Permaisuri Bayan 
+juga dengan setulus hati mencintai orang-orang Han. Permaisuri Bayan bahkan menyesali kenyataan bahwa dirinya tidak punya nama yang bisa diterjemahkan 
+dengan luwes seperti nama Permaisuri Qi. Tetapi pilihan nama itu menurut banyak orang tidak cocok dengan kepribadian Permaisuri Bayan, yang sederhana 
+dan tidak ingin menonjol. Kemungkinan kedua tentu saja adalah Wangye. Tetapi karena Permaisuri Bayan sendiri tidak diberi nama menurut suku Han, 
+jadi orang merasa bahwa Wangye tidak terlalu menyukai nama-nama suku Han. Orang lalu mempertanyakan, jika Wangye yang memberi nama, lalu apa maksudnya 
+memberikan nama itu?"
+
+Sampai di sini Yin Li baru mengerti maksud kedua orang ini. "Oh!" katanya sambil tertawa. Jadi dengan memberikan nama 'Zhenjin', yang adalah nama pemberian 
+seorang Biksu kepada Putra Mahkota pilihan Kubilai Khan sendiri, maka secara halus Bolad Temur ingin mengatakan kepada semua orang bahwa cucunya 
+akan menjadi Putra Mahkota. Tetapi kemudian sebuah pikiran lain muncul di benak Yin Li, dan ia bergumam sendiri, "Tapi bukankah akhirnya anak itu meninggal?"
+
+"Aha!" kata Tian Feng lagi. "Bukankah itu semakin menarik? Putra Kubilai Khan itu _juga_ meninggal, sebelum Kubilai Khan sendiri!"
+
+Tanpa sadar Yin Li berseru kaget, "Wah!"
+
+
+
+
+
+
+
+
+
+
 
 
 
