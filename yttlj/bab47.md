@@ -861,6 +861,122 @@ Wang Baobao membantunya bangkit berdiri dan berkata, "Bangunlah, jangan berlebih
 pada negeri ini. Tapi kami tahu akan terjadi sesuatu di Kaifeng dalam waktu dekat. Kau mungkin bisa membantu, tapi mungkin juga tidak. Setelah ini 
 aku sendiri akan kembali ke Dadu, dan kau boleh menghubungi ayah. Jika ayah memberimu kesempatan, maka kau bisa menemuiku di Dadu."
 
+Setibanya kembali di pusat kota Kaifeng, mereka meneruskan perundingan dengan Zhao Min di ruang kerja Yin Li. Chang Yuchun sedang mengerahkan semua 
+prajuritnya untuk melakukan pelucutan senjata di semua wilayah berdasarkan surat perintah Yin Li yang ditandai dengan stempel dari Kaisar sendiri. 
+
+Han Lin yang sudah menyelesaikan semua tugasnya kembali ke dalam ruangan itu sambil membawa kabar, "Junzhu, barusan ada surat rahasia dari Zhang Jiaozhu, 
+yang sudah diterjemahkan kembali oleh anak-anak di rumah." Ia menyerahkan surat itu kepada Yin Li.
+
+```text 
+
+Zhu'er Yang Baik,
+
+Bozhou sudah bergerak dengan pasukan mereka sendiri.
+Nanjing sedang sibuk di Longxing.
+Aku sudah memberitahu Hanyang supaya mengutus Xu Da.
+Persiapkan Kaifeng sesuai rencana.
+
+Zhang Wuji
+
+```
+
+Saat itu hari sudah menjelang senja. Matahari mulai menghilang di ufuk barat. Mereka membaca pesan itu bersama-sama, lalu Wang Baobao melangkah 
+mendekati jendela dan memandang keluar. Ia tampak tegang, setelah menelan bakpao di tangannya, ia minum seteguk arak, lalu bertanya, "Chang Yuchun 
+sudah lama pergi?"
+
+"Kira-kira setengah jam yang lalu," jawab Zhao Min. "Ini lebih cepat dari dugaan kita. Kelihatannya Liu Futong yakin bahwa mereka pasti akan 
+mampu menguasai kota ini dengan sedikit pasukan."
+
+"Kita memang memberi kesan begitu," kata Yin Li. "Tapi sekarang semuanya serba tanggung. Meriam-meriam itu jelas tidak boleh ditunda lagi, malam ini 
+juga harus kita singkirkan dari Kaifeng."
+
+"Tinggalkan satu untuk ayah," kata Wang Baobao. "Jika Liu Futong bertingkah, kita akan tetap memerlukan meriam untuk menggertak mereka. Jika dihadapi 
+dengan senjata biasa, korban akan sangat banyak."
+
+Zhao Min bertanya, "Bagaimana kau akan mempertanggungjawabkan hal ini kepada Kaisar?"
+
+"Ah Li, tulis surat pertanggungjawaban kepada Kaisar. Katakan bahwa kita memerlukan satu meriam untuk menggertak serbuan dari selatan. Ceritakan 
+seperlunya. Selebihnya, Qi Huanghou pasti akan mencari alasan yang masuk akal," kata Wang Baobao. "Aku yang akan membawanya ke istana."
+
+"Kalau begitu kau harus pergi ke rumah Gongsun Bao sekarang juga," kata Yin Li. "Kami akan menyuruh orang untuk mengantar surat itu, dan juga surat 
+pengantar dari aku sendiri untuk perjalananmu. Bawa titah Kaisar ini." Ia menyerahkan surat perintah penyitaan dari Kaisar kepada Wang Baobao. 
+"Bagaimana caramu membawa semua itu?"
+
+"Sepuluh meriam setiap satu jam," kata Wang Baobao. "Aku akan memimpin di depan. Tapi harus ada yang mengawasi keberangkatan dari rumah Gongsun Bao, 
+kita tidak bisa mempercayai orang itu begitu saja. Aku sedang menunggu Chang Yuchun kembali, dia harus menyusul setelah meriam terakhir berangkat."
+
+"Berarti aku akan menggantikan tugasnya di sini," kata Zhao Min. "Yu'er, tolong siapkan semua bekal untuk perjalanan mereka. Kerahkan saja semua 
+pelayan di tempat ini. Han Lin, hubungi Hu Zhanglao, Zhong Zhanglao dan yang lain untuk menyiapkan semua anggota mereka yang akan pergi."
+
+Yu'er bergegas keluar untuk menyiapkan bekal bagi pasukan yang akan bertugas mengawal meriam.
+
+"Ge, kau perlu berapa anggota Kai Pang untuk setiap regu?" tanya Yin Li.
+
+"Sepuluh orang harus berangkat lebih dulu, untuk memastikan jalanan yang akan kita lalui aman," kata Wang Baobao. "Setelah itu sepuluh orang akan mengiringi 
+setiap sepuluh meriam yang berangkat bersama dengan prajurit yang mengawalnya. Mereka harus menjaga jarak dari para prajurit itu, supaya orang mengira 
+mereka tidak ada kaitannya dengan kita."
+
+"Baik," kata Zhao Min. "Han Lin, katakan semuanya kepada kedua penatua Kai Pang itu. Tolong suruh An Shubiao, Liang Zhihui dan Li Zhenxing segera 
+kemari."
+
+"Siap!"
+
+Han Lin hampir bertabrakan dengan Ding Minjun yang baru datang bersama dengan beberapa murid perempuan Emei Pai di pintu ruangan. Melihat kedatangan 
+Ding Minjun, Yin Li berseru dengan gembira, "Nah, kebetulan kau datang!"
+
+"Ada apa, kenapa kalian begitu tegang?" tanya Ding Minjun. "Aku baru tiba dari Emei. Kami tidak mampir di Xiangyang, jadi aku tidak tahu apa-apa. 
+Anak-anak di rumah segera menyuruhku kemari."
+
+Ia baru menyadari kehadiran Wang Baobao di situ, lalu bertanya dengan curiga, "Kenapa kau ada di sini?"
+
+"Hei, hei, hei!" kata Yin Li. "Sekarang semuanya orang sendiri. Sebaiknya kau istirahat dulu, Nanti Minmin akan menceritakan semuanya." Ia berpaling 
+kepada Wang Baobao dan berkata sambil melangkah keluar, "Ge, kau segera berangkat. An Shubiao, Li Zhenxing dan Liang Zhihui itu semuanya pengawal Bibi Qi, 
+kau bisa mempercayai mereka. Suruh saja mengawasi barang-barang yang akan keluar dari rumah Gongsun Bao."
+
+Setelah Yin Li dan Wang Baobao pergi, Zhao Min menyerahkan surat Zhang Wuji kepada Ding Minjun, lalu berkata sementara Ding Minjun membacanya, 
+"Ding Shijie, sekarang ini kita dalam keadaan kritis. Liu Futong sedang bergerak ke Kaifeng. Ada sejumlah besar meriam harus segera kita singkirkan 
+dari sini sebelum mereka datang. Bibi Qi sudah kembali ke istana, Zhu'er baru pulang dari situ bersama kakakku. Kami sudah menemui Huang Shang dan 
+mendapat perintah resmi untuk menyita semuanya itu, dan dikembalikan ke Dadu. Perjalanan itu sangat berbahaya, karena kita tidak bisa membawa semuanya 
+sekaligus."
+
+"Wah, perkembangannya secepat ini," kata Ding Minjun setelah membaca surat pendek itu. "Aku belum sepenuhnya mengerti apa yang terjadi."
+
+"Sebentar lagi kau pasti akan mengerti juga," kata Zhao Min. "Sebetulnya aku punya kabar gembira. Zhou Jiejie baru melahirkan anak kembar di Hanyang. 
+Tapi sekarang dia terpaksa mengelola kota itu sendirian. Dia sudah menjadi Walikota Hanyang."
+
+"Wah, ini baru kabar gembira untuk Shifu!" kata Ding Minjun sambil tertawa. "Kau ingin supaya aku pergi ke situ untuk membantunya?"
+
+"Kau justru lebih dibutuhkan di sini," jawab Zhao Min. "Sebentar lagi kita akan menghadapi situasi menegangkan. Hanyang cenderung aman saat ini. 
+Lagipula, Xiangyang dan Hangzhou lebih dekat ke Hanyang ketimbang kita. Tadinya rencana kita adalah mengirimkan kembali Chang Yuchun ke Hanyang, 
+karena Xu Da dikirim ke sini. Tetapi sekarang Chang Yuchun terpaksa ikut mengawal meriam ke Dadu."
+
+"Jadi apa yang harus kulakukan di sini?" tanya Ding Minjun lagi.
+
+"Kau pasti mengenal teman-teman Bibi Qi di pasar itu, kan?" tanya Zhao Min.
+
+"Maksudmu wanita-wanita pemilik kios, atau penjual makanan, dan entah siapa lagi itu? Mereka semuanya penduduk kota biasa yang tidak mengerti apa-apa. 
+Dan semuanya sangat bawel. Apa yang bisa kita harapkan dari mereka?" kata Ding Minjun.
+
+"Mereka justru orang-orang yang tepat untuk menggiring para penduduk kota ini, untuk menjauhi daerah-daerah berbahaya," kata Zhao Min. "Menurut 
+dugaan kami, Liu Futong hampir pasti tidak akan mematuhi Jiaozhu. Jika tindakannya ternyata memicu ketegangan dengan aparat yang sekarang berkuasa, 
+dan para penegak hukum atau pejabat lain, maka kemungkinan besar akan terjadi perang, yang pasti akan merugikan rakyat. Di sini kita memakai tipuan 
+yang agak berbahaya untuk memaksanya mundur."
+
+"Itu memang sudah lama diperhitungkan Huanghou," kata Ding Minjun. "Masalah ini aku sudah tahu. Kalau itu yang terjadi, apa yang akan kalian lakukan?"
+
+"Ayahku akan menyerang beberapa titik di kota ini dengan meriam," kata Zhao Min. "Ini semua sudah diperhitungkan Jiaozhu. Titik-titik ini harus 
+kita kosongkan sebelumnya, supaya tidak terjadi korban. Nah, pada saat itulah kau harus ikut berperan. Kau harus memimpin semua wanita itu, dan juga 
+teman-teman mereka di pasar, untuk mengajak semua orang menyingkir dari semua titik yang akan menjadi sasaran meriam. Tembakan-tembakan itu semuanya 
+hanya dimaksudkan untuk menggertak Liu Futong. Pada saat itu, Xu Da akan mengajak mereka semua mundur dari kota ini, sampai kembali ke Bozhou atau 
+tempat lain."
+
+"Wuah, ini rencana besar, dan sangat cerdik," kata Ding Minjun. "Yang jelas, kalau Liu Futong memang bertingkah, semua itu tidak akan mudah dilaksanakan. 
+Kau yakin kita akan berhasil membuat mereka mundur?"
+
+"Aku sangat yakin," kata Zhao Min. "Memang sulit, karena itulah kita harus melibatkan orang-orang yang sudah dikenal baik oleh Bibi Qi di pasar. 
+Mulai sekarang kau harus rajin menemani mereka mengobrol. Persis seperti yang dilakukan oleh Bibi Qi sebelumnya. Aku dan Zhu'er akan bergiliran 
+menemanimu di rumah, sampai kau terbiasa dengan mereka semua. Detil-detilnya pasti bisa kau pelajari sambil jalan."
+
 
 
 
