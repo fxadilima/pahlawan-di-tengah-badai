@@ -832,7 +832,7 @@ warga kota kelas menengah ke atas, mereka termasuk pemberani, dan ia sangat meng
 apa-apa, maka suatu saat nanti mereka tanpa sengaja akan melakukan sesuatu yang merusak rencananya. Rakyat jelata dari suku Han memang tidak menyukai 
 peraturan yang berasal dari Kubilai Khan ini. Peraturan yang dibuat oleh Kubilai Khan membagi masyarakat menjadi beberapa kelas berdasarkan etnis 
 mereka. Yang teratas tentu saja para keturunan Mongolia, lalu diikuti golongan yang disebut 'Semu'. Golongan kedua ini adalah mereka-mereka yang 
-berasal dari Asia Tengah sampai Asia Barat. Warga keturunan Persia dan Yahudi akan dipandang sebagai golongan kedua ini. Selain itu masih ada suku-suku 
+berasal dari Asia Tengah sampai ke Asia Barat. Warga keturunan Persia dan Yahudi akan dipandang sebagai golongan kedua ini. Selain itu masih ada suku-suku 
 lain yang tidak dianggap sebagai suku Han, seperti suku Hui dan orang-orang Goryeo. Dan akhirnya, di kelas terbawah, adalah suku Han. Warga suku Han 
 masih dibagi lagi menjadi dua kelompok besar, yaitu mereka yang berasal dari utara, dan kemudian selatan. Dengan demikian warga negara Dinasti Yuan 
 kelas terendah adalah suku Han dari selatan. 

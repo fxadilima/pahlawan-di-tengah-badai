@@ -540,7 +540,7 @@ karena merasa lapar, dan ternyata saat itu sudah hampir tengah malam. Ia terkeju
 Suasana malam di ibukota itu lebih ramai ketimbang di Kaifeng. Dari lantai dua penginapan itu matanya melihat sosok Wang Baobao keluar dari pintu 
 depan penginapan. Ia segera berseru, "Hei! Tunggu aku!"
 
-Wang Baobao menghentikan lagkahnya, lalu memberi isyarat supaya ia segera turun. Yin Li menyambar pedangnya, lalu bergegas keluar dari ruangan itu 
+Wang Baobao menghentikan langkahnya, lalu memberi isyarat supaya ia segera turun. Yin Li menyambar pedangnya, lalu bergegas keluar dari ruangan itu 
 dan turun ke lantai dasar, dan berlari keluar. "Kau mau kemana?" tanyanya.
 
 [^bebek-panggang]: Shao Yazi (烧鸭子), alias Bebek Panggang, yang di jaman modern terkenal dengan nama 'Bebek Panggang Peking'. Dadu atau Khanbaliq adalah Beijing atau Peking di jaman modern.
@@ -597,6 +597,270 @@ Wang Baobao terkekeh, dan berkata, "Kenapa, Zhu'er, ayahmu sendiri juga punya ba
 
 "Sudahlah," kata Yin Li. "Lain kali akan kuceritakan kalau kau memang ingin tahu. Dia tidak penting. Kita punya banyak urusan mendesak di Kaifeng. 
 Ayo kita berangkat!"
+
+Setelah memberi instruksi singkat kepada semua anak buahnya yang sedang berjaga di depan penginapan, Wang Baobao menyuruh salah seorang dari mereka 
+mengambil dua ekor kuda bagi mereka. Yin Li naik ke lantai atas dan mengemasi barang-barangnya yang ada di kamar, lalu mereka segera berangkat 
+di tengah kegelapan malam ke arah Kaifeng.
+
+Meskipun tidak secepat kuda merah Zhao Min, tetapi kuda Mongolia dari Wang Baobao itu masih sangat cepat jika dibandingkan dengan kuda-kuda lain yang 
+mereka beli sembarangan di pasar. Keesokan harinya, sebelum tengah hari, mereka sudah sampai di pintu gerbang utara Kaifeng. Di luar pintu gerbang itu, 
+beberapa anggota Kai Pang mengenali Yin Li, lalu memberi isyarat supaya mereka mengikutinya ke dekat sebuah kandang kuda. Di situ salah seorang dari 
+mereka berkata, "Junzhu, Hu Zhanglao bersama Xiao Junzhu selalu mengawasi rumah setiap Kepala Wilayah, dan sampai sekarang kita tidak menemukan ada 
+kelompok atau orang-orang yang membawa barang-barang berat, yang bisa dicurigai sebagai meriam, memasuki kota dari arah manapun."
+
+"Bagus," kata Wang Baobao. "Berarti memang benar, semuanya itu senjata-senjata yang rencananya akan dikirimkan ke Shaolin. Tidak ada yang lain lagi. 
+Sekarang mereka di mana?"
+
+Para pengemis itu menatap Wang Baobao dengan agak curiga, lalu beralih kepada Yin Li. "Oh, dia kakakku. Kalian boleh memanggilnya Xiao Wangye. Kami akan 
+menunggu di rumah dinas. Suruh Xiao Junzhu segera ke sana, kita harus membereskan masalah ini hari ini juga!"
+
+Para pengemis itu bergegas pergi untuk memberitahu Zhao Min. Sementara Wang Baobao dan Yin Li langsung menuju ke rumah dinas Kepala Wilayah yang 
+menjadi kantor mereka dan bertemu dengan Chang Yuchun.
+
+Yu'er menyediakan makanan kecil dan minuman bagi semua orang, dan ikut berunding di ruangan Chang Yuchun. Wang Baobao berkata sebelum mereka mulai 
+bicara tentang hal lain, "Panglima Chang, sebelum ini kita pernah berhadapan sebagai musuh. Kuharap kau tidak menyimpan dendam kepadaku."
+
+Chang Yuchun segera mengulurkan tangannya untuk menjabat tangan Wang Baobao, lalu berkata, "Keadaan berubah, tentu saja kita harus siap berubah. 
+Chang Yuchun hanya alat kerja yang siap mengerjakan perintah Jiaozhu kapan saja. Bukankah sudah cukup lama aku bekerja sama dengan pasukan dari Xiao 
+Wangye sendiri?"
+
+"Betul," kata Wang Baobao sambil tertawa dan menyambut jabatan tangannya. "Seharusnya kerja sama ini sudah lama terjalin, karena itu hari ini juga 
+kita sama-sama akan membereskan sumber masalah yang hampir saja membunuh banyak orang. Apa saranmu dalam urusan ini?" Ia mengambil sepotong kue buatan 
+Yu'er, dan minum seteguk teh hangat.
+
+"Menurut Shaomin Junzhu dan Hu Zhanglao, sedikitnya ada seratus meriam, berikut bahan-bahan peledak yang jumlahnya tidak sedikit di gudang Gongsun Bao 
+itu. Jadi ini bukan urusan kecil," kata Chang Yuchun. "Apakah kita bisa mengangkutnya keluar dari Kaifeng secara terbuka?"
+
+"Setelah Ah Li mendapat perintah resmi dari Kaisar, mengapa tidak?" kata Wang Baobao. "Itu bisa saja."
+
+Yin Li menggelengkan kepalanya dan berkata, "Kita tetap tidak boleh menimbulkan kepanikan di seluruh kota. Bayangkan apa yang akan terjadi seandainya 
+mereka melihatmu membawa sejumlah besar meriam, dan bersama pasukan yang tidak bisa dibilang sedikit, melintasi kota-kota mereka?"
+
+"Kalau begitu kita mamang akan sangat lambat untuk mencapai Dadu," kata Chang Yuchun. "Kita hanya bisa bergerak di malam hari. Ini bisa makan waktu 
+lebih dari lima hari. Karena pada saat bergerak pun kita tetap harus berjalan lambat."
+
+"Tidak apa-apa," kata Yin Li. "Sepuluh hari sampai dua minggu pun tetap boleh saja. Kita toh berada di sebelah utara Sungai Han, jadi sangat kecil 
+kemungkinan akan ada gangguan dari para anggota Hongjin Qiyi atau kelompok lain yang ingin merampas senjata-senjata itu."
+
+"Tapi kau tidak bisa mengabaikan orang-orang Bolad Temur," kata Wang Baobao. "Mereka bisa menyamar jadi apa saja, bahkan bisa berpura-pura menjadi pengemis 
+biasa atau anggota Kai Pang. Jika satu meriam dikawal oleh setidaknya tiga orang, maka kita membutuhkan sekitar tiga ratus prajurit untuk mengawal 
+semuanya itu sampai ke Dadu. Ini tidak bisa dibilang sedikit. Memang pasti akan menimbulkan rasa ingin tahu orang."
+
+"Kalau begitu, kita akan mengerahkan lima ratus orang prajurit, ditambah dengan dua ratus orang anggota Kai Pang," kata Yin Li. "Sementara para 
+prajurit mengawal meriam itu, para anggota Kai Pang harus memastikan jalanan yang akan dilalui atau ditinggalkan aman."
+
+"Aku juga bisa ikut untuk memastikan semuanya aman," kata Chang Yuchun.
+
+"Tidak," kata Yin Li dengan tegas. "Panglima Chang, kau harus tetap di Kaifeng untuk memastikan keamanan kota, sementara kita sibuk dengan urusan 
+yang tidak nyaman ini. Aku punya firasat akan ada orang yang ingin mengambil alih kota ini sementara kita sibuk. Jadi kita memang tidak boleh lengah 
+sedikit pun, meskipun saat ini kelihatannya Kaifeng aman-aman saja."
+
+Zhao Min memasuki ruangan bersama Hu Zhanglao, lalu langsung minum beberapa teguk teh hangat. Ia berkata, "Gongsun Bao sudah sepakat untuk menyerahkan 
+semua meriam itu. Berarti kita bisa langsung berangkat dari situ."
+
+"Bagus!" kata Wang Baobao. "Kau menemukan ganjalan sementara menghadapi orang itu?"
+
+"Gongsun Bao sendiri sih tidak," kata Zhao Min. "Gege, kenapa kau bisa ada di sini bersama Zhu'er?"
+
+Yin Li mendecakkan lidah dengan kesal. "Sudah kukatakan, di sini jangan pernah lagi memanggilku Zhu'er! Panggilan itu dikenali banyak orang sejak 
+aku masih kecil. Kalau kau hanya menyatroni Kepala Wilayah di dalam kota, tentu saja semuanya tidak bermasalah. Tapi aku curiga, begitu mereka-mereka 
+yang menjabat Kepala Daerah seperti Torebeg, dan tinggal di pinggiran kota, tahu bahwa kita akan bergerak, maka mereka sendiri juga akan ikut 
+bergerak. Setelah rombongan kita sampai di luar kota, barulah mereka akan beraksi."
+
+"Kalau begitu, sekarang saja kita bungkam semua orang yang kau curigai bermasalah ini, sebelum mereka menjadi ganjalan bagi kita di luar kota," 
+kata Wang Baobao. "Kalau setelah beberapa hari tidak ada kabar buruk dari anggota Kai Pang yang ikut bersama kami, maka kau boleh melepaskan mereka semua."
+
+Zhao Min berkata, "Begitu kita mulai bertindak, keadaan akan langsung menjadi berbahaya. Gege, kau sudah mengamankan ibuku? Aku tidak ingin terjadi 
+sesuatu yang di luar dugaan lagi. Waktu itu Wei Yixiao bisa tiba-tiba menculik Selir Han, dan menjadikannya sandera untuk memeras kita."
+
+Wang Baobao tertawa. "Sudah beres, mereka semua aman di Suzhou," katanya. "Lagipula, bukankah sekarang ini Wei Yixiao dan kita sudah menjadi satu kubu? 
+Jadi kau tidak usah memikirkan hal semacam itu lagi."
+
+"Anggota Kai Pang begitu banyak, aku kuatir akan ada penyusup yang gagal dikenali di situ," kata Zhao Min. "Kau mengirim Xuanming Er Lao untuk menemui ayah 
+di Nanyang? Aku ketemu mereka dalam perjalanan ke sini, di Xuchang."
+
+"Apa? Tidak," jawab Wang Baobao bingung. "Aku sudah agak lama tidak melihat mereka."
+
+"Nah, kan!" kata Zhao Min. "Berarti sudah ada bahaya mengancam. Aku yakin saat ini mereka bekerja untuk orang lain. Kemungkinan besar Bolad Temur. 
+Aku akan mengirim anggota Kai Pang ke Nanyang untuk memperingatkan ayah." Ia menoleh kepada Hu Zhanglao yang berdiri di sebelahnya. "Kalian teruskan 
+dulu merundingkan masalah ini, aku akan menulis surat kepada ayah."
+
+"Kita harus bergerak cepat," kata Yin Li sementara Zhao Min menulis surat. Ia bertepuk tangan untuk memanggil pelayan yang ada di luar ruangan. 
+Setelah pelayan itu masuk, ia berkata, "Panggil Han Lin, An Shubiao, Li Zhenxing dan Liang Zhihui ke sini!"
+
+Dalam dua menit, keempat orang itu sudah memasuki ruangan, lalu Yin Li melanjutkan, "Han Lin, An Shubiao, siapkan surat perintah penggeledahan untuk 
+menahan semua senjata dari kantor-kantor Kepala Daerah di semua wilayah Kaifeng. Semuanya harus kau tandai dengan stempel ini!" Ia menyerahkan stempel 
+kekaisaran yang diterimanya dari Kaisar Toghon Temur di istana. Lalu ia berpaling kepada Chang Yuchun dan berkata, "Panglima Chang, kau atur sendiri 
+berapa orang yang harus disiapkan untuk menggerebek semua kantor Kepala Daerah itu, dan menyita semua senjata yang ada di situ. Masing-masing pasukan 
+harus membawa serta surat perintahku dari Han Lin atau An Shubiao! Hanya kantor Torebeg yang akan kudatangi sendiri bersama dengan Xiao Wangye!"
+
+Zhao Min sudah selesai menulis surat dan memberi instruksi kepada Hu Zhanglao, lalu penatua Kai Pang itu segera pergi untuk mengutus anak buahnya.
+
+"Apa tidak sebaiknya aku yang pergi ke situ menemui Torebeg?" tanya Zhao Min. "Kau yakin kalian bisa mengatasinya?"
+
+"Dia belum pernah melihatmu, jadi aku harus tetap pergi untuk meyakinkan dia bahwa ini perintah resmi," kata Yin Li. "Hanya saja, orang semacam Torebeg 
+selalu ingin melihat seorang pria Mongolia sebelum mau tunduk. Karena itu aku terpaksa mengalah. Dia ingin pria Mongolia, maka pria Mongolialah yang 
+akan dilihatnya! Kalau hanya kita berdua yang datang, maka kita akan terpaksa membuat keributan untuk menundukkannya. Aku sedang tidak ingin berkelahi, 
+jadi aku terpaksa melibatkan Gege dalam hal ini."
+
+Wang Baobao tertawa. "Jadi hanya itu yang kau perlukan dariku ya?" tanyanya.
+
+"Kenapa, kau keberatan?" tanya Yin Li.
+
+"Sama sekali tidak. Aku dengan senang hati akan melakukan keinginanmu," jawab Wang Baobao. "Tapi lain kali kau juga harus melakukan keinginanku 
+dengan senang hati."
+
+"Asalkan keinginanmu tidak terlalu banyak, aku pasti akan membayar hutangku," kata Yin Li.
+
+"Jangan bertele-tele lagi, ayo kita berangkat!" kata Wang Baobao sambil berjalan ke pintu. "Minmin, kau tetap di sini untuk mengatur pasukan yang akan 
+dikirim ke semua tempat itu! Kami hanya sebentar."
+
+Mereka mendatangi rumah dinas Torebeg dengan ditemani seratus orang prajurit. Di pintu gerbang, Elbeg segera mengenali Yin Li, meskipun saat itu ia 
+sedang mengenakan seragam militer lengkap. Ketika melihat sosok Wang Baobao, ia dengan segera memberi hormat kepada keduanya, "Junzhu, Wangye!"
+
+"Jangan banyak cingcong, cepat katakan kepada Torebeg, aku dan kakakku ingin menemuinya!" kata Yin Li.
+
+Elbeg masuk, lalu segera keluar lagi dalam lima menit. Yin Li berkata kepada pasukan yang dibawanya, "Kalian siaga di sini, tunggu perintah kami!"
+
+"Siap!"
+
+Mereka memasuki gedung itu bersama dengan Elbeg, dan segera bertemu dengan Torebeg di ruang kerjanya. Kali ini, tanpa banyak basa-basi lagi, 
+Torebeg segera membungkuk hormat dan menyapa, "Junzhu, Xiao Wangye!"
+
+Wang Baobao berkata dengan muka serius, "Torebeg, kami punya tugas sangat serius. Aku ingin kau bisa bekerja sama dengan baik. Untuk sementara 
+kami harus mengamankan semua senjata yang ada di tempat ini, dan sekaligus melarang kalian semua menggerakkan prajurit atau ahli bela diri mana pun 
+keluar dari Kaifeng."
+
+Torebeg sangat terkejut, dan tampaknya ia sedang mencari-cari alasan untuk membantah, tetapi Wang Baobao segera berkata, "Ah Li, tunjukkan surat 
+perintah dari Kaisar itu!"
+
+Sementara Torebeg membaca surat perintah resmi yang dikeluarkan Kaisar Toghon Temur untuk menyita semua meriam dari gudang Gongsun Bao, Wang Baobao 
+menambahkan, "Kau bisa mengatakan semua yang kau alami malam ini kepada Bolad Temur. Dia sendiri juga ikut menyaksikan pada saat adikku menerima perintah 
+ini secara langsung di hadapan Majelis Agung, di istana! Kami hanya ingin memastikan bahwa orang-orangmu tetap diam di tempat sementara kami menuju 
+ke utara. Sebetulnya kami bisa saja menangkap kalian semua dengan tuduhan melakukan pemberontakan melawan Diansti Yuan, karena menyim[an meriam-meriam itu, 
+tapi kami tidak melakukannya. Ayahku tidak ingin bermusuhan dengan Bolad Temur, karena kami masih menghormati Dash Badalugh. Kami tetap akan mengembalikan 
+semua senjata kalian setelah beberapa hari."
+
+Torebeg berkata, "Xiao Wangye, bukankah wilayah yang dimaksud itu hanya wilayah Gongsun Daren sendiri. Daerah ini berada di bawah komando Junzhu, 
+jadi kami tidak ada hubungannya dengan Gongsun Daren."
+
+Wang Baobao berkata, "Kau tidak bisa membaca ya? Perintah itu dengan tegas mengatakan bahwa kami boleh melakukan apa saja yang diperlukan untuk mengamankan 
+semua wilayah yang dipandang mencurigakan! Kau kira selama ini kami semua hanya duduk-duduk sambil makan angin? Kami tahu siapa saja orang-orang yang 
+terkait dengan kalian di seluruh wilayah yang ada di kota Kaifeng dan sekitarnya. Junzhu bukan tidak tahu. Selama ini kami hanya membiarkan ulah kalian 
+karena Kaisar belum memberikan perintah. Sekarang perintah itu sudah turun. Jika Kaisar hanya menyita barang-barang itu, berarti Kaisar sedang mengampuni 
+nyawa kalian semua. Kau belum berterima kasih, sekarang malah berbalik ingin melawan perintah?"
+
+Torebeg tampak ragu-ragu, dan tidak segera menjawab. Sekilas Wang Baobao melihat Elbeg yang sedang berdiri di sebelahnya mengepalkan tinju sebagai 
+tanda sedang bersiap-siap untuk menghadapi perkelahian yang mungkin saja terjadi. Ia kemudian berkata kepada Yin Li, "Ah Li, tunjukkan tanda pengenal 
+yang kemarin diberikan ibumu!"
+
+Mendengar ini, Yin Li berkata, "Gege, ini mungkin tidak perlu..."
+
+"Orang ini harus diberitahu, dengan siapa dia sedang berhadapan," kata Wang Baobao lagi. "Cepat, tunjukkan!"
+
+Yin Li mengeluarkan tanda pengenal Permaisuri Bayan yang baru diterimanya, dan menyerahkannya kepada Wang Baobao. Sambil menunjukkan tanda pengenal itu 
+ke depan hidung Torebeg, Wang baobao berkata, "Kau tahu ini benda apa?"
+
+Torebeg sangat terkejut. Ia segera mengenali tulisan Mongolia yang terukir di atas tanda pengenal yang terbuat dari emas murni itu, yang jelas sekali 
+menunjukkan nama Permaisuri Bayan. Desas-desus yang santer beredar dari ibukota adalah Kaisar sedang bersitegang dengan Permaisuri Qi mengenai pewarisan 
+tahta, dan anggota Majelis sekarang terbagi menjadi dua kelompok, yaitu pendukung Putra Mahkota dan pendukung Kaisar. Karena Bolad Temur berdiri di 
+belakang semua pendukung Kaisar, maka semua orang lalu mengasumsikan bahwa Permaisuri Bayan pasti juga termasuk dalam kelompok itu, karena Permaisuri Bayan 
+adalah putri Bolad Temur. Selama ini keluarga Chaghan Temur terang-terangan berdiri di barisan pendukung Permaisuri Qi. Tetapi saat ini matanya melihat 
+sendiri bahwa dua orang anak Chaghan Temur sedang berdiri di situ sambil membawa tanda pengenal Permaisuri Bayan. Ini sama saja menempatkan Permaisuri Bayan 
+dalam kelompok kedua, yang membuat Bolad Temur berdiri sendirian dengan hanya didukung oleh beberapa gelintir anggota Majelis yang belum tentu menang.
+
+Setelah Yin Li mendapat perintah langsung dari Kaisar, maka posisi Bolad Temur di mata Torebeg semakin tersudut. Jika Bolad Temur kehilangan dukungan 
+dari Kaisar dan putrinya sendiri, maka secara tidak langsung ia bisa dipandang sedang melawan Dinasti Yuan. Torebeg lalu berpikir, "Untuk apa aku 
+berusaha mendukung orang yang tidak bakalan menang? Bukankah mereka sendiri yang mengatakan, senjata-senjata itu hanya untuk sementara ditahan? 
+Toh akhirnya pasti akan dikembalikan juga. Apalagi tadi Wang Baobao mengatakan bahwa sekarang Shaoli Junzhu memanggil Permaisuri Bayan dengan sebutan 'ibu'."
+
+Dengan kesimpulan ini, ia berkata, "Xiao Wangye, tentu saja kami tidak berani melawan perintah Kaisar. Junzhu sudah jelas adalah kesayangan Permaisuri Bayan, 
+karena sampai detik ini Permaisuri Bayan tak pernah memberikan tanda pengenalnya kepada siapapun juga, selain Junzhu sendiri. Orang buta pun bisa 
+melihat hal ini." Ia menoleh kepada Elbeg sambil berkata, "Kumpulkan semua senjata yang ada di sini, dan berikan kepada para prajurit Junzhu yang 
+sedang siaga di luar!"
+
+Dengan cepat pelucutan senjata itu diselesaikan setelah Torebeg tunduk. Yin Li berkata, "Selama ini aku berkali-kali memberikan peringatan, tapi kau 
+tidak mau mendengar. Sekarang aku bisa mengatakan kepadamu, sebetulnya Huang Shang telah memerintahkan Bolad Temur, supaya menarik kembali semua 
+orang-orangnya yang ada di Kaifeng ini untuk kembali ke utara. Kalian tinggal menunggu kapan perintah itu sampai ke telinga kalian, dari Bolad Temur 
+sendiri. Jika sampai lama sekali aku masih melihat kalian ada di sini, maka kami akan melaporkan semuanya kepada Kaisar di Dadu. Pada saat itu 
+nasib kalian akan menjadi tidak jelas, karena Bolad Temur pasti akan mengatakan bahwa dirinya sudah memerintahkan kalian untuk pergi dari Kaifeng. 
+Kami tidak bisa membaca apa yang ada di dalam benak Bolad Temur, mungkin dia akan mengeluarkan surat perintah supaya kalian kembali ke utara, tapi 
+mungkin juga tidak. Sekarang aku sudah mengatakannya, terserah kepada kalian selanjutnya akan pergi kemana."
+
+Wang Baobao tersenyum ramah sambil berkata, "Kalau aku jadi kau, pasti aku akan secepatnya kembali ke Datong untuk menemui majikanku itu, dan melaporkan 
+setepat-tepatnya apa yang baru terjadi di sini. Dia tidak akan membunuhmu, karena kami berdua akan melaporkan kepada Huang Shang bahwa kau sudah kembali 
+ke Datong. Jika Huang Shang tidak menemukan kau dan semua jajaranmu ada di situ, maka yang akan ditanya pastilah Bolad Temur."
+
+Torebeg membungkuk hormat kepada Wang Baobao dan Yin Li sambil berkata, "Xiao Wangye, Junzhu, aku sangat berterima kasih atas saran itu, karena aku 
+memang sedang memikirkan apa yang akan kulakukan selanjutnya. Aku, Torebeg, pasti tidak akan melupakan budi baik kalian di masa yang akan datang. 
+Kalau saat ini Junzhu masih punya saran lain, Torebeg akan mendengarkan dengan senang hati."
+
+Yin Li dan Wang Baobao bisa mendengar ketulusan di dalam suaranya. Torebeg mungkin saja kasar, tetapi sejauh ini tindakannya masih bisa dimaklumi. 
+Jika mereka ditempatkan di posisi Torebeg, mungkin saja mereka akan mengambil langkah yang sama. Akhirnya Yin Li berkata, "Sayangnya, hanya sedikit yang 
+bisa kulakukan. Kau sebelumnya gagal mempercayai aku, bagaimana sekarang kau bisa berharap aku akan mempercayaimu? Jadi seandainya Bolad Temur mengingkari 
+kaitannya dengan kalian semua, aku hanya bisa menyarankan supaya kalian mencari ayah, dan menceritakan apa yang terjadi. Shaomin Junzhu sudah pasti 
+tidak akan mempercayai kalian, apalagi sekarang dia ada di Kaifeng ini."
+
+Mendengar nama Zhao Min, nyali Torebeg menciut. Ia tidak pernah mendengar Wang Baobao menghabisi satu batalyon pasukan yang dianggap melanggar hukum, 
+tetapi Shaomin Junzhu sudah melakukannya di wilayahnya sendiri, di Henan ini. Selama ini ia selalu berusaha mencari keseimbangan antara kepentingan 
+majikannya dan kepentingan para penduduk di daerah yang dipimpinnya. Kadang-kadang ia akan mengorbankan anak buahnya sendiri yang memang melanggar hukum, 
+untuk menerima hukuman ringan, lalu kemudian membebaskan mereka. Bolad Temur tidak pernah mengatakan dengan jelas apa sebetulnya tujuannya menempatkan mereka 
+di sini, dan menerima posisi di bawah Fang Diande. Sekarang ia merasa bahwa kata-kata Yin Li dan Wang Baobao sangat masuk akal. Untuk mengamankan 
+posisinya sendiri, Bolad Temur memang bisa saja mengingkari kaitannya dengan mereka semua. Lalu kemana ia dan seluruh pengikutnya akan mencari perlindungan?
+Ia menilai kedua orang anak Chaghan Temur ini masih jauh lebih lembut ketimbang Shaomin Junzhu. Jika saat itu yang datang ke Kaifeng adalah Shaomin Junzhu, 
+barangkali ia dan seluruh anak buahnya sudah kehilangan nyawa.
+
+Di mata Torebeg, Chaghan Temur barangkali adalah Jendral Bayan di masa sekarang. Hanya saja, saat itu Jendral Bayan melangkah terlalu jauh, lalu 
+terperosok sendiri karena ingin mengeksekusi para pejabat suku Han yang bermarga Zhang, Zhao, dan lain-lainnya. Padahal itu semua adalah marga orang Han 
+yang paling umum di Henan. Keluarga Chaghan Temur mengambil langkah yang aman bagi mereka sendiri, dengan menghindari semua itu. Tetapi ketika 
+menghadapi para pelanggar hukum dari kalangan Mongolia, tindakan mereka justru lebih kejam, karena orang-orang keturunan Mongolia jika dibiarkan 
+diadili menurut hukum, hampir pasti akan lolos dari hukuman.
+
+Wang Baobao tampaknya sedang mencari-cari sesuatu di ruangan itu, dan tidak menemukannya. Kemudian ia berkata dengan ramah, "Dilihat dari namamu, 
+kau pastilah seorang keturunan suku Merkit, Naiman, Keraite atau suku lain di luar Khamag Mongol atau kalangan dalam Mongolia lainnya. Aku tidak menemukan simbol agama Kristen 
+di sini. Jika kau — seperti dugaanku — bukan seorang penganut agama Buddha, tentulah kau mengikuti ajaran yang dianut leluhurmu, yaitu Ming Jiao."
+
+Mendengar kata-kata Wang Baobao, tampak jelas bahwa Torebeg sangat ketakutan, ia membuka mulutnya untuk berbicara, tapi tak ada suara yang keluar. 
+Lalu Yin Li tertawa terbahak-bahak sambil berkata, "Kau tidak usah panik. Kami bukan ingin menakut-nakutimu."
+
+Wang Baobao melanjutkan, "Kemarin adikku mendengar sendiri di istana, Kaisar dengan jelas mengatakan bahwa dirinya sudah tahu apa yang sedang dilakukan 
+oleh Zhang Wuji di selatan. Dan aku juga sudah mendengar dari obrolan orang di Dadu, sekarang ini Zhu Yuanzhang bahkan berani mengatakan dengan lantang, 
+di depan orang-orangnya, di selatan, bahwa dirinya _bukan_ seorang pemberontak. Dia bilang bahwa dirinya adalah seorang warga negara Dinasti Yuan biasa, 
+yang merasa terpanggil untuk menegakkan kembali _hukum_ dan keadilan bagi semua orang. Dia bilang bahwa dia _justru_ ingin meringkus para 
+pemberontak, dan menaklukkan mereka kembali kepada hukum yang berlaku, supaya rakyat menjadi tenang, dan keadaan kembali damai. Mengapa dia berani 
+mengatakan semua itu? Karena sebelumnya Zhang Wuji sudah menyerukan kepada jajarannya supaya mereka tidak lagi mengobarkan semangat anti-Mongolia, yang 
+akhirnya justru melahirkan banyak pelanggaran hukum dan kekejaman. Bagaimana jika sebuah keluarga ternyata adalah keturunan campuran? Bukankah 
+orang akan didorong untuk menjauhi keluarga seperti itu, padahal keluarga itu sama sekali tidak melanggar hukum atau berbuat jahat?"
+
+Yin Li menambahkan, "Kaisar juga mengatakan bahwa Kubilai Khan merumuskan hukum Dinasti Yuan yang berkaitan dengan suku-suku itu dengan suatu alasan 
+khusus, dan pasti bukan untuk membuat ketidakadilan seperti yang terjadi saat ini. Karena Kaisar sudah mendengar apa yang dilakukan oleh Zhang Wuji, 
+dia juga mengatakan bahwa tidak ada hukum Dinasti Yuan yang menentang semuanya itu. Dengan begitu orang tidak perlu takut mengakui bahwa mereka memang 
+menganut agama Ming Jiao, karena di Persia pun agama itu tidak dilarang. Hanya saja, di Zhongyuan ini pernah ada orang-orang Ming Jiao yang mengobarkan 
+kebencian kepada orang-orang Mongolia, padahal Zhang Wuji juga tidak menemukan ada ajaran Ming Jiao yang mengatakan begitu. Karena itu, sekarang ini pelanggaran 
+hukum tidak boleh sembarangan dikait-kaitkan dengan ajaran agama. Jadi kau juga tidak perlu tegang karena kau menganut ajaran Ming jiao, asalkan kau 
+memang tidak melanggar hukum."
+
+"Torebeg, dengan perubahan politik seperti ini, seharusnya kau sadar kemana kau seharusnya pergi," kata Wang Baobao lagi. "Kami sendiri juga tidak tahu 
+apa yang akan terjadi dengan negeri ini. Dinasti Yuan barangkali akan bertahan, tapi mungkin juga akan ambruk. Ini aku sedang berbicara dari hati ke hati 
+denganmu, karena kami bisa melihat bahwa kau sendiri sebenarnya bukan orang jahat, tapi kau diperalat orang lain untuk melaksanakan ambisi politiknya 
+sendiri. Kau kira orang itu tidak tahu apa yang sedang terjadi dengan Dinasti Yuan kita? Nah, jika dia tahu, lalu apa yang diinginkannya dengan 
+menempatkanmu di sini, dan menjadi bawahan Fang Diande? Jika kau ditangkap, kau kira majikanmu akan mengakui kaitannya denganmu? Sebenarnya bukan hanya 
+kau sendiri yang takut dikait-kaitkan dengan Ming Jiao, bahkan adikku diusir ayah karena jatuh cinta kepada Zhang Wuji, yang sudah jelas adalah ketua Ming Jiao. 
+Selama ini majikanmu selalu memanfaatkan hal ini untuk menekan ayahku. Setelah Huang Shang mengatakan semua itu, barulah Shaoli Junzhu berani memohon 
+supaya Huang Shang memaafkan adik kami yang mengikuti Zhang Wuji. Kau tahu bagaimana jawaban Huang Shang?"
+
+Torebeg memandang mereka dengan muka bertanya. Yin Li berkata, "Huang Shang mengatakan, jika ayah tidak memperlakukan Shaomin Junzhu baik-baik, 
+maka dia sendiri yang akan menghukum ayah."
+
+Mendengar hal ini, Torebeg kemudian berlutut sambil membenturkan dahinya di lantai, di hadapan Wang Baobao dan Yin Li. Ia berkata, "Hari ini aku sudah 
+mendapat pelajaran besar dari Xiao Wangye dan Junzhu. Entah apa yang akan terjadi kepada kami di Datong, tapi aku pasti akan mencari ayah kaiian. Aku 
+juga tidak tahu apakah Wangye akan menerimaku, tetapi aku sendiri pasti tidak akan melupakan kalian berdua sampai aku mati. Jika ada sesuatu yang bisa 
+kulakukan untuk membantu kalian di masa yang akan datang, aku siap melaksanakannya!"
+
+Wang Baobao membantunya bangkit berdiri dan berkata, "Bangunlah, jangan berlebihan. Kami sendiri tidak berani memastikan apa yang akan terjadi selanjutnya 
+pada negeri ini. Tapi kami tahu akan terjadi sesuatu di Kaifeng dalam waktu dekat. Kau mungkin bisa membantu, tapi mungkin juga tidak. Setelah ini 
+aku sendiri akan kembali ke Dadu, dan kau boleh menghubungi ayah. Jika ayah memberimu kesempatan, maka kau bisa menemuiku di Dadu."
+
 
 
 
