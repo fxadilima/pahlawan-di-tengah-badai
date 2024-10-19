@@ -392,7 +392,211 @@ akan menjadi Putra Mahkota. Tetapi kemudian sebuah pikiran lain muncul di benak 
 
 Tanpa sadar Yin Li berseru kaget, "Wah!"
 
+[^xueshan]: Xue Shan (雪山) secara literal berarti 'Gunung Salju'.
 
+Wang Shicheng berkata, "Barangkali semakin menarik untuk kita renungkan, mengapa anak yang kedua diberi nama Xueshan[^xueshan]. Dalam hal ini hampir semua orang 
+menebak bahwa nama itu diberikan oleh Permaisuri Bayan sendiri."
+
+Diam-diam Yin Li menyimpan semua ini di dalam hati. Saat itu mereka sudah tiba di pintu gerbang, dan ia bergegas melangkah ke tempat di mana ia menambatkan kudanya. 
+Ia bertanya, "Wang Daren, Tian Daren, kenapa kalian berdua menceritakan semua itu kepadaku?"
+
+Kedua orang itu hanya tersenyum, lalu Tian Feng berkata tanpa menjawab pertanyaan Yin Li, "Jika Junzhu bersedia, kami pasti akan menjadi teman ngobrol yang baik, 
+setiap kali Junzhu mampir ke istana."
+
+Yin Li tertawa, lalu berkata, "Aku harus mengakui, obrolan kalian sangat menarik. Sayangnya aku harus segera kembali ke Kaifeng. Tian Daren, Wang Daren, 
+sampai jumpa lain kali!"
+
+Ia meninggalkan kawasan istana dengan berbagai pikiran memenuhi benaknya. Selain segala hal yang terjadi di istana, tanpa sadar ia ternyata terus 
+memikirkan pembicaraannya dengan Tian Feng dan Wang Shicheng barusan. Sayangnya ia masih belum bisa memastikan apa sebenarnya yang diinginkan oleh 
+kedua orang itu. Bahkan ia jadi tidak yakin bahwa mereka adalah kaki tangan Bolad Temur.
+
+Semakin dipikir, sekarang Yin Li menjadi semakin penasaran. Ia ingin segera tiba di Kaifeng untuk membahas beberapa penemuan barunya bersama Zhao Min, 
+tetapi saat itu ia merasa sangat lelah. Setelah berpacu dengan waktu setengah harian untuk mencapai Dadu, dan kurang tidur akibat membahas masalah semalam 
+suntuk dengan Zhao Min, ia langsung berhadapan dengan situasi menegangkan di istana. Ia ingin mencari penginapan untuk beristirahat beberapa jam, sebelum 
+kembali ke Kaifeng. Karena tiba-tiba ia juga merasa sangat lapar, maka ia sembarangan memilih kedai terdekat yang menjual makanan untuk mengganjal 
+perutnya sambil terus berpikir-pikir.
+
+Yin Li memesan dua potong shaobing berukuran cukup besar yang berisi daging sapi, dan dengan cepat menghabiskan sepotong sambil minum teh. Sementara 
+menikmati potongan kedua perlahan-lahan, telinganya secara tak sengaja mendengar pembicaraan sekelompok orang yang duduk di sebelah mejanya. Mereka 
+sedang membicarakan masalah politik, dan salah seorang dari mereka menyebutkan nama Wang Baobao.
+
+Tiba-tiba Yin Li merasa segar kembali, kantuknya menghilang. Zhao Min beberapa kali menyebut nama kakak angkatnya itu di sepanjang pembicaraan mereka 
+semalam. Sebelumnya, ia tahu bahwa Wang Baobao secara rutin menghubungi Zhang Wuji di Xiangyang melalui surat, dan Ki Seung Nyang juga selalu 
+mengandalkan Wang Baobao jika menginginkan informasi penting dari Dadu. Saat ini orang-orang di sebelah mejanya menyebutkan bahwa Wang Baobao sedang 
+berada di dekat tempat itu, dan ia merasa ingin menemuinya. Ia buru-buru menghabiskan shaobing di tangannya, dan minum beberapa teguk teh, lalu 
+menghampiri meja sebelah, dan bertanya, "Kalian tahu di mana Wang Baobao sekarang ini berada ya?"
+
+Orang-orang itu berpaling dan mata mereka langsung tertuju ke seragam militer yang dikenakan Yin Li, dan kemudian beralih ke mukanya yang dipenuhi 
+bekas luka. Salah seorang bertanya, "Kenapa kami harus memberitahu engkau?"
+
+Mendengar jawaban itu, Yin Li tahu bahwa mereka hanya mengharapkan uang untuk membayar harga makanan dan minuman yang sedang mereka makan, Ia lalu 
+mengeluarkan selembar uang kertas Dinasti Yuan dari dalam sakunya, lalu meletakannya di atas meja, sambil diam-diam mengerahkan sedikit tenaga 
+dalam untuk membuat lembaran itu melesak sebagian di permukaan meja kayu. Lalu ia tersenyum sambil berkata, "Kurasa kalian juga perlu sedikit daging, kan?"
+
+Melihat angka yang tertera di atas uang kertas itu, salah seorang dari mereka segera menunjuk ke arah penginapan di seberang jalan tanpa mengatakan apa-apa.
+
+Yin Li melihat ada beberapa prajurit sedang berjaga di luar pintu penginapan itu sambil minum-minum dan makan bakpao dengan santai. Tanpa mengatakan 
+apa-apa lagi, ia segera beranjak dari kedai itu, dan berjalan menuju ke penginapan yang ditunjuk. Setelah ia pergi, orang-orang itu terbelalak menyaksikan 
+lembaran uang yang melesak masuk ke permukaan meja kayu, dan dengan agak susah payah mereka akhirnya bisa menariknya keluar.
+
+Di luar penginapan itu, Yin Li mendekati para prajurit yang sedang makan bakpao sambil mengobrol, dan menunjukkan tanda pengenal yang diberikan oleh 
+Ki Seung Nyang sambil berkata, "Tolong tunjukkan ini kepada Wang Baobao."
+
+Begitu melihat penampilan dan wajah Yin Li, dan juga tanda pengenal itu, si prajurit segera beranjak dari tempat duduknya, lalu berlari masuk 
+ke dalam penginapan. Tak lama kemudian ia keluar sambil berkata, "Junzhu, silakan ikuti aku!"
+
+Prajurit itu membawanya ke lantai atas, dan mengetuk pintu kamar pertama yang mereka lewati tiga kali. Pintu itu segera dibuka dari dalam, dan 
+Yin Li dipersilakan masuk, untuk menemui seorang pria bertubuh jangkung dan tegap, berusia sekitar dua puluh enam tahun, dan berwajah tampan. Pria itu 
+tersenyum ramah sambil berkata, "Shaoli Junzhu, atau aku harus memanggilmu Zhu'er?"
+
+Yin Li tertawa. Sesuatu di dalam diri orang ini membuatnya agak kikuk, dan ia tidak tahu apa sebabnya. Usia Wang Baobao boleh dikatakan sebaya 
+dengan Zhang Wuji, dan keduanya sama-sama bertubuh tinggi. Wang Baobao sedikit lebih tinggi, tetapi Zhang Wuji lebih kekar dan berotot. Keduanya 
+sama-sama tampan, meskipun wajahnya jauh berbeda. Wang Baobao memang saudara sepupu Zhao Min, tetapi raut muka mereka sama sekali tidak mirip. 
+Mata Wang Baobao agak sipit, lebih punya ciri khas Mongolia, dengan tulang pipi yang agak tinggi. Barangkali sekilas ketika pertama kali melihatnya 
+tadi, Yin Li merasa sedang melihat sosok Zhang Wuji, maka kesan itu membuatnya kikuk, atau bahkan tanpa sadar ia tersipu. Tetapi tanpa malu-malu 
+ia kemudian mengamati wajah Wang Baobao dengan teliti, dan kemudian berkata, "Kenapa kau sama sekali tidak mirip dengan Minmin?"
+
+Wang Baobao tertawa ringan dan menjawab, "Jadi menurutmu seharusnya kami mirip ya?"
+
+[^biaoge]: Biao Ge (表哥) adalah kakak sepupu laki-laki dari pihak ibu. Sebenarnya dari sisi Yin Li, ia seharusnya memanggil Zhang Wuji Tang Ge (堂哥), dan Zhang Wuji yang memanggilnya Biaomei (表妹). Yin Li mengabaikan perbedaan istilah ini.
+[^tangge]: Tang Ge (堂哥) adalah kakak sepupu laki-laki dari pihak ayah.
+
+"Ya," kata Yin Li. "Banyak orang menganggapku mirip dengan kakak sepupuku[^biaoge], Zhang Wuji."
+
+Sekarang giliran Wang Baobao yang mengamati muka Yin Li dengan penuh perhatian, lalu ia kembali tertawa senang, seolah-olah menemukan sebuah mainan baru. 
+Ia berkata, "Aku baru menyadarinya! Kalian berdua memang sangat mirip. Ini berarti ibumu memang sungguh adik kandung ibu Zhang Wuji ya? Mengapa 
+aku tidak pernah melihatmu sebelum ini?"
+
+"Bukankah aku juga tidak pernah melihatmu, padahal kau adalah kakak sepupu Minmin?" balas Yin Li. "Dan kau salah, ibu Zhang Wuji adalah adik kandung ayahku!"
+
+"Nah, berarti kau yang salah," kata Wang Baobao tak mau kalah. "Seharusnya kau memanggilnya Tangge[^tangge]. Hei, bukankah berarti kita sama, karena 
+ibuku juga adalah adik kandung ayah Minmin. Tapi Minmin sekarang memanggilku Gege begitu saja, karena sejak ayah meninggal, ayahnya mengangkatku sebagai putranya sendiri."
+
+Yin Li memonyongkan mulutnya, dan memandang ke atas sambil berpikir sejenak, lalu tertawa keras-keras dengan bebas. Mereka tertawa bersama-sama. 
+"Kau benar," kata Yin Li. "Kenapa aku tidak memperhatikan soal panggilan itu? Mungkin karena sebelumnya aku tidak pernah memanggilnya Gege sama sekali. 
+Bahkan dia membohongiku, mengaku namanya adalah Zeng Aniu!"
+
+Wang Baobao kembali memandangi Yin Li dengan penuh rasa ingin tahu. Hal ini membuat Yin Li agak kikuk, dan ia berkata, "Aku tahu, aku memang jelek. 
+Tapi kau juga tidak perlu menatapku seperti itu."
+
+"Maafkan aku," kata Wang Baobao, seolah baru tersadar. "Aku tidak pernah mengatakan kau jelek, karena kau sama sekali tidak jelek. Aku sangat suka 
+melihatmu. Kau selalu bicara terus terang."
+
+Yin Li agak kaget mendengar ucapannya, lalu tanpa sadar ia tersipu, dan mukanya memerah. Ini kedua kalinya ia mendengar seorang pria tampan mengucapkan begitu 
+saja kata 'suka' itu. Lalu tiba-tiba ia tertawa terbahak-bahak, dan berkata dengan nada seenaknya, "Padahal aku baru saja membohongi Huang Shang di istana, 
+dan juga mereka semua. Kecuali Bibi Qi!" Tiba-tiba ia merasa bersalah, dan berkata, "Tapi seharusnya aku tidak membohongi Muhou, dia sangat baik, dan juga tulus. 
+Sayangnya, aku terpaksa melakukannya."
+
+Wang Baobao bingung sejenak. "Muhou?" ulangnya. "Oh, maksudmu Permaisuri Bayan? Kenapa kau memanggilnya Muhou?"
+
+Yin Li menceritakan apa yang dialaminya di istana. Wang Baobao mendengarkan ceritanya dengan penuh perhatian dari awal sampai akhir. Ia sama sekali 
+tidak menyela. Lalu ia berkata setelah Yin Li kehabisan bahan untuk bercerita, "Dalam hal ini kau tidak bisa disalahkan. Kukira Permaisuri Bayan 
+juga tidak akan menyalahkanmu, seandainya suatu hari nanti dia mendengar kebenarannya. Mengenai kedua orang itu — Tian Feng dan Wang Shicheng — aku sendiri 
+juga tidak mempercayai mereka, meskipun apa yang mereka katakan benar."
+
+"Maksudmu mengenai putra pertama Muhou itu — Zhenjin?" tanya Yin Li.
+
+"Betul," kata Wang Baobao. "Kematiannya memang agak misterius, dan Permaisuri Bayan tidak ingin menyelidiki masalah itu lebih lanjut, dan hanya menerimanya 
+sebagai Kehendak Surga. Waktu itu ayah sempat berpikir bahwa ini pasti ulah salah satu selir lain, yang berharap untuk memiliki anak laki-laki untuk 
+menjadi Putra Mahkota, karena posisi Ayushiridara tetap saja masih dengan gampang bisa digeser. Qi Huanghou hanya seorang perempuan Goryeo, dia juga 
+tidak punya garis keturunan yang cukup mendukung di sana. Ada seorang wanita keturunan Khongirad lain yang bahkan lebih tua ketimbang Qi Huanghou, 
+yang akhirnya menjadi Permaisuri ketiga, atau tepatnya keempat, jika kita memasukkan Danashiri dalam hitungan. Namanya Munashiri, tetapi dia hampir 
+tidak pernah tampil di depan umum, dan Kaisar tidak menyukainya, sampai sekarang dia tidak punya anak seorang pun. Ini membuat ayah akhirnya berhenti 
+menebak-nebak."
+
+"Bagaimana dengan Bibi Qi?" tanya Yin Li.
+
+"Hm! Jadi kau mencurigainya?" kata Wang Baobao, balas bertanya.
+
+"Sebetulnya tidak, aku percaya dia tidak melakukannya," kata Yin Li. "Tapi dia salah satu orang yang punya alasan kuat untuk itu. Dan dia juga 
+tipe orang yang memang bisa saja melakukannya. Aku hanya ingin tahu pendapatmu."
+
+"Kau memang benar," kata Wang Baobao. "Dan dalam hal ini aku pun percaya dia tidak melakukannya. Saat itu banyak orang mencurigainya, tapi semuanya 
+memang tidak terbukti. Aku lebih tertarik soal Bolad Temur itu, sekarang dia pasti merasa penasaran ingin menghabisimu. Kau mempermalukannya di depan 
+banyak orang. Yang paling menyesakkan dada pastilah kenyataan bahwa anaknya sendiri sekarang menjadi ibumu!" Ia tertawa terbahak-bahak.
+
+"Itu memang lucu," kata Yin Li. "Tapi di dalam lelucon itu banyak masalah serius."
+
+"Kau benar," kata Wang Baobao. Mukanya berubah serius, ketika berkata, "Zhu'er, kalian harus segera menyita meriam-meriam itu. Tapi kau tidak 
+perlu mengawalnya sendiri ke istana, _aku_ yang akan melakukannya. Dengan begitu kita sekaligus memberi kesan yang lebih mendalam bahwa kau adalah 
+bagian dari keluarga Chaghan Temur. Dan aku juga ingin berbicara langsung dengan beberapa orang di istana, sekarang aku punya alasan untuk itu."
+
+"Wah, kau seharusnya sejak awal bergabung dengan kami di Kaifeng," kata Yin Li. "Taktikmu sangat jitu!"
+
+"Memang tidak bisa begitu," jawab Wang Baobao. "Harus ada orang yang menangani pos di utara, dan aku memang orang yang tepat. Saat ini ayah lebih 
+banyak bergerak ke segala tempat, dan mereka tidak bisa menduga perubahan rencananya. Sedangkan Zhang Wuji dan yang lain ada di selatan. Hanya ada 
+kau dan Minmin yang menduduki Henan — pusat segala masalah. Meriam itu bisa kita pastikan adalah yang sebelumnya akan dikirim ke Shaolin, tetapi 
+Bolad Temur tidak mengembalikannya ke istana, dan sebelum ini tidak ada orang yang mempermasalahkannya. Sekarang _kau_ mengungkit masalah itu 
+di depan Majelis, sudah jelas Bolad Temur sangat membencimu."
+
+Yin Li menguap, lalu berkata, "Sebetulnya aku ingin segera berangkat, tapi sekarang ini aku sangat lelah. Aku membahas segala masalah ini dengan Minmin 
+semalam suntuk, jadi aku hanya tidur satu jam. Dan tadi pagi Bolad Temur membuatku kehilangan semua energi."
+
+Wang Baobao bangkit berdiri dan berkata, "Kau tidur saja di sini, aku akan memesan kamar lain. Orang-orang kita selalu menjaga di luar, kau bisa 
+menanyakan kepada mereka apa saja yang ingin kau tanyakan."
+
+Tanpa menunggu jawaban Yin Li, ia segera keluar dari kamar itu. Segera setelah meletakkan kepalanya di atas bantal, Yin Li tertidur lelap. Ia terbangun 
+karena merasa lapar, dan ternyata saat itu sudah hampir tengah malam. Ia terkejut, lalu segera bangkit dari pembaringan dan melongok ke jendela.
+Suasana malam di ibukota itu lebih ramai ketimbang di Kaifeng. Dari lantai dua penginapan itu matanya melihat sosok Wang Baobao keluar dari pintu 
+depan penginapan. Ia segera berseru, "Hei! Tunggu aku!"
+
+Wang Baobao menghentikan lagkahnya, lalu memberi isyarat supaya ia segera turun. Yin Li menyambar pedangnya, lalu bergegas keluar dari ruangan itu 
+dan turun ke lantai dasar, dan berlari keluar. "Kau mau kemana?" tanyanya.
+
+[^bebek-panggang]: Shao Yazi (烧鸭子), alias Bebek Panggang, yang di jaman modern terkenal dengan nama 'Bebek Panggang Peking'. Dadu atau Khanbaliq adalah Beijing atau Peking di jaman modern.
+
+"Sebetulnya aku ingin mencari makanan enak untukmu," jawab Wang Baobao sambil tersenyum. "Tapi rasanya kita makan di kedai saja, di sini jika kau 
+tidak makan Shao Yazi[^bebek-panggang] sepuasnya, maka kau pasti sangat rugi!"
+
+Sebetulnya Yin Li sering memanggang bebek sendiri, yang dicurinya dari salah satu rumah orang kaya. Tapi ia ingin tahu, apa bedanya makanan yang 
+dibangga-banggakan Wang Baobao itu dengan buatannya, atau buatan Jinhua Popo. Ternyata makanan khas Dadu itu memang pantas dibanggakan oleh para 
+penduduk ibukota. Bebek besar itu dilapisi madu di bagian luarnya, lalu lapisan kedua terdiri dari kecap, dan juga lima macam bumbu tradisional. 
+Setelah semua bumbu itu dilumurkan, bebek itu didiamkan selama sehari penuh, baru kemudian dipanggang di dalam tempat tertutup hingga warnanya 
+coklat keemasan. ketika Yin Li mencicipi bagian kulitnya, rasanya sangat renyah dan gurih, aromanya membuat Yin Li terus-terusan memuji. "Hm, ini 
+sungguh-sungguh enak!"
+
+[^chunbing]: Chun Bing (春饼) adalah roti bundar tipis seperti pancake, tetapi dikukus. Nama itu sendiri secara literal berarti 'Roti Musim Semi'.
+
+Mereka memesan seekor utuh bebek panggang, yang dimakan bersama chunbing[^chunbing], irisan ketimun, dan banyak-banyak irisan bawang.
+
+Wang Baobao mengamati Yin Li makan dengan senang. "Aku tahu bebek-bebek besar ini pasti berasal dari Nanjing, tapi sekarang mereka sudah punya 
+peternakan sendiri di Dadu," kata Yin Li. "Tapi harus kuakui, kalian memasaknya dengan cara yang istimewa."
+
+"Kau suka?" tanya Wang Baobao. "Nah, lain kali kau harus membayar hutang, dengan memasak untukku."
+
+Yin Li tertawa terbahak-bahak dan berkata, "Anak-anak di Kaifeng semuanya lebih pintar. Mereka menggabungkan masakan Minmin dengan masakan Zhou Zhiruo. 
+Lain kali kau harus mencicipinya sendiri. Aku bukan bilang makanan ini kalah dengan masakan mereka, tapi masakan mereka sangat lain."
+
+"Aku pasti tidak bisa mengikuti kalian mengobrak-abrik rumah Gongsun Bao di Kaifeng," kata Wang Baobao. "Jadi aku punya banyak waktu untuk makan, 
+sementara kalian bekerja di situ." Ia bertanya dengan nada lebih serius, "Berapa orang yang kita perlukan untuk membawa meriam itu?"
+
+"Jangan lebih dari lima puluh orang," kata Yin Li. "Dan kalian tidak boleh jalan sebelum matahari terbenam, atau semua orang akan tahu." Setelah 
+berpikir sejenak, ia kemudian berkata, "Kupikir lebih baik kau sama sekali tidak membawa orang dari sini. Kita akan memakai para prajurit dari Kaifeng. 
+Kalau kau merasa kurang nyaman dengan Chang Yuchun, aku bisa memilih semua prajurit yang memang berasal dari Henan. Chang Yuchun pasti menyimpan catatan 
+tentang mereka semua."
+
+"Tidak perlu," kata Wang Baobao. "Aku percaya kau sudah mengerjakan semuanya dengan baik, dan Chang Yuchun pasti tidak berani mengkhianati kita."
+
+Tiba-tiba Yin Li teringat akan sesuatu, dan bertanya, "Bibi Qi bilang bahwa dia akan mengamankan ibu Minmin dan semua wanita lain itu, apa kau 
+pernah menerima utusan dari Bibi Qi mengenai hal ini?"
+
+"Itu sudah beres," jawab Wang Baobao. "Murong Bing dan Dongfang — siapa?"
+
+"Dongfang Yuxian," kata Yin Li. "Jadi mereka yang diutus untuk mengurus masalah itu? Sekarang semuanya ada di mana?"
+
+"Semuanya ada di Suzhou, tinggal di dekat rumah selir ayah yang baru melahirkan," kata Wang Baobao. "Zhu'er, soal ini tidak perlu kita pusingkan untuk 
+sementara. Mereka semuanya tidak mengerti ilmu silat, dan sama sekali tidak akan menarik perhatian siapapun. Kulihat Dongfang Yuxian dan Murong Bing 
+itu sangat cerdik, jadi mereka pasti bisa mengurus semuanya dengan baik. Setelah keadaan aman, baru kita menghubungi mereka lagi."
+
+"Hm, sebaiknya jika di depan orang lain kau jangan memanggilku Zhu'er, ini pasti akan menimbulkan kecurigaan," kata Yin Li lagi. "Di Kaifeng 
+itu Bibi Qi punya banyak teman-teman wanita, yang semuanya cerewet, jadi mereka pasti memperhatikan masalah kecil seperti ini. Panggil saja aku Ah Li.
+Minmin juga sudah tahu tentang hal ini." Ia kemudian bergumam sendiri, "Aneh, mengapa setiap kali aku memanggil seseorang 'ayah', dia pasti punya sejumlah 
+besar istri?"
+
+Wang Baobao terkekeh, dan berkata, "Kenapa, Zhu'er, ayahmu sendiri juga punya banyak istri ya?"
+
+"Sudahlah," kata Yin Li. "Lain kali akan kuceritakan kalau kau memang ingin tahu. Dia tidak penting. Kita punya banyak urusan mendesak di Kaifeng. 
+Ayo kita berangkat!"
 
 
 
