@@ -338,7 +338,7 @@ Ayah Im Ji-hwa memang berasal dari Songdo, ibukota Goryeo, dan adalah seorang pe
 dituduh ingin memberontak, dan hendak dijatuhi hukuman mati. Ia bertemu dengan seorang wanita dari suku Han yang kemudian menjadi ibu Im Ji-hwa 
 di Xinxiang. Ibu Im Ji-hwa adalah putri dari seorang sastrawan, karena itu cukup terpelajar, meskipun bukan dari keluarga bangsawan atau pejabat. 
 Ketika mereka menikah, ayah Im Ji-hwa menuliskan marganya sebagai karakter Ren yang bisa dimengerti oleh suku Han, tetapi kemudian ia menyebutkan 
-bahwa nama itu juga bisa ditulis sebagai 'Lin'. Ketika Im Ji-hwa lahir, ayah dan ibunya melihat banyak sekali bunga gerdenia tumbuh di sekitar gubuk kecil 
+bahwa nama itu juga bisa ditulis sebagai 'Lin'. Ketika Im Ji-hwa lahir, ayah dan ibunya melihat banyak sekali bunga gardenia tumbuh di sekitar gubuk kecil 
 yang menjadi tempat tinggal mereka, lalu ayahnya mengambil nama bunga itu untuk memberinya nama. Ibunya merasa bahwa nama bunga ini dalam bahasa Han, yaitu Zihua, 
 cukup manis bagi seorang anak perempuan, jadi ia menggabungkannya menjadi Ren Zihua.
 

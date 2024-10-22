@@ -246,9 +246,18 @@ biasa dipakai di antara lingkungan terdekatnya. Jadi orang lain hanya mengenalny
 
 Ia tidak berbohong ketika mengatakan bahwa marganya adalah Qi.
 
+## Ben Gong
+
+Ben Gong (本宮) adalah cara seorang wanita terhormat di istana menyebut dirinya sendiri di hadapan orang lain. Biasanya istilah ini
+digunakan oleh wanita dengan kedudukan tertinggi, misalnya Permaisuri.
+
+Jika wanita itu belum memiliki status resmi atau berada di bawah status tertinggi di tempat yang sama, istilah 
+Ben Gongzhu (本公主) akan dipakai. Misalnya, seorang anak dari selir atau permaisuri.
+
+Orang lain akan memanggil seorang permaisuri dengan sebutan sama seperti gelar mereka, yaitu Huanghou, atau bisa juga memakai istilah 
+yang lebih akrab 'Niangniang' (娘娘), yang bisa diartikan 'Yang Mulia'.
 
 
- 
 
 
 
