@@ -1026,7 +1026,8 @@ rumah dinas supaya Huang Shang bisa beristirahat di situ."
 Ia tidak berminat menemani Liu Futong dan Han Lin'er lebih lama lagi, lalu memanggil Xu Da untuk mengiringi mereka ke rumah dinas Kepala Wilayah 
 yang sementara ini sudah kosong. Sejak tadi ia sangat penasaran, dan ingin bertanya kepada Zhao Min.
 
-***
+
+## Tamu Dari Persia
 
 Di Dadu, Ki Seung Nyang terbangun dari tidurnya setelah mendengar ketukan di pintunya berkali-kali. Masih setengah sadar dari mimpi, ia melompat 
 dan bergegas membuka pintu. Ia melihat Permaisuri Bayan dan Chunhua sedang menunggu di depan pintu. Muka Permaisuri Bayan pucat pasi, dan buru-buru 
