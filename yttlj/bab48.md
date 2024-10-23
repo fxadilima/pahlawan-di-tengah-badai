@@ -1363,7 +1363,7 @@ jangan memakai atribut Ming Jiao di sini, dan selalu bersikap hati-hati."
 
 Mereka masih meneruskan obrolan itu sambil makan, lalu berpisah di depan kedai. Orang-orang Persian itu mengikuti nasihat Mei Jian, dan kembali ke Tianjin, 
 dan melanjutkan perjalanan melalui kapal ke Jiangnan. Mei Jian sendiri segera berkuda ke arah selatan. Tak lama setelah ia pergi, Park Bul-hwa menaiki keretanya, 
-dan kusirnya mengikuti Mei Jian dari nelakang sambil menjaga jarak baik-baik.
+dan kusirnya mengikuti Mei Jian dari belakang sambil menjaga jarak baik-baik.
 
 
 
