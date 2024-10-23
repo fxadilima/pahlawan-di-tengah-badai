@@ -2,6 +2,8 @@
 
 ![Ilustrasi Bab 46](/assets/images/Yuan-Dynasty-10.jpg "Kemenangan cuma-cuma")
 
+## Kemenangan Cuma-Cuma
+
 Sebelum fajar menjelang, pintu ruangan Permaisuri Bayan diketuk dari luar, dan langsung membangunkannya. Ia cepat-cepat duduk tegak di pembaringannya, 
 dan sesaat ia belum menyadari apa yang ada di sekelilingnya. Sebelumnya ia sempat bermimpi sedang berjalan-jalan ke Kaifeng sendirian, dengan hanya 
 ditemani oleh seorang pelayan wanita. Di situ ia bertemu dengan Yin Li, dan mereka menghabiskan waktu seharian di taman bunga untuk menceritakan 
@@ -822,7 +824,8 @@ atau melakukan kekerasan dalam bentuk apapun juga kepada rakyat Kaifeng setelah 
 Yin Li memberi isyarat supaya para penduduk yang ada di sekelilingnya kembali ke tempat semula, lalu berkata sambil merentangkan tangan kanannya 
 ke arah pintu gerbang, "Liu Chengxiang, silakan!"
 
-Liu Futong sekarang sudah tahu pasti siapa Yin Li sebenarnya, dan ia juga membalas sikap itu dengan berkata, "Nona Yin, silakan!"
+Liu Futong sekarang sudah tahu pasti siapa Yin Li sebenarnya, dan ia juga membalas sikap itu dengan berkata, "Nona Yin, silakan!" Dengan begitu 
+ia sudah memutuskan untuk menerima kemenangan cuma-cuma yang diberikan Yin Li, tetapi tidak melepaskan segala kecurigaannya.
 
 Xu Da berkuda di belakang Yin Li, yang menngiringi Liu Futong dan Han Lin'er memasuki kota Kaifeng dari pintu gerbang selatan. Rakyat Kaifeng 
 yang sedang berkerumun di dekat pintu gerbang itu dengan patuh menyingkir ke sisi kiri-kanan jalan masuk untuk memberi jalan, sementara Kepala Wilayah 
