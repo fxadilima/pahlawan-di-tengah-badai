@@ -88,7 +88,7 @@ Tetapi malam itu Yin Li ternyata menyodorkan tanda pengenal Permaisuri Bayan, da
 gerakan mereka sudah terendus oleh Bolad temur, karena Permaisuri Bayan adalah putri kandung Bolad Temur. Lebih jauh lagi, saat itu berita yang ramai 
 tersebar adalah Permaisuri Qi bertentangan dengan Permaisuri Bayan, karena masalah pewarisan tahta, yang oleh banyak orang diasumsikan pastilah karena 
 Bolad temur bermaksud mendorong cucunya sendiri, Xue Shan, menjadi putra mahkota Dinasti Yuan. Xiao Liang tentu saja tidak diberitahu tentang masalah 
-sebenarnya yang erjadi di istana, karena Ki Seung Nyang memang menganggapnya tidak perlu. Jadi sebenarnya pada saat berhadapan dengan Zhao Min dan Yin Li, 
+sebenarnya yang terjadi di istana, karena Ki Seung Nyang memang menganggapnya tidak perlu. Jadi sebenarnya pada saat berhadapan dengan Zhao Min dan Yin Li, 
 ia sedang meraba-raba, sebenarnya saat itu ia sedang berhadapan dengan lawan atau kawan?
 
 Terlebih jauh lagi, ia sangat terkejut mendengar Yin Li dengan bebas menyebut Permaisuri Bayan dengan sebutan 'Muhou', yang hanya digunakan oleh 
