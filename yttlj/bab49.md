@@ -2,6 +2,7 @@
 
 ![Ilustrasi Bab 49](/assets/images/Yuan-Dynasty-8.jpg "Menjadi Hamba Yang Melayani")
 
+
 Ayah Chunhua baru berhasil meloloskan orang-orang terbaiknya keluar dari Kaifeng melewati pintu utara, di tengah situasi mencekam ketika 
 Liu Futong memasuki kota. Setelah menutup kedainya, ia sendiri kemudian mengutus seorang pelayannya untuk menggabungkan diri dengan kerumunan 
 para penduduk untuk menyelidiki apa yang sedang terjadi, setelah ketegangan itu mereda, dan secara berangsur-angsur beberapa keadaan mulai agak 
@@ -150,7 +151,7 @@ Liu Yifang bertepuk tangan sambil berkata, "Mantel ini ternyata sangat pas untuk
 tidak memerlukan mantel seperti ini. Biasanya Niangniang hanya memakai mantel biasa. Ini selalu disimpannya di dalam kotak, bersama hadiah-hadiah lain 
 dari Kaisar."
 
-Zhao Min masuk ke dalam kamar dengan mengenakan setelan mewah yang biasa dikenakannya untuk menghadiri pesta-pesta di Hanyang. Ia berkata, "Cepat, 
+Zhao Min masuk ke dalam kamar dengan mengenakan setelan biru yang mewah, yang biasa dikenakannya untuk menghadiri pesta-pesta di Hanyang. Ia berkata, "Cepat, 
 jangan bertele-tele lagi, kita harus berpatroli keliling kota. Aku sudah mengatakan kepada Bibi Liu dan kawan-kawannya supaya membuka kios dan kedai-kedai 
 mereka malam ini juga. Mereka semuanya sangat lelah, tapi Ding Shijie dan murid-muridnya akan membantu mereka melakukannya."
 
@@ -292,13 +293,13 @@ Tanpa banyak bicara lagi, komandan itu dan semua bawahannya mengikuti Lin Zihua 
 
 Dari kedai itu, mereka beranjak ke sebuah rumah bordil yang tampak sangat meriah. Banyak prajurit Liu Futong memasuki tempat itu sambil tertawa-tawa 
 dan menggandeng beberapa wanita yang menyambut mereka dengan tangan terbuka. Papan nama di depan pintu bangunan indah yang cukup luas itu berbunyi 
-'Kebun Bunga Persik'[^kebun-bunga-persik]. Warna-warna pakaian maupun bangunan itu sendiri didominasi oleh warna putih dan merah muda, seperti warna 
-bunga persik. 
+'Kebun Bunga Persik'[^kebun-bunga-persik]. Pakaian yang dikenakan para penghuninya dan bangunan itu sendiri didominasi oleh warna putih dan merah muda, 
+seperti warna bunga persik. 
 
 Keluarga Yin Li adalah keluarga kaya di Jiangnan. Meskipun ayahnya sering mengunjungi tempat-tempat hiburan, dan membawa pulang wanita-wanita dari 
 tempat seperti itu, tetapi tempat yang didatangi ayahnya bukan seperti Taohua Yuan ini. Rumah Bordil yang ada di hadapan mereka adalah kelas menengah, 
-dan wanita-wanita penghibur yang ada di situ memang terang-terangan melayani kebutuhan seksual pria-pria hidung belang tanpa memperhatikan dari mana 
-mereka berasal, dan juga belum tentu mengerti seni dan tidak berpendidikan tinggi. Ayahnya selalu mendatangi tempat hiburan yang jauh lebih berkelas. 
+dan wanita-wanita penghibur yang ada di situ memang terang-terangan hanya melayani kebutuhan seksual pria-pria hidung belang tanpa memperhatikan dari mana 
+mereka berasal, juga belum tentu mengerti seni dan tidak berpendidikan tinggi. Ayahnya selalu mendatangi tempat hiburan yang jauh lebih berkelas. 
 Wanita yang menjadi penghuni tempat itu semuanya berpendidikan tinggi, dan biasanya hanya menampilkan tari-tarian dan membawakan lagu-lagu yang sungguh 
 bernilai seni tinggi. Jika pria yang menjadi tamu mereka adalah seperti Yin Yewang, yang berpenampilan sopan dan berbicara dengan gaya bahasa yang baik, 
 barulah mereka akan melayani apa yang diinginkan oleh pelanggan itu, dan dengan penawaran harga yang cocok, bukan tidak mungkin akhirnya mereka akan 
@@ -329,7 +330,7 @@ bahunya. Dengan segera air muka wanita itu berubah cerah, lalu ia tersenyum sena
 tarian yang Junzhu maksud. Di sini hanya ada penyanyi dan pemain musik yang tidak terlalu ahli."
 
 "Tidak jadi masalah," kata Yin Li. "Teman-teman kecilku ini banyak yang bisa melakukannya. Kau harus ingat, mereka hanya sekedar bermain musik dan menari, 
-_bukan_ untuk melakukan hal lain. Kau boleh menarik bayaran dari siapa saja yang berminat untuk menonton pertunjukan itu, dan memesan lagu-lagu pilihan 
+_bukan_ untuk melakukan hal lain. Kau boleh menarik bayaran dari siapa saja yang berminat menonton pertunjukan itu, dan memesan lagu-lagu pilihan 
 mereka sendiri dengan bayaran lebih, Kau tentu tahu maksudku."
 
 "Oh, aku mengerti," jawab wanita itu dengan cepat. 
@@ -393,8 +394,8 @@ Dua orang memegang sitar dam seruling, dan seorang gadis berusia lima belas tahu
 
 Im Chan-mi memasuki ruangan dengan diiringi oleh alunan musik yang lembut, dengan gaya yang sangat elegan. Dandanannya tampak mirip dengan gadis muda 
 yang berasal dari Dinasti Song Utara, sebelum dikuasai oleh para serdadu Jurchen. Setelah irama pembuka itu, suara jernih Ning Chengzhu mengalun 
-lembut mengiringi langkah-langkah kaki Im Chan-mi dengan membawakan sebuah lagu yang mengandung syair klasik karya Yi'an Jushi[^li-qingzhao]. lekuk-lekuk 
-tubuh Im Chan-mi yang sedang dalam usia emas bagi seorang gadis remaja tampak sangat harmonis dengan garakan yang sedang dibawakannya. Suasana berubah 
+lembut mengiringi langkah-langkah kaki Im Chan-mi dengan membawakan sebuah lagu yang mengandung syair klasik karya Yi'an Jushi[^li-qingzhao]. Lekuk-lekuk 
+tubuh Im Chan-mi yang sedang dalam usia emas bagi seorang gadis remaja tampak sangat harmonis dengan gerakan yang sedang dibawakannya. Suasana berubah 
 menjadi romantis. Para prajurit dan pejabat Liu Futong yang hadir di tempat itu memang sudah terpengaruh oleh minuman keras yang mereka minum sebelumnya. 
 Saat itu tarian Chan-mi membuat mereka merasa terayun-ayun.
 
@@ -437,11 +438,11 @@ Prajurit itu tertawa terbahak-bahak, lalu berkata dengan lantang, "Kau kira ini 
 dibandingkan apa yang bisa kau bayangkan seumur hidupmu di Goryeo! Sudahlah, tak usah berpura-pura. Ikut aku menemui Song Daren."
 
 Im Chan-mi makin takut. Ia bersembunyi di belakang Lin Zihua tanpa berani mengeluarkan suara. Zou Mama segera mendekat dan memungut kepingan uang emas 
-yang terserak di tengah arena tari itu sambil bergumam, "Amituofo, aku tidak pernah melihat uang sebanyak ini. Meihua, kumpulkan emas-emas ini!" 
+yang berserakan di tengah arena tari itu sambil bergumam, "Amituofo, aku tidak pernah melihat uang sebanyak ini. Meihua, kumpulkan emas-emas ini!" 
 
 Salah seorang wanita penghibur segera mengumpulkan semua uang emas itu dan memasukkannya ke dalam sebuah kantong kulit. Sementara itu Zou Mama 
-berpaling ke arah si prajurit sambil berkata, "Komandan, Nona Chan-mi memang hanya tamu di tempat ini. Keahliannya memang menari, dan di negeri asalnya 
-dia berasal dari keluarga terpelejar. Jika Song daren memang menginginkan sesuatu yang lain, kami juga menyediakan pelayanan seperti itu." Ia menoleh kepada 
+berpaling ke arah si prajurit sambil berkata, "Komandan, Nona Chan-mi memang hanya tamu di tempat ini. Keahliannya memang menari, dan di negerinya 
+dia berasal dari keluarga terpelajar. Jika Song Daren memang menginginkan sesuatu yang lain, kami juga menyediakan pelayanan seperti itu." Ia menoleh kepada 
 salah seorang wanita penghibur cantik dengan payudara besar sambil berkata, "Caihong, kau pergi bersama komandan ini untuk menemui Song Daren. Jangan 
 membuatnya kecewa!"
 
@@ -453,8 +454,8 @@ Suaranya membuat Zou Mama dan Caihong mundur beberapa langkah ke belakang. Muka 
 
 [^siling-guan]: Siling Guan (司令官) secara literal berarti 'Komandan Militer'.
 
-Shangguan Wu berdiri dari tempat duduknya dengan anggun. "Komandan," katanya dengan sopan. "Tempat ini hanya tempat hiburan rakyat, 
-dan gadis ini memang hanya menyajikan tari-tarian dan musik. Mengapa menghunus golokmu di sini?"
+Shangguan Wu berdiri dari tempat duduknya dengan anggun. "Komandan," katanya dengan sopan. "Tempat ini hanya tempat hiburan rakyat. Gadis ini memang 
+hanya menyajikan tari-tarian dan musik. Mengapa menghunus golokmu di sini?"
 
 Prajurit itu sebenarnya bukan seorang komandan pasukan, tetapi sejak tadi ia mendengar orang menyebutnya Siling Guan[^siling-guan]. Saat itu 
 ia sedang terpengaruh oleh minuman keras, dan merasa sebutan itu ada benarnya. Ia sudah lama mengharapkan kenaikan pangkat, tetapi sampai saat itu 
@@ -475,7 +476,7 @@ samar-samar baginya, dan ia berkata dengan lantang sambil mengacungkan goloknya,
 aku akan menunjukkan bagaimana kami memperlakukan orang-orang seperti ayahmu di selatan!"
 
 Prajurit itu mengayunkan goloknya sekuat tenaga ke arah anak buah Torebeg yang sedang melindungi Shangguan Wu. Para pengunjung di tempat itu menjerit 
-ngeri. Saat itu juga sesosok bayangan yang mengenakan mantel bulu merah menyala berkelebat di atas kepala mereka. Zhao Min mengerahkan qinggong-nya 
+ngeri. Saat itu juga sesosok bayangan yang mengenakan pakaian mewah berwarna biru berkelebat di atas kepala mereka. Zhao Min mengerahkan qinggong-nya 
 untuk menyelamatkan anak buat Torebeg, tetapi karena jauhnya jarak dari tempatnya berdiri ke tengah arena tarian Chan-mi, ia terpaksa menggunakan 
 dua kepala pengunjung sambil berkata, "Maafkan aku, maafkan aku!" 
 
@@ -483,7 +484,9 @@ Ia tiba di tengah arena tepat pada saat golok si prajurit berada dua sentimeter 
 dipinjamnya dari Touba Yong menyentuh bagian tengah golok yang lebar dan berat itu sambil mengerahkan Jiu Yang Shen Gong yang sekarang telah 
 mencapai tingkat hampir sempurna. Pada saat bersamaan, ujung sepatunya bergerak ke arah titik akupuntur di bahu kanan si prajurit. Golok itu terpental 
 sejauh beberapa meter di sebelah kanan Shangguan Wu, dan prajurit itu tidak dapat menggerakkan lengan kanannya. Ia hendak berteriak marah, tetapi 
-detik berikutnya jari telunjuk kiri Zhao Min menyentuh titik akupuntur di leher bagian bawah, sehingga ia tidak bisa bersuara.
+detik berikutnya jari telunjuk kanan Zhao Min menyentuh titik akupuntur di leher bagian bawah, sehingga ia tidak bisa bersuara. Sebelum prajurit itu 
+sempat melakukan upaya lain, tongkat bambu di tangan kiri Zhao Min bergerak cepat menotok tiga titik akupuntur di lututnya secara beruntun. Ia jatuh 
+terduduk tanpa bisa melakukan apa-apa lagi.
 
 Para pengunjung yang sudah terlanjur berseru ngeri itu terpana selama beberapa detik menyaksikan demonstrasi Zhao Min. Beberapa orang menarik nafas 
 lega, dan beberapa lainnya mengucapkan doa syukur dengan cara mereka masing-masing. 
@@ -493,6 +496,76 @@ Zhao Min menatap prajurit itu tajam-tajam sambil bertanya kepada Shangguan Wu, "
 Shangguan Wu menghela nafas panjang sebelum menjawab, "Aku baik-baik saja."
 
 Zhao Min berteriak ke arah belakang kerumunan pengunjung, "Panglima Xu, tangkap mereka semua! Bawa ke hadapan Liu Chengxiang untuk diadili."
+
+"Siap!" teriak Xu Da, sambil bergerak ke arah seorang pejabat yang sejak tadi diincarnya. Beberapa orang prajurit yang dibawanya dengan sigap meringkus 
+semua orang lain yang dimaksud Zhao Min. Mereka sejak awal memang berada di antara kerumunan penonton sambil mengenakan pakaian seperti penduduk Kaifeng 
+pada umumnya, dan menunggu aba-aba Zhao Min untuk bertindak.
+
+Orang-orang yang mereka tangkap berteriak-teriak marah. Song Bolin yang sudah mabuk berat tidak lagi menyadari apa yang sedang terjadi. Xu Da hanya 
+mencekal kedua pergelangan tangannya, lalu mengingatnya menjadi satu ke belakang punggung.
+
+Sementara Zhao Min dan Xu Da menggiring tawanan mereka ke rumah dinas yang dijadikan istana sementara bagi Han Lin'er, Yin Li memasuki ruangan dan 
+mendekati Zou Mama sambil tersenyum lebar. Ia berkata, "Aku menepati janjiku. Berapa keuntungan yang kau dapatkan malam ini?"
+
+Pemilik rumah bordil itu membalas senyumnya sambil berkata, "Kami belum sempat menghitungnya. Tapi ini semua kan hasil jerih payah Nona Chan-mi 
+dan Junzhu sendiri."
+
+"Kau bisa menyimpannya," kata Yin Li dengan ringan. "Lain kali kau harus membantuku jika aku menghubungimu."
+
+Zou Mama dan Caihong terkekeh. "Kami pasti akan mengikuti semua nasihat Junzhu," kata Caihong.
+
+Yin Li berpaling kepada pasukan rahasianya sambil berkata, "Shangguan Wu, Zanmei, kita masih banyak urusan lain!"
+
+Setelah berganti pakaian, Shangguan Wu dan rekan-rekannya bersama para anak buah Torebeg berjalan bersama Yin Li ke rumah dinas. Rekan-rekan mereka 
+lainnya telah lebih dahulu menuju ke situ bersama Zhao Min dan Xu Da. Para anak buah Torebeg sekarang bisa bercakap-cakap dengan Shangguan Wu 
+sambil tertawa lepas. Mereka baru mengalami sendiri bagaimana terlibat langsung dalam rencana Yin Li. 
+
+"Tadi betul-betul gawat," kata orang yang sebelumnya berdiri di depan Shangguan Wu. "Aku sungguh merasa leherku akan putus. Entah bagaimana Junzhu 
+bisa bergerak secepat itu."
+
+Shangguan Wu berkata sambil tersenyum, "Sebenarnya tadi aku bermaksud menangkis serangannya, tapi aku sendiri kaget Junzhu ternyata tiba lebih cepat. 
+Jika aku bergerak, kemungkinan besar golok itu akan membabat putus lenganku."
+
+Di perempatan yang bisa membawa mereka ke rumah dinas, rumah yang menjadi markas mereka atau pasar, Ding Minjun bersama rombongan Bibi Liu datang 
+naik kuda dan kereta, dan bergabung dengan Yin Li. 
+
+Ding Minjun berkata, "Kami tadi menangkap beberapa prajurit Liu Futong yang minta uang keamanan kepada para pemilik kios di pasar. Shen Feiling dan 
+Wu Shiniang sudah mencatat nama-nama mereka, beserta keterangan para pemilik kios. Para prajurit kita sedang menggiring mereka ke rumah dinas."
+
+"Luar biasa!" kata Yin Li sambil bertepuk tangan. "Kita membuat Liu Futong dan Han Lin'er sibuk sepanjang malam. Aku ingin tahu apa yang akan mereka 
+lakukan dengan orang-orang mereka sendiri, sementara semua buktinya ada di tangan kita."
+
+Tetapi kemudian ia menguap beberapa kali. Bibi Liu yang baru turun dari kereta melihat hal itu, lalu berkata, "Junzhu, kau dan adikmu belum makan 
+sejak tadi. Sebaiknya kau pulang untuk beristirahat. Kami akan membangunkanmu jika ada sesuatu yang penting."
+
+Yin Li baru menyadari bahwa selain lelah dan mengantuk, ia juga merasa sangat lapar. Setelah mendengar Bibi Liu mengatakan tentang 'makan', ia 
+merasa perutnya lebih lapar lagi. Ia berkata, "Ding Shijie, aku akan pulang bersama Bibi Liu dan yang lain. Tolong katakan kepada Minmin, aku sedang 
+menunggu kabar dari istana."
+
+"Baik, kau istirahat dulu, aku akan menemani Minmin," kata Ding Minjun.
+
+Yin Li hanya makan sepotong shaobing dan minum sup daging yang tersedia di meja setelah sampai di rumah. Ia sama sekali tidak mendengar ketika 
+Liu Yifang membawa beberapa hidangan lain ke ruang tamu. Ia tertidur pulas di kursinya tanpa melepas mantel bulu tebal yang dipakainya.
+
+Ketika terbangun, ia bingung sejenak. Ia ternyata tidur di atas dipan yang biasa dipakai Ki Seung Nyang untuk berbaring sambil mendengarkan ocehan 
+sahabat-sahabatnya dan memikirkan segala persoalan di Kaifeng. Dipan itu telah digeser ke dekat meja makan, dan ia telah dipindahkan ke situ, kemungkinan 
+oleh Bibi Liu dan teman-temannya. Selimut tebal membungkus tubuhnya dari leher sampai ke ujung kaki.
+
+Ia melihat Zhao Min sedang tidur pulas di sebelah meja makan, beralaskan karpet Persia tebal yang dibawa dari kamarnya. Karena perutnya berbunyi, 
+ia segera makan beberapa kue yang masih tersisa di atas meja dengan hati-hati, supaya tidak membangunkan Zhao Min. 
+
+Di bawah cahaya lilin yang redup, ia kemudian mengisi mangkuk kosong dengan nasi yang sudah dingin, dan makan dengan lahap ditemani oleh potongan besar 
+daging domba yang juga sudah dingin. Ia minum beberapa teguk arak, lalu kembali mengisi mangkuknya dengan nasi.
+
+Setelah merasa kenyang, ia berjalan keluar dari ruangan itu untuk menghirup udara segar di halaman depan. Sambil meregangkan otot-ototnya, ia 
+mulai berpikir tentang apa yang kira-kira sedang dilakukan oleh Liu Futong di rumah dinas. Tak ada catatan apapun yang ditinggalkan Zhao Min 
+sebelum tidur. Ding Minjun tidak ada di situ, kemungkinan besar ia menginap di rumah Sejuta Sutra bersama murid-murid perempuan Emei. Semua 
+teman-teman Ki Seung Nyang juga sudah pulang.
+
+"Mereka pasti sangat lelah setelah bekerja keras semalam suntuk," pikirnya.
+
+Tiba-tiba telinganya mendengar suara ayam berkokok. "Astaga," pikirnya. "Berapa jam aku tertidur? Ini sudah menjelang fajar."
+
 
 
 
