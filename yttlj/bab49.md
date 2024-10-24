@@ -566,6 +566,36 @@ teman-teman Ki Seung Nyang juga sudah pulang.
 
 Tiba-tiba telinganya mendengar suara ayam berkokok. "Astaga," pikirnya. "Berapa jam aku tertidur? Ini sudah menjelang fajar."
 
+Ia masuk ke ruang tamu dan menyambar pedangnya yang tergeletak di atas lantai, lalu bergegas keluar dari ruang tamu. Setelah menutup pintu dengan hati-hati 
+supaya tidak membangunkan Zhao Min, ia berlari keluar dari pagar rumah, dan melompat ke atas punggung kudanya. Ia bermaksud mengintip apa yang 
+terjadi di rumah dinasnya, tetapi ketika lewat di perempatan, telinganya mendengar bisik-bisik dari sekelompok orang yang tampaknya baru pulang dari 
+arah pintu gerbang selatan kota. Merekka tampak lelah dan mengantuk, tetapi masih membicarakan apa yang baru mereka lihat di sana.
+
+"Benar-benar kejam," kata seorang pria empat puluh tahunan yang berpakaian seperti sastrawan. "Itu anak buahnya sendiri."
+
+"Tapi mereka memang begitu," kata temannya. "Aku pernah mendengar mereka menguliti tawanan hidup-hidup."
+
+"Itu kan tawanan, ini orang mereka sendiri!"
+
+"Bagaimana mereka bisa bilang orang Mongolia kejam? Junzhu tidak pernah berbuat begitu!"
+
+Yin Li memutar kudanya dan mendekati pejalan kaki itu, lalu bertanya dengan ramah, "Shushu, ada apa?"
+
+"Ah, Junzhu!" sapa pria empat puluhan itu dengan gembira. "Tadi kami melihat kepala seorang pejabat dan prajurit Liu Futong digantung di atas 
+pintu gerbang selatan. Di atasnya ada kain putih yang bertuliskan 'Pengkhianat Dinasti Song'."
+
+"Apa?" kata Yin Li kaget. Tanpa menunggu reaksi mereka, ia segera memacu kudanya ke arah selatan.
+
+Setibanya di pintu gerbang, ia memang melihat kepala Song Bolin dan prajurit yang mereka tangkap di rumah bordil semalam. Tulisan yang diceritakan 
+oleh para pejalan kaki itu memang ada di situ, dan ditulis dengan darah mereka sendiri dalam huruf besar. 
+
+"Kasihan," pikir Yin Li. "Kalian sial, aku tertidur, jadi tidak bisa menolong kalian." 
+
+Di dalam hatinya ada sedikit rasa bersalah, karena ia memang sengaja mendorong mereka untuk melakukan kesalahan supaya bisa menggunakannya untuk 
+memaksa Liu Futong mengakui kekeliruannya dan menyingkir dari Kaifeng. Tetapi beberapa detik kemudian rasa bersalah itu disingkirkannya sendiri. 
+
+"Kalian sudah diperingatkan," pikirnya. "Salah sendiri tidak mau mendengar."
+
 
 
 
