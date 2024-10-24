@@ -42,6 +42,25 @@ Calon nama yang akan dipakai dan cukup menarik:
    Kita bisa memakai Shangguan Wu, Shangguan Quan, Shangguan Gong atau Shangguan Bing
 
 
+Nama-nama tanpa marga untuk anak-anak perempuan:
+
+1. Chenxing 晨星 
+2. Chanyuan 禅院
+3. Caihong 彩虹
+4. Bo, Bao, Bai
+5. An 按 = peaceful atau menurut
+6. Chanjuan 婵娟
+7. Yù míng (玉明)
+8. Yī nuò (诺).
+9. Yīng (英)
+10. Yáng (阳). 
+11. Xiù (秀).
+12. Xīn yí (欣怡).
+13. Xīn yán (欣妍).
+14. Mei (美).
+15. Xiāng (香). 
+16. Min (敏). Bisa menjadi nama Korea atau juga bisa dipakai untuk anak laki-laki. 
+
 Goryeo
 
 1. Lee 李, 異, 伊
@@ -65,7 +84,7 @@ Goryeo
      Untuk membuatnya lebih menarik, kita bisa menamai anak ini Lin Chan-mi atau Ren Zanmei (任赞美).
 6. Park Seo-yang 朴瑞陽 kita ambil namanya, dan ganti marganya menjadi Lee, atau Im
    Nama Seo-yang (Hanja 瑞阳) dibaca Rui Yang dalam bahasa mandarin
-
+7. Jin-Gyeong (Hangul 진경, atau Hanja 陳慶) 
 
 Mongolia
 
@@ -77,5 +96,15 @@ Mongolia
 ## Lokasi
 
 - Lembah Kupu-kupu terletak di Huaibei, masih termasuk wilayah utara, tetapi sedikit di selatan Kaifeng.
+
+
+## Prostitusi
+
+In the Song (960 – 1279) and Yuan (1271 – 1368) Dynasties, the registration and regulation of courtesans and entertainers remained in the hands of the court-run music and dance schools, whose recruits could include girls sold by impoverished families to slave traffickers. Those who were designated as “government courtesans” were mostly enslaved female relatives of criminals and political prisoners, and were on call to entertain ministry officials at public functions or in their homes.
+
+In general, social attitude towards courtesans was negative because of rigid class distinction. With the rise of orthodox Neo-Confucianism in the Northern Song Dynasty, scholar-officials’ association with courtesans was considered immoral and generally frowned upon by society. Granted, it was common for scholar-officials and wealthy merchants to purchase and keep trained courtesans for sex and private entertainment.
+
+The most famous Song courtesan-poet was Li Shishi (1062 – 1127), who had a secret passionate love affair with Song Emperor Huizong (1082 – 1135).
+
 
 

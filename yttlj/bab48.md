@@ -943,7 +943,7 @@ dan akhirnya menyebabkan salah paham yang sangat besar. Aku akan menjelaskan sem
 mereka. Ini hanya kesalahpahaman." 
 
 Xu Da bersama dua orang anak buahnya segera membebaskan ikatan semua orang yang berpenampilan seperti orang-orang India itu, lalu Zhao Min meminta 
-penerjemahnya minta maaf bagi mereka akibat kesaahpahaman yang tidak perlu. Ia juga menyuruh beberapa prajurit mengantarkan mereka untuk menginap 
+penerjemahnya minta maaf bagi mereka akibat kesalahpahaman yang tidak perlu. Ia juga menyuruh beberapa prajurit mengantarkan mereka untuk menginap 
 di salah satu penginapan terdekat, dan mencatat semua biaya mereka atas nama dirinya dan Yin Li.
 
 "Bagaimana dengan mereka?" tanya Han Lin'er sambil menunjuk ke arah kelompok yang menjadi musuh orang-orang Persia itu dalam perkelahian semalam. 
@@ -1107,14 +1107,16 @@ Kasim yang menjaga di luar pintu bersama dua orang pelayan agak ragu, karena saa
 diganggu pada saat seperti ini. Meskipun jabatannya hanya selir biasa, tetapi kasim itu tahu jelas bahwa Kaisar justru paling mencintai Selir Luo 
 dibandingkan semua wanita lain di situ. 
 
-Kasim Kim adalah seorang keturunan Goryeo, dan ia sudah melayani Kaisar Toghon Temur sejak Danashiri menikah. Maka dari itu Kasim Kim juga tahu 
+[^jae-beom]: Jae-beom (hangul 재범 atau hanja 宰範 atau 載範), maka Ki Seung Nyang kadang-kadang memanggilnya Zai Fan, karena memudahkan semua orang yang tidak berbahasa Goryeo.
+
+Kim Jae-beom adalah seorang kasim keturunan Goryeo, dan ia sudah melayani Kaisar Toghon Temur sejak Danashiri menikah. Maka dari itu Kim Jae-beom juga tahu 
 bahwa di malam pengantinnya, yang akhirnya menjadi pengantin sebenarnya justru adalah Selir Luo, yang pada saat itu bahkan bukan seorang selir, dan 
 hanya seorang pelayan istana. Dengan bijaksana ia sama sekali tidak mengatakan apa-apa kepada siapapun mengenai peristiwa itu. 
 
 Sekarang kedua permaisuri ini ingin menemui Kaisar dan Selir Luo pada jam yang salah, dan tampaknya mereka tidak peduli apakah Kaisar akan merasa 
 terganggu atau tidak. Ia memandang Ki Seung Nyang sambil berkata dengan nada penuh hormat, "Huanghou, tadi Kaisar mengatakan tidak ingin diganggu."
 
-"Aku tahu," kata Ki Seung Nyang. "Tolong katakan bahwa kami ingin bicara tentang meriam. Kaisar akan mengerti."
+"Aku tahu," kata Ki Seung Nyang. "Zaifan[^jae-beom], tolong katakan bahwa kami ingin bicara tentang meriam. Kaisar akan mengerti."
 
 Mendengar kata 'meriam', air muka Kasim Kim berubah. Tanpa menanyakan apa-apa lagi, ia segera mengetuk pintu, lalu terdengar suara Toghon Temur, 
 "Ada apa? Bukankah tadi aku sudah bilang, aku lelah!"
@@ -1153,7 +1155,7 @@ semacam dia, jadi Huang Shang tidak perlu kuatir. Dia tidak akan bisa kabur dari
 
 Sebenarnya Toghon juga tidak ingin membiarkan Mei Jian pergi, tetapi dari cerita Ki Seung Nyang, keputusan itu memang tepat. Saat ini ia tidak bisa 
 membiarkan Bolad temur atau pihak lain lagi menguasai senjata berat yang bisa membahayakan wilayah utara, terutama sekali Henan dan Dadu. Setelah berpikir 
-agak lama, akhirnya ia bertepuk tangan tiga kali untuk memanggil Kasim Kim, lalu berkata, "Panggil Selir Mei ke sini!"
+agak lama, akhirnya ia bertepuk tangan tiga kali untuk memanggil Kasim Kim, lalu berkata, "Zaifan, panggil Selir Mei ke sini!"
 
 Ah Luo masih punya persediaan Danhuanng Su buatan Permaisuri Bayan di ruangannya. Sambil menikmatinya, mereka membicarakan apa yang sedang terjadi 
 di Kaifeng sementara menunggu Mei Jian datang. 
@@ -1309,7 +1311,7 @@ dua karakter dalam bahasa Han yang berbunyi 'Xiao Zhao'.
 
 Mei Jian tersenyum lebar, lalu mengambil kembali kertas-kertas berisi tulisan mereka dan merobek-robeknya menjadi potongan kecil-kecil. beberapa 
 orang pelayan memasuki ruangan itu dan berdiri menunggu di pintu dengan sikap penuh hormat, lalu membungkuk dan meletakkan beberapa piring berisi makanan 
-yang dipesan Mei Jian. Setelah itu mereka langsung keluar tapa ribut. Mei Jian menunggu sejenak untuk memastikan bahwa semua pelayan telah menuruni 
+yang dipesan Mei Jian. Setelah itu mereka langsung keluar tanpa ribut. Mei Jian menunggu sejenak untuk memastikan bahwa semua pelayan telah menuruni 
 tangga, sebelum berkata, "Aku hanya mengenal Tajkis. Jadi sekarang anaknya yang menjadi ketua kalian ya?" Ia mempersilakan mereka makan semua hidangan 
 yang tersedia dengan bebas.
 
