@@ -807,12 +807,12 @@ aku hanya alat untuk menyingkirkan para pemberontak di wilayah selatan. Jadi aku
 Mufei, dan tentu saja semua ibu kita adalah adik seperguruannya. Dia tewas bunuh diri di Wudang, karena dipaksa mengatakan di mana Xie Xun berada. Mereka 
 tidak mau bilang, dan lebih suka mati."
 
-Ah Xiu memang pernah mendengar cerita itu, tetapi ia tidak pernah mendengar tentang riwayat Zhang Wuji. Ia hanya bertanya, "Jadi sekarang Qi Ah Yi 
-sudah menemukan keponakan mereka itu ya? Kalau kedua orang tuanya suah meninggal, berarti dia terlantar sejak kecil, kasihan. Mungkin Qi Ah Yi ingin 
+Ah Xiu memang pernah mendengar cerita itu, tetapi ia tidak pernah mendengar tentang riwayat Zhang Wuji. Ia hanya bertanya, "Jadi sekarang Qi Muhou 
+sudah menemukan keponakan mereka itu ya? Kalau kedua orang tuanya suah meninggal, berarti dia terlantar sejak kecil, kasihan. Mungkin Qi Muhou ingin 
 mengajari dia kungfu."
 
 "Kau lagi-lagi salah," kata Lihua sambil tertawa. "Saat ini di Wulin tidak ada orang yang bisa mengalahkan kungfu Zhang Wuji, karena itu Ming Jiao 
-mengangkatnya menjadi ketua mereka. Bahkan semua ibu kita sekarang ini adalah bawahannya! Bayangkan, dan sekarang dia menguasai Xiangyang."
+mengangkatnya menjadi ketua mereka. Bahkan semua ibu kita sekarang ini adalah bawahannya! Bayangkan, sekarang dia menguasai Xiangyang."
 
 Saat itu Ah Xiu baru tertarik, dan ia langsung berkata, "Lihua, sekarang juga kita pergi dari sini!"
 
