@@ -766,11 +766,11 @@ Tak seorang pun dari mereka mengira apa yang sedang terjadi di istana saat itu. 
 mereka yang kabur dari istana. Malam itu, Lihua hanya pura-pura tertidur di ruangan pribadi Permaisuri Bayan. Setelah Permaisuri Bayan pergi ke ruangan 
 Ah Luo, ia tidak segera meninggalkan ruangan itu, tetapi diam-diam menyelinap ke ruangan kakaknya, Ah Xiu. 
 
-Ah Xiu adalah putri Toghon Temur dari Ah Luo, yang sekarang sudah seusia Zhao Min, dan tentu saja ia juga mewarisi ilmu silat ibunya. Jika Lihua selalu 
+Ah Xiu adalah putri Toghon Temur dari Ah Luo, yang sekarang sudah seusia Zhou Zhiruo, dan tentu saja ia juga mewarisi semua ilmu silat ibunya. Jika Lihua selalu 
 diawasi dengan ketat, mengingat sudah berkali-kali menipu semua orang dan menyelinap keluar dari istana, maka Ah Xiu jauh lebih bebas. Semua orang beranggapan 
-bahwa ibunya bukan selir peringkat atas, karena itu mereka juga tidak terlalu mempedulikan Ah Xiu. karena wataknya agak aneh dan tidak ramah, maka 
-kebanyakan kasim dan pelayan juga tidak menyukainya. Saat ini Ah Xiu sudah memiliki sebuah ruangan tersendiri, tetapi ia tidak mau dilayani para pelayan 
-istanam jadi hampir tidak ada orang yang mengunjungi ruangannya, kecuali Lihua dan Ayushiridara. Putra Permaisuri Bayan yang saat itu masih kecil juga 
+bahwa ibunya bukan selir peringkat atas, karena itu mereka juga tidak terlalu mempedulikan Ah Xiu. Karena wataknya agak aneh dan tidak ramah, maka 
+kebanyakan kasim dan pelayan pun tidak menyukainya. Saat ini Ah Xiu sudah memiliki sebuah ruangan tersendiri, tetapi ia tidak mau dilayani oleh para pelayan 
+istana, jadi hampir tidak ada orang yang mengunjungi ruangannya, kecuali Lihua dan Ayushiridara. Putra Permaisuri Bayan yang saat itu masih kecil juga 
 sering bermain-main di sekitar tempat tinggal Ah Xiu, jika tidak sedang menginap di tempat kediaman kakeknya.
 
 Ketika Lihua tiba di depan pintu kamarnya, Ah Xiu sedang melamun sendirian di sebuah pendopo yang berada di tengah taman. Ia melemparkan sebutir kacang 
@@ -795,9 +795,9 @@ Yang jelas aku tidak kenal, jadi aku tidak mau!"
 
 "Lalu bagaimana pendapat Mufei[^mufei]?" tanya Lihua lagi.
 
-Ah Xiu tampak agak kesal. Ia menjawab sambil melemparkan sebutir kacang di tangannya ke arah atap, "Ibu sama saja. Dia malah bilang jika aku menguasai 
-Yunnan, maka berikutnya aku akan bisa lebih mudah menghubungi Xiangyang, karena kedua tempat itu sama-sama berada di selatan. Rupanya bagi ibu maupun ayah 
-aku hanya alat untuk menyingkirkan para pemberontak di wilayah selatan. Jadi aku malas membicarakan tentang hal ini dengan ibu."
+Ah Xiu tampak agak kesal. Ia menjawab sambil melemparkan sebutir kacang di tangannya ke arah atap, "Mama sama saja. Dia malah bilang jika aku menguasai 
+Yunnan, maka berikutnya aku akan bisa lebih mudah menghubungi Xiangyang, karena kedua tempat itu sama-sama berada di selatan. Rupanya bagi Mama maupun ayah 
+aku hanya alat untuk menyingkirkan para pemberontak di wilayah selatan. Jadi aku malas membicarakan tentang hal ini dengan Mama."
 
 "Wah! Dalam hal ini kau keliru," kata Lihua. "Kau belum tahu siapa yang berkuasa di Xiangyang sekarang."
 
@@ -808,7 +808,7 @@ Mufei, dan tentu saja semua ibu kita adalah adik seperguruannya. Dia tewas bunuh
 tidak mau bilang, dan lebih suka mati."
 
 Ah Xiu memang pernah mendengar cerita itu, tetapi ia tidak pernah mendengar tentang riwayat Zhang Wuji. Ia hanya bertanya, "Jadi sekarang Qi Muhou 
-sudah menemukan keponakan mereka itu ya? Kalau kedua orang tuanya suah meninggal, berarti dia terlantar sejak kecil, kasihan. Mungkin Qi Muhou ingin 
+sudah menemukan keponakan mereka itu ya? Kalau kedua orang tuanya sudah meninggal, berarti dia terlantar sejak kecil, kasihan. Mungkin Qi Muhou ingin 
 mengajari dia kungfu."
 
 "Kau lagi-lagi salah," kata Lihua sambil tertawa. "Saat ini di Wulin tidak ada orang yang bisa mengalahkan kungfu Zhang Wuji, karena itu Ming Jiao 
@@ -828,7 +828,7 @@ ia sendiri memang dibutuhkan untuk mengantarnya ke situ. Tanpa membuang waktu la
 Ia segera mengendap-endap menuju ke ruangan kasim, lalu menotok dua orang yang dikenalnya, dan berbisik, "Kalian bawa dua perangkat pakaian kasim lain, 
 lalu temui aku di ruangan Ah Xiu."
 
-Kedua kasim yang masih muda itu sudah mengenal tabiat Lihua dengan baik, dan mereka mulai ketakutan. Gadis itu bisa berbuat apa saja sekehendaknya 
+Kedua kasim yang masih muda itu sudah mengenal tabiat Lihua dengan baik, dan mereka mulai ketakutan. Gadis itu bisa berbuat apa saja sekehendak hatinya 
 kepada mereka, tapi jika mereka menurut, maka kemungkinan besar mereka masih bisa lolos. Jadi mereka tidak banyak bertanya, lalu melakukan apa yang 
 disuruh Lihua.
 
@@ -853,12 +853,334 @@ Ketika Mei Jian keluar dari istana, sebenarnya Lihua dan Ah Xiu sudah keluar set
 pakaian dengan pakaian wanita suku Han biasa, yang mereka bawa dari istana. Dari Tianjin mereka naik kapal menuju ke Shanghai. Setelah itu, rencana Lihua, 
 mereka akan menanyakan jalan tercepat menuju ke Xiangyang melalui sungai.
 
+[^nazaruddin]: Nama Nasr al-Din ini tentunya di Indonesia lebih populer ditulis Nazarudin, Nazaruddin atau Nasarudin.
 
+Permaisuri Bayan malam itu sama sekali tidak tidur setelah Mei Jian pergi. Ia ikut membicarakan masalah politik bersama Ki Seung Nyang, Ah Luo dan 
+Kaisar Toghon Temur sampai pagi. Mereka bahkan sempat membahas tentang rencana perkawinan Ah Xiu dengan keturunan Gubernur Yunnan yang pertama, Sayyid Ajjal, 
+dari sayap Nasr al-Din[^nazaruddin]. Nasr al-Din pernah dipindahkan ke Shaanxi untuk menjadi Gubernur di sana, tetapi ia akhirnya tetap menjadi Gubernur Yunnan, 
+posisi yang dipertahankannya sampai ia meninggal.
 
+Kekuasaan Dinasti Yuan di Yunnan memang sudah agak lama goyah, karena wilayah itu sekarang lebih banyak dikuasai para bandit. Toghon Temur berharap, 
+dengan bantuan Ah Xiu yang memiliki kungfu tinggi, mereka akan kembali menguasai wilayah itu. Dengan begitu mereka juga akan lebih mudah menghubungkannya 
+dengan Xiangyang yang sekarang menjadi wilayah Zhang Wuji.
 
+Tak seorang pun dari mereka menduga, bahwa kemudian Ah Luo baru menyadari anaknya telah menghilang tanpa jejak dari istana. Akibat merundingkan rencana 
+pernikahannya semalaman, mereka semua hanya sempat tertidur satu jam, itu pun di ruangannya, setelah Toghon Temur sendiri kembali ke ruangan pribadinya. 
+Tak lama setelah Ah Luo menyadari Ah Xiu menghilang, Permaisuri Bayan dan Ki Seung Nyang tergopoh-gopoh mendatanginya dengan kabar bahwa Lihua juga 
+menghilang. Karena Ah Luo sebelumnya marah-marah kepada semua kasim dan pelayan yang disuruhnya secara diam-diam mengawasi Ah Xiu, akhirnya Toghon Temur 
+mendengar kabar tersebut.
 
+Selama ini mereka semua hanya tahu bahwa Ah Xiu agak aneh, suka menyendiri, dan bersikap tidak ramah kepada semua orang, tetapi ia hanya gemar berlatih 
+kungfu, bukan seperti Lihua yang suka bepergian keluar istana. Ah Xiu sama sekali belum pernah meninggalkan istana sendirian, dan tidak kenal jalan. 
+Tentu saja Toghon Temur langsung menarik kesimpulan bahwa semua ini adalah ulah Lihua, yang tidak ingin kena marah sendirian, lalu mengajak kakaknya 
+ikut keluar istana. Mereka lalu mehyimpulkan, dengan salah satu cara, Lihua sudah mendengar rencana Mei Jian untuk pergi ke arah Kaifeng, lalu bermaksud 
+mengikuti ibunya. Karena itu Toghon kemudian mengutus beberapa pengawal pribadinya dengan ilmu bela diri yang tinggi, untuk melacak jejak Lihua dan Ah Xiu 
+di sepanjang jalan dari Dadu sampai ke Kaifeng. Mereka sama sekali tidak menduga bahwa kedua gadis itu ternyata naik kapal dari Tianjin menuju ke Shanghai.
 
+Bagi Ah Xiu dan Lihua, pejalanan itu adalah sebuah kebebasan dan petualangan yang sangat menyenangkan. Selama ini Ah Xiu tidak pernah keluar dari istana, 
+kecuali jika ibunya dan Kaisar ingin mengunjungi sebuah kuil agama Buddha, sambil mengajak mereka semua, atau ada acara resmi kekaisaran lainnya. 
+Tetapi pada saat seperti itu, mereka dikelilingi oleh para pengawal istana, para pelayan dan kasim, serta semua jajaran menteri dan penasihat Dinasti Yuan 
+yang jumlahnya tak terhitung bagi Ah Xiu. Karena itu, bukan seperti Lihua yang suka bepergian, ia tidak tertarik untuk pergi dari istana, dan hanya 
+menghabiskan waktunya untuk berlatih kungfu setiap hari. Setelah itu ia akan membaca buku-buku sejarah yang ditulis ibunya, bersama dengan kedua bibi 
+gurunya yang lain, termasuk ibu Lihua, yang dipanggilnya Mufei, sementara ia memanggil ibunya sendiri dengan sebutan 'Muqin', sama seperti cara yang 
+dipakai Ayushiridara. Khususnya bagi Ki Seung Nyang dan Permaisuri Bayan, mereka akan memanggil Ki Seung Nyang dengan sebutan Qi Muhou, sedangkan Permaisuri 
+Bayan memang dipanggil Muhou oleh semua anak-anak Kaisar Toghon Temur, termasuk putranya sendiri.
 
+Kapal yang ditumpangi oleh Ah Xiu dan Lihua adalah sebuah kapal pesiar yang sangat besar dan mewah. Lihua sedikit pun tidak ragu-ragu memboroskan uangnya 
+untuk membayar perjalanan yang bagi mereka sangat menyenangkan itu, karena kesempatan seperti ini sungguh jarang ada. Lihua memang akan dengan mudah 
+bisa menyelinap keluar sebentar, atau bahkan beberapa hari, tetapi ia tak tahu harus pergi ke mana, karena pada dasarnya ia tak punya tujuan yang pasti. 
+Sekarang Ah Xiu membuatnya memiliki tujuan itu, yaitu untuk pergi ke Xiangyang dan menemui kakak mereka, Zhang Wuji. Ia sangat menikmati perjalanan itu, 
+dan diam-diam berharap mereka tidak akan cepat tiba di Xiangyang.
+
+Sebaliknya, Ah Xiu berharap mereka segera tiba di Xiangyang, bahkan kalau bisa detik itu juga. Selama ini tak ada orang yang dianggapnya bisa diajak bicara 
+untuk mengungkapkan semua perasaannya di istana, tidak juga ibunya sendiri, atau Ki Seung Nyang. Setelah mendengar apa yang telah dialami oleh Zhang Wuji 
+sejak kecil, ia tiba-tiba merasa, hanya Zhang Wuji seorang yang akan memahami dirinya, meskipun, tentu saja, ia juga tidak tahu seperti apa rupa Zhang Wuji 
+sebenarnya. Hampir semua yang diceritakan oleh Lihua tentang Zhang Wuji tadi sudah pernah didengar Ah Xiu dari ibunya sendiri, kecuali mengenai Ming Jiao 
+yang mengangkat Zhang Wuji sebagai ketua mereka. Tetapi karena ia selalu menikmati cerita itu, siapa pun yang sedang menceritakannya, ia membiarkan 
+Lihua bercerita.
+
+Pagi itu mereka berdua sedang menikmati pemandangan matahari terbit dari geladak paling atas kapal. Kapal ini sendiri panjangnya lebih dari sembilan puluh meter, 
+dan bisa memuat lebih dari lima ratus orang. Pemandangan laut dari geladak tempat mereka sedang berdiri itu sangat menakjubkan. Pantulan cahaya matahari yang 
+sedang naik dari ufuk timur itu menimbulkan warna keemasan di cakrawala. Hanya dengan memandanginya, suasana hati Ah Xiu yang sedang bergejolak menjadi tenang 
+seperti ombak kecil di lautan saat itu.
+
+"Sekarang ini kita sudah tiba di mana?" tanya Ah Xiu sambil memandang ke cakrawala.
+
+Angin utara sedang bertiup, karena itu kapal mereka bisa bergerak cepat. Jika ditarik garis lurus ke arah daratan, mereka sedang mendekati Dongying. 
+"Kurasa sebentar lagi kita akan tiba di Dongying," kata Lihua dengan gembira. "Kata mereka kita bisa turun sebentar untuk berjalan-jalan."
+
+Tetapi saat itu Ah Xiu tidak tertarik untuk pergi berjalan-jalan. Ia bertanya, "Itu baru di Shandong, kan? Kenapa kapal ini lambat sekali? Untuk apa 
+kita harus berhenti?"
+
+"Dajie, ini kan kapal pesiar," jawab Lihua sambil tertawa. "Semua orang tentu saja ingin turun sebentar untuk bepergian, mungkin ingin membeli sekedar 
+oleh-oleh bagi keluarga mereka di Shanghai."
+
+"Tapi aku tidak ingin berjalan-jalan ke Shandong," kata Ah Xiu dengan kesal. "Dan kita juga tidak perlu membeli oleh-oleh untuk siapa pun. Aku ingin 
+secepat mungkin tiba di Shanghai."
+
+"Mengapa?" tanya Lihua.
+
+Ah Xiu tidak ingin menjawab pertanyaan Lihua. Ia balas bertanya, "Jika kita turun di Dongying, kau tahu bagaimana bisa ke Xiangyang dari situ. Maksudku, 
+lewat darat?"
+
+"Ah, rupanya kau ingin cepat bertemu dengan Wuji Gege!" kata Lihua dengan gembira. Ia senang karena tahu tebakannya benar, bukan karena Zhang Wuji atau 
+hal lain. "Aku tahu, selain kungfunya sangat tinggi, semua orang bilang dia tampan. Banyak wanita menyukainya, dan..."
+
+"Kau cerewet," sela Ah Xiu. "Lain kali aku tidak akan mengajakmu!"
+
+Lihua sebenarnya merasa geli. Sekarang saja Ah Xiu menanyakan jalan ke Xiangyang dari Dongying kepadanya. Bagaimana mungkin tidak mengajaknya bepergian? 
+Tetapi dari semua saudara mereka, orang yang tahan berlama-lama di sisi Ah Xiu hanya dia seorang. Sementara ini Lihua sudah sangat kenal tabiat kakaknya, 
+jadi meskipun ia tahu tebakannya benar, ia tidak ingin memaksa Ah Xiu mengakuinya. Ia berkata, "Tentu saja kita harus naik kuda. Kita bisa membeli kuda yang 
+cepat di pasar terdekat, kurasa kita harus membayar agak mahal."
+
+"Tidak masalah," kata Ah Xiu. "Lalu?"
+
+Lihua tahu jelas apa yang ada di benak Ah Xiu, tetapi ia tidak berani membantahnya. Di antara semua putra-putri Toghon Temur, Ah Xiu adalah anak tertua. 
+Ayah mereka sudah berkali-kali punya rencana menikahkannya dengan beberapa pangeran dari wilayah yang berlain-lainan, dan Ah Xiu selalu menolaknya. 
+Bahkan ayahnya, yang adalah seorang Kaisar di negeri ini, tidak bisa berbuat apa-apa menghadapi Ah Xiu, apalagi dirinya? Jadi untuk menyampaikan 
+pendapatnya sendiri, ia hanya berkata secara sambil lalu, "Mungkin kita juga bisa menanyakan jalan kepada ibu, karena kita pasti akan berpapasan 
+dengan dia jika kita turun di Dongying. Kita bisa lewat Liaocheng."
+
+[^kongfu]: Kong Fu (孔府) adalah kawasan perumahan milik keluarga besar Konfusius, yang terletak di kota Qufu, sebelah barat daya Shandong.
+[^kongzi]: Kongzi (孔子), atau Konfusius, adalah filsuf besar Tiongkok, yang hidup di jaman Dinasti Zhou. Di Indonesia dikenal sebagai sumber ajaran Khonghucu.
+
+"Selain itu?" tanya Ah Xiu.
+
+Sebenarnya Lihua hanya ingin menikmati kebebasan hidup di luar istana, dan bukan sungguh-sungguh berniat mencari Zhang Wuji, Baginya, perjalanan ini lebih lambat 
+berarti lebih baik. Setelah mereka menemukan Zhang Wuji, maka tak lama kemudian pasti mereka akan pulang juga, karena tak ada alasan lagi bagi mereka untuk 
+terus tinggal di Xiangyang. Setelah mendengar bahwa Ah Xiu ingin segera menemukan Zhang Wuji, Lihua tahu jelas bahwa ia telah kehilangan sebagian kesempatan 
+untuk menikmati perjalanan lebih lama. Ia tidak akan punya peluang untuk mengunjungi tempat-tempat indah yang sudah lama ingin dikunjunginya. Tapi setidaknya ia ingin 
+menunda selagi bisa. Ia tahu Ah Xiu tidak ingin ketahuan oleh ibunya bahwa mereka kabur dari istana, tapi ia sengaja menyodorkan gagasan itu. 
+
+Lewat Liaocheng memang akan lebih lama, tetapi tidak ada sesuatu yang menarik bagi Lihua di situ, malah ia akan kepergok oleh ibunya sendiri, dan pasti akan 
+disuruh pulang. Seperti dugaannya, Ah Xiu segera menolak pergi ke Liaocheng. Jadi ia berkata, "Kita bisa lewat Qufu, dari situ agak lebih dekat, dan 
+kita akan bertanya lagi setelah keluar dari pintu gerbang kota itu."
+
+Ah Xiu tidak tahu, di Qufu ada sebuah areal pemukiman yang sangat luas dan bersejarah[^kongfu], yaitu rumah keluarga besar Kongzi[^kongzi], yang ajarannya dijadikan 
+patokan segala kebenaran oleh suku Han. Bahkan Kubilai Khan sendiri juga sangat menghormati Kongzi. Keluarga ayah mereka rata-rata memakai ajaran 
+Kongzi sebagai patokan memimpin negara. Inilah yang banyak ditentang oleh sayap keluarga mereka di Karakorum Mongolia, sehingga sampai detik ini 
+hukum Dinasti Yuan masih terus diperdebatkan.
+
+Setelah tiba di Qufu, ia akan memakai alasan bahwa kakinya sakit, atau ia lelah, dan ingin beristirahat satu-dua hari di penginapan. Setelah itu ia akan 
+mencari akal untuk mampir ke tempat lain di Jiangnan, yang adalah kampung halaman ibu mereka. Di situ Ah Xiu pasti akan senang karena bisa menikmati 
+aneka macam makanan lezat, dan agak melupakan bahwa mereka harus segera pergi ke Xiangyang. Kalaupun akhirnya ia terpaksa menuruti keinginan Ah Xiu 
+untuk segera tiba di Xiangyang, ia pasti akan menemukan alasan untuk mencari di mana tempat tinggal keluarga besar pasangan Pendekar Besar Guo Jing 
+dan Huang Rong, lalu menginap lebih lama di markas besar Zhang Wuji. Melihat dari nada bicara Ah Xiu, Lihua segera tahu bahwa kakaknya ini diam-diam 
+telah jatuh hati kepada kakak seperguruan mereka, yang sebenarnya tak pernah mereka temui sebelumnya. Dengan mudah ia akan mengajak Ah Xiu untuk tinggal 
+lebih lama di Xiangnyang, lalu ia akan menyelinap pergi sendirian ke tempat lain, sementara Ah Xiu sibuk dengan Zhang Wuji. Kalaupun akhirnya ia ketahuan, 
+setidaknya ia sudah menikmati sedikit perjalanan keliling wilayah selatan.
+
+Ah Xiu tahu Lihua punya banyak pengalaman, dan suka mempelajari peta besar di ruang kerja ayah mereka, maka ia mempercayai begitu saja apa yang dikatakan Lihua. 
+Padahal ia sama sekali tak tahu di mana kota Qufu yang disebutkan Lihua itu. Tentu saja ia sedikit pun tidak menyangka bahwa ada jalan pintas dari Jining menuju ke 
+Xuchang, dan dari situ mereka akan tiba setidaknya lima atau enam jam lebih cepat di Xiangyang. Ia berkata, "Baiklah, kita lewat Qufu."
+
+Setelah turun di Dongying, Ah Xiu tidak mempedulikan rengekan Lihua untuk mampir di sebuah kedai dan beristirahat, ia langsung menanyakan tentang tempat 
+membeli kuda terbaik di dekat situ kepada orang pertama yang ditemuinya setelah menginjakkan kaki di darat. Kepada si penjual kuda, ia juga tidak menawar 
+harga sama sekali, dan menanyakan jalan tercepat untuk mencapai Qufu. Tanpa membuang waktu, Ah Xiu mengucapkan terima kasih, lalu langsung menaiki 
+kuda yang diberikan dan berkata kepada Lihua, "Ayo kita berangkat!"
+
+Mereka baru menikmati makan siang di sebuah kedai ketika tiba di Qufu. Kabar yang ditiupkan oleh anak buah Torebeg di Shangqiu bahwa Ming Jiao telah 
+menguasai kota Kaifeng sedang beredar di situ. Ah Xiu yang hanya mendengarkan cerita dari ibunya tentang Ming Jiao di bagian yang menarik hatinya saja, 
+tidak tahu apa-apa mengenai Kaifeng. Tetapi berita itu langsung menarik perhatian Lihua. Ia berbisik, "Bukankah anak angkat Muhou memang sudah agak lama 
+menguasai Kaifeng, mengapa mereka baru tahu sekarang?"
+
+"Siapa anak angkat Muhou?" tanya Ah Xiu sambil terus makan shaobing berisi daging babi di tangannya.
+
+"Menurut mereka dia putri Chaghan Temur, berarti ayah Minmin, ayah memberinya gelar Shaoli Junzhu. Tadinya dia hanya diberi sebuah wilayah kecil di Taiyuan, 
+tapi karena menemukan korupsi besar di Kaifeng, ayah memberikan salah satu wilayah di situ kepadanya," kata Lihua lagi.
+
+Beberapa hari belakangan ini Ah Xiu memang melihat Permaisuri Bayan lebih gembira dari biasanya. Ia juga ingin tahu apa sebabnya, ternyata Lihua 
+menceritakan hal itu. Ia bertanya, "Dari mana kau tahu cerita itu?"
+
+"Semua orang membicarakannya setelah dia muncul di istana, dan memberikan kesaksian mengenai perubahan besar-besaran yang dilakukan oleh Wuji Gege 
+di Ming Jiao," lanjut Lihua.
+
+"Oh, mengenai hal itu aku memang sudah mendengarnya," kata Ah Xiu. "Wuji Gege hanya mengembalikan ajaran Ming Jiao yang asli, dan menyingkirkan ajaran 
+yang bisa membuat orang membenci orang-orang Mongolia. Mama sangat mengagumi keberaniannya dalam hal ini. Bahkan Qi Muhou juga sangat menyayanginya, karena 
+selain semuanya itu, Qi Muhou adalah murid Ming Jiao yang paling dekat dengan Bibi Yin. Qi Muhou diam-diam menganggap Wuji Gege adalah anaknya sendiri. 
+Tapi Mama tidak menceritakan apa-apa tentang Shaoli Junzhu itu, atau aku tidak memperhatikan ceritanya. Bagaimana kau bisa tahu?"
+
+Lihua tertawa. "Yang kau perhatikan hanya cerita tentang Wuji Gege," katanya. "Ah You bahkan sudah ngobrol panjang lebar dengan dia. Muhou memanggilnya 
+Lili. Ah You sendiri, dan mereka semua, memanggilnya Ah Li, kelihatannya nama aslinya memang mengandung 'Li'. Waktu dia datang itu, dia dengan berani 
+mempermalukan Bolad Temur di depan semua orang di Majelis. Ah You dan semua orang tertawa terbahak-bahak."
+
+Selain Xue Shan, yang masih kecil, dan memang cucu kandung Bolad Temur, anak-anak Toghon Temur lainnya tidak menyukai Bolad temur. Mereka cenderung 
+membicarakan Bolad temur dengan menyebut namanya begitu saja, tanpa embel-embel apapun. Ketika melihat kakaknya mulai tertawa ketika mendengar ceritanya, 
+yang mana agak jarang terjadi, Lihua makin bersemangat menceritakan apa yang terjadi di sidang Majelis ketika Yin Li datang ke istana. 
+
+"Jadi Muhou begitu saja mengangkatnya sebagai anak — di depan Bolad Temur — ketika orang itu sedang dipermalukan oleh Lili," tambah Lihua. "Ini kan 
+aneh, Muhou tidak biasanya begitu."
+
+"Itu gampang," kata Ah Xiu. "Dengan mengangkatnya menjadi anak, bukankah Bolad Temur akan menjadi kakeknya? Dari cerita itu, aku bisa melihat, Muhou 
+memang sungguh menyayanginya, tapi sekaligus juga ingin memberi muka kepada ayahnya sendiri. Sejak dulu Muhou memang selalu begitu."
+
+Lihua merasa penjelasan Ah Xiu memang masuk akal, tetapi kemudian ia teringat akan sesuatu, dan berkata, "Setelah keluar dari istana, Ah You sempat 
+bercanda dengan Lili di taman, lalu Tian Feng dan Wang Shicheng muncul sambil mengatakan sesuatu yang menyebutkan bahwa Lili adalah 'cucu Wangye'. 
+Ah You mendengar sendiri kedua penjilat itu mengatakannya. Kau tahu apa reaksi Lili?"
+
+Dari nada bicara Lihua, Ah Xiu sudah menebak apa yang ingin dikatakannya, tetapi ia tetap bertanya, "Apa?"
+
+Lihua menjawab sambil tertawa, "Dia terang-terangan menolak disebut 'Cucu Bolad temur'!"
+
+Tetapi Ah Xiu tidak tertawa. Sebaliknya, ia berkata, "Dia lumayan pintar, tapi dengan mengatakannya secara terang-terangan, berarti dia sedang 
+menciptakan kesulitan bagi dirinya sendiri. Dia ceroboh. Kungfunya bagus?"
+
+"Aku tidak tahu," jawab Lihua. "Tapi kungfu Minmin sekarang maju pesat. Kurasa kungfu mereka berdua sama saja. Keluarga mereka sangat pintar dan licik, 
+karena itu Bolad Temur tidak berkutik di Kaifeng. Kurasa ayah mereka yang selalu mendukung dari belakang."
+
+"Itu sih sudah pasti," kata Ah Xiu.
+
+Sampai di sini, Lihua baru teringat akan hal lain. Ia sudah mendengar bahwa saat ini Zhao Min sudah menjadi istri Zhang Wuji. Ia tidak ingin membuat Ah Xiu kecewa, 
+lalu mengajaknya segera pulang ke istana, jadi ia tidak mengatakannya.
+
+Sebenarnya dalam pandangan Lihua kakaknya lebih cantik ketimbang Zhao Min, tetapi jika bicara soal kungfu, ia sudah mendengar bahwa kungfu Zhao Min 
+sekarang ini sudah mencapai tingkat yang sulit dicari tandingannya. Bahkan ibu Ah Xiu mengaku bahwa mereka bertiga belum tentu bisa mengalahkan Zhao Min.
+Kungfu Ah Xiu adalah yang terbaik di antara semua saudaranya. Saat ini ia sudah mengalahkan ibunya sendiri. Ah Xiu hanya kalah sedikit jika bertarung 
+melawan Ki Seung Nyang, yang mewarisi variasi Yue Nu Jian Fa paling kaya di antara semua saudara seperguruannya. Selain itu Ki Seung Nyang juga menciptakan 
+sebuah formasi pedang yang sejauh ini hanya bisa dipraktekkan oleh keluarga kecil mereka sendiri, yang membuat formasi itu menjadi kurang maksimal. 
+Ki Seung Nyang hanya mewujudkan cita-cita kakak seperguruannya, Tajkis, yang ingin menyaingi Tujuh Pendekar Wudang, maka dari itu formasi 
+yang diciptakannya juga memerlukan tujuh orang yang menguasai ilmu pedang aliran mereka sendiri. Sekarang ini di dalam kelompok kecil mereka yang 
+menguasainya hanya enam orang, termasuk Ayushiridara.
+
+Melihat kakaknya sedang gembira, Lihua lalu sengaja memilih jalan ke arah tempat kediaman keluarga Kongzi, yang secara diam-diam ditanyakannya kepada 
+pemilik kedai ketika membayar harga makanan mereka. Mereka menghabiskan waktu berjam-jam di situ, sampai akhirnya Ah Xiu menyadari bahwa Lihua sedang 
+menipunya. Ia berkata dengan kesal, "Kita membuang terlalu banyak waktu di sini. Ayo kita berangkat!"
+
+Lihua terpaksa menuruti kakaknya, dan keluar dari pemukiman besar itu untuk segera melanjutkan perjalanan. Ketika mereka keluar dari situ, ada sekelompok 
+orang yang tampak mencurigakan sedang berbisik-bisik sambil melewati mereka, "Katakan kepada yang lain, mereka sudah memasuki kaifeng, kita tidak bisa 
+membuang waktu lagi di sini."
+
+"Lalu apa yang harus kita lakukan? Urusan kita adalah meriam-meriam itu," kata yang lain. "Kita tidak bisa kembali ke Kaifeng."
+
+Lihua berbisik kepada Ah Xiu, "Mereka adalah para anggota Kai Pang."
+
+Ah Xiu segera meletakkan jari telunjuknya di depan mulut. Ia membatalkan niat untuk naik ke punggung kudanya, dan mengajak Lihua mengikuti empat 
+anggota Kai Pang itu dari jarak agak jauh. Mereka melihat, tiga orang anggota Kai Pang itu mengenakan tiga kantong di punggung mereka, sedangkan 
+yang seorang lagi memiliki empat kantong. Setelah berbelok dua kali ke kanan, orang-orang itu tiba di dekat kandang kuda, dan mereka merasa lebih 
+bebas bicara.
+
+Salah seorang pengemis tiga kantong itu berkata, "Zeng Zhanglao, kami hanya menerima kabar bahwa situasi di Kaifeng darurat. Junzhu memrintahkan Panglima 
+Xu segera mengosongkan rumah dinas, dan para penduduk di sekitarnya di suruh mengungsi ke luar pintu barat."
+
+"Baiklah," kata pengemis empat kantong yang dipanggil Zeng Zhanglao itu. "Kalian boleh mengajak separuh anak buahku yang ada di sini untuk membantu 
+kesibukan di Kaifeng, tetapi aku harus mengajak sisanya menuju ke utara. Ada kabar dari Liaocheng bahwa saudara kita di Dadu melihat seorang wanita 
+yang tampaknya mencurigakan sedang bergerak ke arah meriam-meriam itu."
+
+"Dari mana kalian tahu dia mengincar meriam-meriam itu?" tanya salah seorang pegemis tiga kantong lainnya.
+
+"Memang belum pasti," jawab Zeng Zhanglao. "Tapi wanita itu tubuhnya sangat tinggi. Kelihatannya bukan orang Zhongyuan. Saudara kita melihatnya 
+berbicara dengan orang-orang Persia di luar Dadu."
+
+Ah Xiu kembali berbisik ke telinga Lihua, "Kelihatannya mereka melihat ibumu."
+
+"Dan Junzhu itu pastilah Lili," kata Lihua. "Berarti Kaifeng saat ini kacau. Musuh dari mana yang berani datang ke situ?"
+
+Ah Xiu kembali memberinya isyarat supaya diam.
+
+Saat itu pengemis tiga kantong yang pertama berkata, "Yang jelas Liu Futong sudah menghukum mati dua orang karena melanggar hukum. Kepala mereka digantung di atas 
+pintu gerbang selatan. Kita tidak bisa diam saja."
+
+Begitu mendengar nama Liu Futong, Lihua segera berbisik, "Itu pemberontak dari Bozhou. Mereka sudah mengumumkan diri sebagai Dinasti Song yang baru. 
+Kaifeng adalah ibukota Dinasti Song, jadi mereka pasti akan menyerang Lili." Ia segera menarik tangan Ah Xiu untuk menjauh dari situ, lalu berkata, 
+"Kita tidak boleh tetap di sini, apalagi mengikuti mereka pergi ke Liaocheng. Mama pasti akan menyuruh kita pulang. Sebaiknya kita menolong Lili di Kaifeng."
+
+"Tapi mereka pasti akan menyerang Mufei," kata Ah Xiu. "Ini hanya salah paham, kita harus memberitahu mereka."
+
+"Bagaimana caranya?" tanya Lihua.
+
+Ah Xiu mengeluarkan tanda pengenal Ming Jiao dari sakunya. "Mereka pasti mengenali tanda ini. Kau juga tinggi seperti Mufei, bahkan muka kalian mirip. 
+Jadi sebaiknya kau yang bicara."
+
+Lihua mengambil tanda pengenal itu, lalu mendahului Ah Xiu berjalan ke tempat para pengemis itu berkumpul. Ia menyapa mereka sambil menunjukkan 
+tanda pengenalnya, "Hei!"
+
+Para pengemis itu sangat terkejut, tetapi Lihua segera memberi isyarat supaya mereka tidak bersuara. Ia mendekat, lalu berkata dengan nada rendah, 
+"Kami berdua adalah adik seperguruan Zhang Jiaozhu. Ibu kami adalah adik seperguruan ibunya. Wanita yang kalian sebutkan tadi adalah ibuku. Jadi kalian 
+salah paham. Ibuku datang untuk membantu."
+
+"Dari mana kami tahu kau tidak berbohong?" tanya Zeng Zhanglao dengan nada curiga. Ia mengamati Lihua dari ujung kepala sampai ujung kaki. Dan mulai 
+menyadari bahwa gadis itu sangat tinggi, yang berarti sama seperti ciri-ciri yang disebutkan oleh saudara mereka dari utara. Ia juga melihat bahwa 
+Lihua sudah jelas adalah orang Zhongyuan, dengan mata besar yang menjadi ciri khas wanita dari selatan. Ia segera merangkapkan kedua tangannya sambil 
+berkata, "Maafkan aku, kelihatannya Nona memang benar."
+
+Ah Xiu berkata, "Zeng Zhanglao, tadinya rencana kami adalah pergi ke Xiangyang untuk menemui Zhang Jiaozhu. Tetapi kami juga merasa harus pergi ke 
+Kaifeng, seandainya ada yang bisa kami bantu di sana. Kalian bisa memberi sedikit petunjuk di sini, karena kami belum mengerti apa yang sebenarnya terjadi. 
+Setahu kami, Kaifeng baik-baik saja, kecuali ada sedikit masalah dengan meriam-meriam itu."
+
+"Nona, boleh kami tahu nama kalian? Setidaknya kami harus menjawab jika ditanya. Aku sendiri percaya bahwa kalian memang punya hubungan erat dengan 
+Zhang Jiaozhu sendiri, tetapi urusan ini sebenarnya sangat dirahasiakan," kata Zeng Zhanglao.
+
+Lihua buru-buru berkata sebelum Ah Xiu bereaksi, "Aku bermarga Mei, kalian boleh memanggilku Lihua, dan ini kakakku Ah Xiu."
+
+Jawaban itu memang benar, jadi dalam hal ini Lihua tidak berbohong. Lihua memakai marga ibunya, karena ayahnya adalah orang Mongolia, yang tidak punya 
+marga suku Han.
+
+"Baiklah, Nona Lihua," kata Zeng Zhanglao lagi. "Aku akan berusaha mengulangi apa yang dijelaskan oleh atasan kami, Sima Zhanglao. Sima Zhanglao 
+selama ini telah bekerja menjadi salah satu penasihat Zhang Jiaozhu, sejak kedatangannya di Xiangyang. Kaifeng adalah kota besar, dan masalahnya sangat 
+rumit. Shaoli Junzhu datang ke situ untuk memberantas korupsi dan pungutan liar yang menyusahkan banyak orang, dan ternyata upayanya didukung oleh 
+Kaisar Toghon Temur, karena itu Junzhu kemudian diangkat menjadi salah seorang Kepala Wilayah di Kaifeng. Selanjutnya, Junzhu mengendus ada salah satu 
+Kepala Wilayah tetangga yang menyimpan sejumlah besar meriam di gudangnya. Kaisar telah mengeluarkan surat perintah untuk menyita semua meriam itu, 
+dan mengembalikannya ke Dadu. Kamis sedang melaksanakan perintah itu, ketika ada kabar lain mengenai kedatangan pasukan Liu Futing dan Han Lin'er 
+dari Bozhou. Zhang Jiaozhu sendiri sudah lama tahu mengenai rencana Bozhou untuk menduduki Kaifeng, dan mengutus Panglima Chang untuk membantu Shaoli Junzhu. 
+Tetapi Panglima Chang terpaksa pergi ke Dadu untuk mengawal meriam-meriam itu, dan saat ini kami baru mendengar bahwa pasukan Liu Futong sudah mulai 
+mengacak-acak Kaifeng. Karena itu kami menjadi bingung. Aku sendiri ditugaskan untuk mendukung Panglima Chang dari arah depan, seandainya ada yang bermaksud 
+menghadang pengawalan meriam itu dari arah utara, karena itu aku tidak bisa bergerak ke Kaifeng untuk membantu kesibukan mereka. Tak lama lagi rombongan 
+meriam itu akan tiba di dekat tempat ini, atau di Liaocheng, tergantung keputusan dari Xiao Wangye dan Panglima Chang yang mengawal pasukan itu."
+
+Lihua bertanya, "Kudengar ayah Han Lin'er itu juga orang Ming Jiao, mengapa mereka tidak mau mengikuti perintah Zhang Jiaozhu?"
+
+"Soal ini aku tidak terlalu memahaminya, jadi aku tidak berani menjawab pertanyaan Nona," kata Zeng Zhanglao. "Yang kami tahu, Zhang Jiaozhu ingin menghindari 
+perang, yang dianggapnya hanya menyusahkan rakyat. Junzhu juga memenangkan Kaifeng tanpa harus berperang, karena itu Zhang Jiaozhu mendukungnya. 
+Zhang Jiaozhu datang ke Xiangyang adalah karena sebelumnya terjadi pemberontakan di Hanyang oleh Ni Wenjun, melawan Kaisar Tianwan, Xu Shouhui. Saat 
+itu mereka meninggalkan Hanyang, dan bergerak sampai ke Jiangxi. Jiaozhu kuatir bahwa kedua kota yang berdekatan itu akan diambil alih oleh para 
+bandit setelah mereka pergi. Kami hanya melihat, sekarang ini di selatan sudah ada dua wilayah yang diumumkan sebagai kekaisaran, dan kedua wilayah 
+itu ternyata berperang sendiri. Salah satunya adalah pihak Liu Futong dan Han Lin'er. Kedua kekaisaran itu punya hubungan erat dengan Ming Jiao, tetapi 
+ternyata Biksu Peng tewas dalam pemberontakan itu di Hanyang. Mengingat hal itu, kami kuatir Liu Futong juga akan membunuh Junzhu demi menguasai Kaifeng."
+
+Ah Xiu segera berkata, "Kalau begitu, kalian tetap di sini sesuai dengan perintah yang kalian terima. Biarkan kami yang pergi ke Kaifeng untuk membantu 
+Shaoli Junzhu, tetapi anggota tiga kantong kalian ini harus pergi bersama kami, karena kami sangat memerlukan petunjuk dari mereka. Aku hanya bisa 
+menyarankan supaya kalian juga mengirim orang ke arah Liaocheng, karena kelihatannya ibu kami akan datang dari sana, ini akan sangat memudahkan ibu kami."
+
+Zeng Zhanglao bertanya, "Berapa orang yang kalian perlukan?"
+
+"Hanya mereka bertiga, sebagai penunjuk jalan, karena kami belum pernah pergi ke Kaifeng," kata Ah Xiu lagi. "Sisanya tetap bersamamu di sini."
+
+"Kalau begitu, kami sangat berterima kasih atas bantuan kalian berdua," kata Zeng Zhanglao. "Kami akan menyampaikan pesan melalui para anggota kami 
+kepada Zhang Jiaozhu di Xiangyang bahwa kalian sedang menuju ke Kaifeng."
+
+Ah Xiu berkata sebelum Lihua sempat mencegahnya, "Sampaikan saja kepada ibu kami, bahwa kami sedang menuju ke Kaifeng untuk membantu Junzhu."
+
+Tanpa membuang waktu lagi, Ah Xiu segara mengambil kudanya, dan mengajak Lihua berangkat ke Kaifeng, sesuai dengan petunjuk dari para anggota 
+Kai Pang tiga kantong itu.
+
+Sementara itu, di Kaifeng, Zhao Min dan YinLi dengan susah payah akhirnya berhasil menghindarkan komandan pasukan Liu Futong dan para prajuritnya, 
+yang sebelumnya telah mereka laporkan akibat insiden kecil di kedai Xiao Liang. Menjelang makan siang, Liu Futong sangat murka setelah membaca laporan 
+terperinci, berikut nama-nama para prajuritnya yang membuat keributan di kedai Xiao Liang. Laporan itu juga menyertakan kesaksian para pelayan dan 
+kasir yang melayani di kedai itu, sehingga ia tak dapat menemukan celah sedikit pun untuk meloloskan para prajuritnya dari kesalahan. Ia menghunus 
+golok dari salah seorang prajurit yang ada di dekatnya, dengan maksud untuk memenggal semua orang yang dilaporkan bersalah itu, demi menegakkan 
+wibawa mereka.
+
+Tetapi Yin Li menahan tangannya, lalu berkata, "Tunggu!"
+
+"Apa yang kau inginkan? Mereka adalah orangku, dan kau sudah membuktikan bahwa mereka melanggar perintahku. Bukankah ini yang kalian harapkan?" 
+teriaknya.
+
+"Liu Chengxiang, ini adalah pengadilan tertutup," kata Yin Li. "Tak seorang pun dari rakyat ikut menyaksikannya. Jika kau meneliti kasus ini baik-baik, 
+maka kau juga pasti akan menyadari apa tujuanku sebenarnya. Aku hanya ingin mengatakan bahwa Kaifeng saat ini dalam keadaan baik-baik saja. Memang 
+betul, sistem hukum Dinasti Yuan yang kalian anggap salah itu tetap ada, tetapi ternyata di kota kami keadilan telah tercipta. Kedai-kedai makanan 
+Mongolia itu pun tidak lagi mencegah pelanggan dari suku Han makan di situ. Dan mereka juga tidak menetapkan harga lebih tinggi bagi warga suku Han. 
+Orang-orangmu ini sebetulnya ingin membayar, tetapi uang mereka tidak cukup. Mereka tidak ingin pasukanmu mendapat malu, jadi mereka melakukan apa yang 
+mereka anggap benar untuk menyelamatkan muka kalian. Aku yakin kesalahan semacam ini bisa diperbaiki jika kau memberi pengertian yang benar kepada 
+semua anak buahmu, dan bukan dengan jalan membunuh mereka yang melakukan kesalahan semacam ini. Jika kau masih ingin meneruskan niatmu, kami memang 
+tidak bisa mencegahmu. Hanya saja, kau hanya akan membuat semua orang menganggap kalian terlalu kejam, dan tidak layak memimpin mereka."
+
+Ucapan Yin Li yang bertujuan baik itu terasa seperti tamparan keras ke muka Liu Futong. Ia semakin murka, lalu berteriak, "Sekarang _kau_ juga 
+ingin mengajariku bagaimana harus mengelola negara?"
+
+Zhao Min mengambil kesempatan untuk menekan Liu Futong lebih jauh. Ia berkata dengan tenang, "Daripada menghukum mereka, bukankah sebaiknya kau memikirkan 
+bagaimana harus menyelesaikan masalah yang kurang lebih sama, tetapi sampai sekarang belum juga kau sentuh. Dan kami juga belum menulis laporan resmi."
+
+"Masalah apa lagi?" tanya Liu Futong.
 
 
 
