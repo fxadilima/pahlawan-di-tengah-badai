@@ -784,7 +784,7 @@ untuk menarik perhatian Lihua supaya datang ke pendopo itu.
 
 "Kenapa?" tanya Luhua.
 
-"karena aku tidak kenal orang itu," jawab Ah Xiu. "Bagaimana aku bisa menikah dengan orang yang tidak kukenal?"
+"Karena aku tidak kenal orang itu," jawab Ah Xiu. "Bagaimana aku bisa menikah dengan orang yang tidak kukenal?"
 
 Lihua tertawa. "Maksudku, kenapa ayah ingin menikahkanmu dengan dia?" ulangnya.
 
