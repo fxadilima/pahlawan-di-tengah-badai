@@ -86,6 +86,12 @@ Goryeo
    Nama Seo-yang (Hanja 瑞阳) dibaca Rui Yang dalam bahasa mandarin
 7. Jin-Gyeong (Hangul 진경, atau Hanja 陳慶) 
 
+Nama anak laki-laki:
+
+1. Myung-hoon (Hangul 명훈, Hanja 明勲, 明勛 dan masih banyak varian lagi).
+2. Jae-yong (Hangul 재용, Hanja 在用, 在容, 在鎔 dan masih banyak lagi).
+3. Hyeong-won (Hangul 형원, Hanja 亨元, 馨遠 dan segudang varian lain).
+
 Mongolia
 
 1. Naghachu

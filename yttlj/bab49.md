@@ -441,7 +441,7 @@ Im Chan-mi makin takut. Ia bersembunyi di belakang Lin Zihua tanpa berani mengel
 yang berserakan di tengah arena tari itu sambil bergumam, "Amituofo, aku tidak pernah melihat uang sebanyak ini. Meihua, kumpulkan emas-emas ini!" 
 
 Salah seorang wanita penghibur segera mengumpulkan semua uang emas itu dan memasukkannya ke dalam sebuah kantong kulit. Sementara itu Zou Mama 
-berpaling ke arah si prajurit sambil berkata, "Komandan, Nona Chan-mi memang hanya tamu di tempat ini. Keahliannya memang menari, dan di negerinya 
+berpaling ke arah si prajurit sambil berkata, "Komandan, Nona Chan-mi memang hanya tamu di tempat ini. Keahliannya hanya menari, dan di negerinya 
 dia berasal dari keluarga terpelajar. Jika Song Daren memang menginginkan sesuatu yang lain, kami juga menyediakan pelayanan seperti itu." Ia menoleh kepada 
 salah seorang wanita penghibur cantik dengan payudara besar sambil berkata, "Caihong, kau pergi bersama komandan ini untuk menemui Song Daren. Jangan 
 membuatnya kecewa!"
@@ -454,15 +454,15 @@ Suaranya membuat Zou Mama dan Caihong mundur beberapa langkah ke belakang. Muka 
 
 [^siling-guan]: Siling Guan (司令官) secara literal berarti 'Komandan Militer'.
 
-Shangguan Wu berdiri dari tempat duduknya dengan anggun. "Komandan," katanya dengan sopan. "Tempat ini hanya tempat hiburan rakyat. Gadis ini memang 
-hanya menyajikan tari-tarian dan musik. Mengapa menghunus golokmu di sini?"
+Shangguan Wu berdiri dari tempat duduknya dengan anggun. "Komandan," katanya dengan sopan. "Tempat ini hanya tempat hiburan rakyat. Gadis ini juga  
+hanya menyajikan tari-tarian dan musik. Untuk apa kau menghunus golokmu di sini?"
 
 Prajurit itu sebenarnya bukan seorang komandan pasukan, tetapi sejak tadi ia mendengar orang menyebutnya Siling Guan[^siling-guan]. Saat itu 
 ia sedang terpengaruh oleh minuman keras, dan merasa sebutan itu ada benarnya. Ia sudah lama mengharapkan kenaikan pangkat, tetapi sampai saat itu 
 ia belum juga menjadi komandan apapun. Setelah mereka memasuki Kaifeng, ia selalu mengikuti Song Bolin yang adalah bawahan langsung Liu Futong dengan 
-maksud untuk mencari dukungan bagi kenaikan pangkat yang didambakannya. Song Bolin memang menyukai wanita-wanita cantik, dan diam-diam selalu datang 
-ke tempat-tempat hiburan di segala tempat yang telah mereka taklukkan. Mendengar orang di sekelilingnya memanggilnya 'komandan', dalam keadaan setengah mabuk 
-ia merasa tadi Song Bolin telah menaikkan pangkatnya. Jadi ia semakin berani, dan memandang rendah ke arah Shangguan Wu yang jelas masih muda, 
+maksud mencari dukungan bagi kenaikan pangkat yang didambakannya. Song Bolin memang menyukai wanita-wanita cantik, dan diam-diam selalu mendatangi 
+ke tempat-tempat hiburan seperti Taohua Yuan ini, di segala tempat yang telah mereka taklukkan. Mendengar orang di sekelilingnya memanggilnya 'komandan', 
+dalam keadaan setengah mabuk, ia merasa tadi Song Bolin telah menaikkan pangkatnya. Jadi ia semakin berani, dan memandang rendah Shangguan Wu, yang jelas masih muda, 
 berwajah tampan, dan mengenakan setelan mewah seperti anak orang kaya, yang di matanya hanya bisa mengandalkan harta orang tuanya.
 
 Ia berteriak, "Bocah tengik! Kau kira aku takut dengan uang ayahmu? Song Daren sekarang juga bisa membeli kepalamu!"
@@ -476,17 +476,17 @@ samar-samar baginya, dan ia berkata dengan lantang sambil mengacungkan goloknya,
 aku akan menunjukkan bagaimana kami memperlakukan orang-orang seperti ayahmu di selatan!"
 
 Prajurit itu mengayunkan goloknya sekuat tenaga ke arah anak buah Torebeg yang sedang melindungi Shangguan Wu. Para pengunjung di tempat itu menjerit 
-ngeri. Saat itu juga sesosok bayangan yang mengenakan pakaian mewah berwarna biru berkelebat di atas kepala mereka. Zhao Min mengerahkan qinggong-nya 
+ngeri. Pada detik yang sama, sesosok bayangan yang mengenakan pakaian mewah berwarna biru berkelebat di atas kepala mereka. Zhao Min mengerahkan qinggong-nya 
 untuk menyelamatkan anak buat Torebeg, tetapi karena jauhnya jarak dari tempatnya berdiri ke tengah arena tarian Chan-mi, ia terpaksa menggunakan 
-dua kepala pengunjung sambil berkata, "Maafkan aku, maafkan aku!" 
+dua kepala pengunjung sebagai batu pijakan pengantara, sambil berkata, "Maafkan aku, maafkan aku!" 
 
 Ia tiba di tengah arena tepat pada saat golok si prajurit berada dua sentimeter dari batok kepala anak buah Torebeg. Tongkat bambu pendek yang 
 dipinjamnya dari Touba Yong menyentuh bagian tengah golok yang lebar dan berat itu sambil mengerahkan Jiu Yang Shen Gong yang sekarang telah 
 mencapai tingkat hampir sempurna. Pada saat bersamaan, ujung sepatunya bergerak ke arah titik akupuntur di bahu kanan si prajurit. Golok itu terpental 
-sejauh beberapa meter di sebelah kanan Shangguan Wu, dan prajurit itu tidak dapat menggerakkan lengan kanannya. Ia hendak berteriak marah, tetapi 
+sejauh beberapa meter di sebelah kanan Shangguan Wu, dan prajurit itu tak dapat menggerakkan lengan kanannya. Ia hendak berteriak marah, tetapi 
 detik berikutnya jari telunjuk kanan Zhao Min menyentuh titik akupuntur di leher bagian bawah, sehingga ia tidak bisa bersuara. Sebelum prajurit itu 
-sempat melakukan upaya lain, tongkat bambu di tangan kiri Zhao Min bergerak cepat menotok tiga titik akupuntur di lututnya secara beruntun. Ia jatuh 
-terduduk tanpa bisa melakukan apa-apa lagi.
+sempat melakukan upaya lain, tongkat bambu di tangan kiri Zhao Min bergerak cepat menotok tiga titik akupuntur di kedua lututnya secara beruntun. 
+Ia jatuh terduduk, tak mampu melakukan apa-apa lagi.
 
 Para pengunjung yang sudah terlanjur berseru ngeri itu terpana selama beberapa detik menyaksikan demonstrasi Zhao Min. Beberapa orang menarik nafas 
 lega, dan beberapa lainnya mengucapkan doa syukur dengan cara mereka masing-masing. 
@@ -569,7 +569,7 @@ Tiba-tiba telinganya mendengar suara ayam berkokok. "Astaga," pikirnya. "Berapa 
 Ia masuk ke ruang tamu dan menyambar pedangnya yang tergeletak di atas lantai, lalu bergegas keluar dari ruang tamu. Setelah menutup pintu dengan hati-hati 
 supaya tidak membangunkan Zhao Min, ia berlari keluar dari pagar rumah, dan melompat ke atas punggung kudanya. Ia bermaksud mengintip apa yang 
 terjadi di rumah dinasnya, tetapi ketika lewat di perempatan, telinganya mendengar bisik-bisik dari sekelompok orang yang tampaknya baru pulang dari 
-arah pintu gerbang selatan kota. Merekka tampak lelah dan mengantuk, tetapi masih membicarakan apa yang baru mereka lihat di sana.
+arah pintu gerbang selatan kota. Mereka tampak lelah dan mengantuk, tetapi masih membicarakan apa yang baru mereka lihat di sana.
 
 "Benar-benar kejam," kata seorang pria empat puluh tahunan yang berpakaian seperti sastrawan. "Itu anak buahnya sendiri."
 
@@ -595,6 +595,276 @@ Di dalam hatinya ada sedikit rasa bersalah, karena ia memang sengaja mendorong m
 memaksa Liu Futong mengakui kekeliruannya dan menyingkir dari Kaifeng. Tetapi beberapa detik kemudian rasa bersalah itu disingkirkannya sendiri. 
 
 "Kalian sudah diperingatkan," pikirnya. "Salah sendiri tidak mau mendengar."
+
+Ia melihat Xu Da sedang berpatroli bersama satu batalyon prajuritnya melintas dari tikungan menuju ke arahnya. Ketika melihatnya sedang termenung 
+di atas kuda, Xu Da membiarkan para prajuritnya lewat bersama komandan batalyon itu, dan dia sendiri mendekati Yin Li.
+
+"Liu Futong langsung memenggal leher mereka dengan tangannya sendiri begitu mendengar apa yang mereka lakukan," kata Xu Da. "Kami tidak sempat 
+mencegahnya."
+
+Yin Li menghela nafas panjang. Ia bertanya, "Dan kasus lainnya?"
+
+"Tampaknya mereka kelelahan," kata Xu Da lagi. "Mereka belum sempat beristirahat setelah berarak dari Shangqiu. Jadi mereka menundanya sampai besok."
+
+"Kasus komandan batalyon yang kutangkap di kedai makanan Mongolia itu harus kita perhatikan baik-baik," kata Yin Li lagi. "Aku sudah berjanji untuk 
+mencegah Liu Futong membunuh mereka. Mereka sebenarnya ingin membayar, tapi uang mereka tidak cukup. Ini hanya masalah gengsi, karena itu mereka 
+mengancam pemilik kedai, karena tidak ingin mendapat malu di depan banyak orang."
+
+"Yang itu memang salah," kata Xu Da.
+
+"Aku tahu," sahut Yin Li, "Tapi bukan berarti harus mati!"
+
+Hari matahari mulai menampakkan diri di ufuk timur. Beberapa penduduk membuka pintu dan jendela mereka, lalu mulai menyapu halaman untuk memulai 
+kegiatan harian mereka. "Kau lapar?" tanya Yin Li. "Aku masih punya cukup banyak daging dan roti di rumah."
+
+Xu Da tertawa dan berkata, "Xu Da tidak pernah menolak makanan," katanya.
+
+Sementara Yin Li berkuda lambat-lambat, Xu Da berlari-lari kecil mengiringinya. Mereka tiba di rumah dalam lima belas menit. Di depan pintu pagar 
+ada seorang pria menunggu, dan begitu melihat Yin Li, orang itu berjalan mendekat sambil berkata, "Junzhu, ada pesan dari ibu Junzhu. Dikirim ke 
+penginapan."
+
+Yin Li turun dari punggung kuda dengan kening berkerut. Ia menerima surat itu dan mengucapkan terima kasih, lalu berjalan memasuki rumah bersama Xu Da. 
+Karena ibunya sendiri sudah meninggal, saat itu hanya ada dua kemungkinan jika orang menyebut 'ibu'. Ia mengenali orang yang mengantarkan pesan itu 
+sebagai salah seorang pelayan di penginapan tempat Ki Seung Nyang menginap ketika pertama kalinya tiba di Kaifeng.
+
+"Salah seorang teman Furen yang menitipkan surat ini," kata pelayan penginapan itu. "Furen sendiri masih tidur. Beberapa jam setelah tengah malam 
+baru kembali ke penginapan."
+
+Setelah membaca sekilas, Yin Li berkata sambil tersenyum senang, "Aku tahu. Kau bisa kembali sekarang. Surat ini tidak perlu segera dibalas."
+
+Di ruang tamu, Xu Da sedang mengisi perutnya dengan kue-kue kecil yang tersisa di atas meja. Semuanya telah menjadi dingin akibat cuaca musim dingin 
+itu. Zhao Min masih tidur lelap, dan sedikit pun tidak merasa terganggu oleh kegiatan makan Xu Da. 
+
+Ketika Liu Yifang masuk sambil membawa bubur hangat dan sup ayam yang masih mengepulkan asap, Xu Da dengan gembira mengisi mangkuk kosong dengan 
+bubur sampai penuh, lalu mulai makan dengan lahap ditemani oleh telur dadar buatan Liu Fifang.
+
+Setelah Bibi Liu masuk ke ruangan itu bersama beberapa orang temannya, suasana mulai ramai, dan Zhao Min terbangun, lalu minum sedikit sup ayam  
+untuk menghangatkan tubuhnya. Yin Li mengedarkan surat Ki Seung Nyang supaya bisa dibaca oleh semua orang lain.
+
+"Siapa itu Bibi Mei?" tanya Bibi Liu ingin tahu.
+
+"Salah satu saudara seperguruan Mama," jawab Yin Li. "Orang Ming Jiao yang sangat senior. Ini yang kuharapkan, jadi sekarang kita tidak usah kuatir 
+lagi soal meriam-meriam itu. Kungfu Bibi Mei sangat tinggi, dan dia pasti bisa mempengaruhi orang-orang Jianghu untuk membantunya."
+
+Xu Da teringat sesuatu, lalu berkata sambil mengambil shaobing yang disodorkan Bibi Liu, "Tapi semalam kami melihat ada orang mencurigakan keluar dari 
+rumah dinas sebelum kami masuk ke situ. Aku sudah menyuruh orangku mengejarnya, karena dia menuju ke pintu gerbang utara kota. Kulihat banyak murid 
+laki-laki Emei Pai mengikuti anak buahku itu."
+
+"Celaka!" kata Zhao Min. "Liu Futong pasti menyuruh orang-orangnya mengejar meriam-meriam itu."
+
+Ding Minjun datang, dan sempat mendengar pembicaraan mereka. Ia berkata, "Tiga ratus murid laki-laki Emei Pai ikut mengejarnya, jadi kalian tidak 
+usah terlalu kuatir. Meskipun kungfu murid-murid Emei itu tak terlalu tinggi, tapi mereka juga bukan orang lemah."
+
+Zhao Min segera menulis surat pendek sambil berkata, "Kita harus menjaga segala kemungkinan. Panglima Xu, kalau perutmu sudah kenyang, suruh anak buah 
+Torebeg mengantarkan surat ini kepada ayahku di Nanyang."
+
+"Kau mau apa?" tanya Xu Da.
+
+"Ayah akan menyibukkan hari-hari Liu Futong dengan jalan mengirim pasukan kecil ke Shangqiu," kata Zhao Min. Ia mengambil sepotong shaobing buatan Bibi Liu 
+sambil menuang sup panas ke dalam mangkuknya. "Sekarang ini orang-orang Torebeg sama sekali tidak takut mengakui bahwa mereka adalah murid-murid Ming Jiao, 
+jadi kemarin aku mengutus Torebeg ke Shangqiu untuk mendukung gagasan ayah. Pasukan kecil ayah tidak akan melakukan apa-apa di situ, kecuali untuk 
+mendukung anak buah Torebeg menyebarkan isu tentang perubahan besar di Ming Jiao. Hal itu sudah cukup untuk membangkitkan kecurigaan Liu Futong, dan 
+mengalihkan perhatiannya dari wilayah utara."
+
+Bibi Liu dan teman-temannya senang setelah membaca sura Ki Seung Nyang, karena tahu bahwa Ki Seung Nyang masih mengingat mereka. Sedikit pun mereka 
+tidak mengira bahwa surat itu dikirim dari Dadu. Mereka memang penasaran, karena ternyata Ki Seung Nyang mengirimnya kepada salah seorang teman mereka, 
+yaitu istri pemilik penginapan yang ditempatinya ketika pertama kalinya datang ke Kaifeng. Tetapi jika wanita itu ingin menyelidiki asal-usul surat 
+itu, penyelidikan mereka hanya akan berhenti di Han Lin atau salah seorang rekannya. Karena sebenarnya yang mengirim surat itu ke penginapan memang 
+salah seorang dari empat pengawal pribadi Ki Seung Nyang itu. Xiao Liang memang hanya akan mengirimnya kepada salah satu dari mereka berempat di Kaifeng.
+
+Setelah Liu Futong memasuki kota, Yin Li menyewa sebuah tempat di pasar yang bisa digunakan sebagai tempat kerja Han Lin dan rekan-rekannya. Di situ 
+mereka juga menjual babi panggang, hasil dari peternakan babi Ki Seung Nyang sendiri, yaitu rumah yang menjadi markas Shangguan Wu, Shen Feiling, dan 
+teman-teman mereka lainnya. Teman-teman Ki Seung Nyang ikut membantu penyamaran mereka, sehingga tidak mungkin terendus oleh orang-orang Liu Futong yang 
+mengawasi pasar itu.
+
+Pagi itu, tak lama setelah Bibi Liu datang, Han Lin muncul sambil membawa kabar yang terdengar aneh bagi telinga Bibi Liu, "Junzhu, kami mendengar 
+salah satu pengawal mereka merampas surat dari Niangniang untuk Junzhu."
+
+Kabar itu mengejutkan semua orang. Tetapi kemudian mereka segera sadar, karena dua kali mereka membaca surat Permaisuri Bayan, dan isinya tak lebih 
+dari surat seorang ibu kepada anaknya. Bibi Liu tertawa keras-keras. Ia berkata, "Biarkan saja Liu Futong makin sibuk mencurigai masalah yang sebetulnya 
+tidak ada."
+
+Ying Furen menambahkan, "Sebentar lagi mereka pasti akan mengantarkannya kemari."
+
+Ia baru selesai bicara, ketika Ah San datang sambil mengantarkan surat Permaisuri Bayan, dan berkata, "Mereka membuat salinan surat ini, dan menyuruhku 
+mengantarkan aslinya kepada Junzhu."
+
+Mereka membuka surat itu dan membaca isinya bersama-sama. Liu Yifang juga diperbolehkan ikut membacanya.
+
+```text
+
+Anakku Tercinta,
+
+Muhou sangat kuatir mendengar serbuan dari selatan itu.
+Huanghou mengatakan bahwa orang terbaik untuk mengatasi masalah meriam adalah ayahmu.
+Kalian harus berusaha menghubunginya secepat mungkin.
+Muhou punya beberapa resep masakan dari utara yang disukai semua orang di sini.
+Liu Yifang akan memasaknya untuk kalian.
+Cuaca sekarang ini sangat dingin di Dadu,
+jangan lupa memakai mantel bulu yang tebal itu.
+Setelah situasi aman, usahakan mampir ke istana,
+Muhou sangat merindukanmu.
+
+Muhou
+
+```
+
+Surat itu masih dilengkapi dengan beberapa lembar resep masakan dan cara membuat kue-kue, yang ditulis dengan tulisan tangan Permaisuri Bayan sendiri. 
+Teman-teman Ki Seung Nyang ramai-ramai menertawakan Liu Futong bersama dengan Ding Minjun dan murid-murid perempuan Emei Pai.
+
+"Pantas saja Liu Futong langsung menyuruh orangnya membuat salinan surat ini," kata Zhao Min. "Isinya memang agak mencurigakan. Hal pertama 
+yang ditulisnya adalah 'serbuan dari selatan' dan pendapat Huanghou tentang ayah."
+
+Yin Furen tertawa. "Semoga mereka juga membuat salinan resep-resep masakan itu," katanya.
+
+"Mereka memang membuatnya," kata Ah San.
+
+"Apakah Liu Futong bisa menduga bahwa yang dimaksud memang ayah kalian?" tanya Bibi Quan.
+
+"Tentu saja bisa," kata Yin Li. 
+
+Xu Da sudah kenyang, ia bangkit berdiri sambil berkata, "Ah San, kita banyak urusan. Membayangkan tentang meriam itu membuatku ngeri."
+
+Bibi Liu membungkus banyak shaobing, dan diberikannya kepada Ah San. "Bawa ini untuk teman-temanmu," katanya.
+
+"Hei, kenapa aku tidak melihat Yu'er?" tanya Yin Li. "Ding Shijie, kau membawanya ke mana?"
+
+"Dia menginap di rumah kalian yang lain, tempat membuat kain itu," jawab Ding Minjun. "Mungkin sebaiknya dia tinggal di sini untuk sementara, tapi kemarin 
+kami kalang kabut mengurus para penduduk kota, jadi aku menyuruhnya tinggal di situ."
+
+"Bukankah semalam semuanya pergi dari situ? Berarti dia hanya sendirian," kata Zhao Min. "Jinglan, bawa Chang Furen ke sini! Di sini jauh lebih aman."
+
+Sebuah gagasan melintas di benak Bibi Liu. Ia bertanya, "Bagaimana kalau aku mengajak Yu'er ke pasar? Dengan begitu dia akan punya kegiatan. Kurasa 
+dia bisa menjadi majikan sebuah kios di pasar."
+
+"Wah, itu ide bagus," kata Yin Li. "Tapi apa yang harus dijualnya?"
+
+"Bagaimana kalau dia menerima jasa menjahit pakaian mewah?" tanya Ying Furen. "Aku bisa bekerja sama dengan tempat semacam ini."
+
+"Itu lebih bagus lagi," kata Zhao Min. "Dengan begitu tempat kita di Sejuta Sutra akan punya pelanggan tetap, dan itu akan mengurangi kecurigaan Liu Futong."
+
+"Apa mereka pernah berpatroli sampai ke sini?" tanya Bibi Liu.
+
+"Sampai sekarang masih belum, tapi cepat atau lambat akan sampai ke sini juga," jawab Zhao Min.
+
+"Lalu bagaimana dengan tempat ini?" tanya Bibi Liu cemas.
+
+"Tempat ini akan tetap aman," kata Zhao Min dengan tenang. "Mereka tidak akan berani mengusik tempat kediamanku. Jika mereka berani, maka aku juga bisa menempatkan 
+orang-orang Xu Da di rumah dinas yang sekarang ini mereka tempati. Liu Futong tentu memahami hal ini. Jika ingin menghubungiku, mereka bisa menyuruh 
+Ah San, karena sekarang ini Ah San dan Delapan Panah Dewa menginap di barak militer kita. Sebelum Liu Futong merumuskan hukum dengan benar, maka tidak ada alasan 
+bagi mereka untuk mengusir kita dari Kaifeng. Hanya dengan duduk di situ, bukan berarti mereka sudah memenangkan Kaifeng secara mutlak, karena berikutnya mereka 
+tetap harus berhadapan dengan rakyat jelata, yang tidak sama dengan para penduduk wilayah selatan. Di Kaifeng ini, ada banyak macam suku dan agama. Hal ini pasti 
+sudah diketahui oleh mantan pejabat Dinasti Yuan seperti Liu Futong. Jika dia memandang Kaifeng sama seperti Bozhou, maka mereka hanya tinggal menunggu waktu untuk 
+berarak kembali ke sana."
+
+Penjelasan Zhao Min sangat melegakan bagi Ying Furen dan teman-temannya. Bibi Liu berkata, "Ying Furen, ayo kita mengurus tempat bagi istri Panglima Chang itu. 
+Kasihan dia. Kurasa kita harus mencari kios yang agak besar, supaya dia bisa menginap di situ."
+
+Ying Furen dan Bibi Liu bangkit dari kursi mereka, lalu berpamitan untuk segera menjemput Yu'er.
+
+Tak seorang pun dari mereka mengira apa yang sedang terjadi di istana saat itu. Kaisar Toghon Temur dan tiga wanita kesayangannya sedang sibuk mencari dua orang putri 
+mereka yang kabur dari istana. Malam itu, Lihua hanya pura-pura tertidur di ruangan pribadi Permaisuri Bayan. Setelah Permaisuri Bayan pergi ke ruangan 
+Ah Luo, ia tidak segera meninggalkan ruangan itu, tetapi diam-diam menyelinap ke ruangan kakaknya, Ah Xiu. 
+
+Ah Xiu adalah putri Toghon Temur dari Ah Luo, yang sekarang sudah seusia Zhao Min, dan tentu saja ia juga mewarisi ilmu silat ibunya. Jika Lihua selalu 
+diawasi dengan ketat, mengingat sudah berkali-kali menipu semua orang dan menyelinap keluar dari istana, maka Ah Xiu jauh lebih bebas. Semua orang beranggapan 
+bahwa ibunya bukan selir peringkat atas, karena itu mereka juga tidak terlalu mempedulikan Ah Xiu. karena wataknya agak aneh dan tidak ramah, maka 
+kebanyakan kasim dan pelayan juga tidak menyukainya. Saat ini Ah Xiu sudah memiliki sebuah ruangan tersendiri, tetapi ia tidak mau dilayani para pelayan 
+istanam jadi hampir tidak ada orang yang mengunjungi ruangannya, kecuali Lihua dan Ayushiridara. Putra Permaisuri Bayan yang saat itu masih kecil juga 
+sering bermain-main di sekitar tempat tinggal Ah Xiu, jika tidak sedang menginap di tempat kediaman kakeknya.
+
+Ketika Lihua tiba di depan pintu kamarnya, Ah Xiu sedang melamun sendirian di sebuah pendopo yang berada di tengah taman. Ia melemparkan sebutir kacang 
+untuk menarik perhatian Lihua supaya datang ke pendopo itu.
+
+"Kau belum tidur?" tanya Lihua.
+
+[^sayyid-ajjal]: Sayyid Ajjal yang dimaksud adalah Sayyid Ajall Shams al-Din Omar al-Bukhari (Persia سید اجل شمس‌الدین عمر بخاری, Mandarin 赛典赤·赡思丁, atau Sai Dian Chi Shan Si Ding). Sayyid Ajjal adalah Gubernur Yunnan yang pertama, dan diduga adalah salah seorang keturunan dari Ali ibn Abi Talib dan Nabi Muhammad SAW. Ia adalah orang Persia.
+
+"Ayah menyuruhku menikah dengan salah satu cucu Sayyid Ajjal[^sayyid-ajjal] di Yunnan," kata Ah Xiu dengan murung. "Aku tidak mau."
+
+"Kenapa?" tanya Luhua.
+
+"karena aku tidak kenal orang itu," jawab Ah Xiu. "Bagaimana aku bisa menikah dengan orang yang tidak kukenal?"
+
+Lihua tertawa. "Maksudku, kenapa ayah ingin menikahkanmu dengan dia?" ulangnya.
+
+"Karena menurut ayah keluarga mereka bisa jadi adalah keturunan dari Nabi Muhammad," kata Ah Xiu lagi. "Bagi ayah hal semacam itu penting, menurutku tidak. 
+Yang jelas aku tidak kenal, jadi aku tidak mau!"
+
+[^mufei]: Mu Fei (母妃) adalah sebutan bagi seorang anak kaisar atau raja kepada salah seorang selir. Selir tersebut bisa jadi adalah ibu kandungnya, tetapi bisa jadi bukan. Gabungan kedua karakter ini bisa diterjemahkan secara langsung menjadi 'ibu'.
+
+"Lalu bagaimana pendapat Mufei[^mufei]?" tanya Lihua lagi.
+
+Ah Xiu tampak agak kesal. Ia menjawab sambil melemparkan sebutir kacang di tangannya ke arah atap, "Ibu sama saja. Dia malah bilang jika aku menguasai 
+Yunnan, maka berikutnya aku akan bisa lebih mudah menghubungi Xiangyang, karena kedua tempat itu sama-sama berada di selatan. Rupanya bagi ibu maupun ayah 
+aku hanya alat untuk menyingkirkan para pemberontak di wilayah selatan. Jadi aku malas membicarakan tentang hal ini dengan ibu."
+
+"Wah! Dalam hal ini kau keliru," kata Lihua. "Kau belum tahu siapa yang berkuasa di Xiangyang sekarang."
+
+"Siapa?" tanya Ah Xiu. Sesuatu dalam nada bicara Lihua membuatnya agak tertarik, tetapi sikapnya masih tetap acuh tak acuh.
+
+"Boleh dibilang dia adalah kakak sepupu kita, meskipun hanya kakak sepupu seperguruan," jawab Lihua. "Namanya Zhang Wuji. Ibunya adalah kakak seperguruan 
+Mufei, dan tentu saja semua ibu kita adalah adik seperguruannya. Dia tewas bunuh diri di Wudang, karena dipaksa mengatakan di mana Xie Xun berada. Mereka 
+tidak mau bilang, dan lebih suka mati."
+
+Ah Xiu memang pernah mendengar cerita itu, tetapi ia tidak pernah mendengar tentang riwayat Zhang Wuji. Ia hanya bertanya, "Jadi sekarang Qi Ah Yi 
+sudah menemukan keponakan mereka itu ya? Kalau kedua orang tuanya suah meninggal, berarti dia terlantar sejak kecil, kasihan. Mungkin Qi Ah Yi ingin 
+mengajari dia kungfu."
+
+"Kau lagi-lagi salah," kata Lihua sambil tertawa. "Saat ini di Wulin tidak ada orang yang bisa mengalahkan kungfu Zhang Wuji, karena itu Ming Jiao 
+mengangkatnya menjadi ketua mereka. Bahkan semua ibu kita sekarang ini adalah bawahannya! Bayangkan, dan sekarang dia menguasai Xiangyang."
+
+Saat itu Ah Xiu baru tertarik, dan ia langsung berkata, "Lihua, sekarang juga kita pergi dari sini!"
+
+"Ke mana?" tanya Lihua.
+
+"Tentu saja ke Xiangyang," jawab Ah Xiu. "Gege kita yang hebat itu pasti bisa mengatakan kepada ibu, supaya membatalkan niatnya menikahkan aku dengan 
+orang Yunnan yang tidak kukenal itu, dan ibu pasti tidak berani menolak, karena sekarang Zhang Wuji adalah ketua Ming Jiao! Tapi bagaimana kita keluar dari 
+sini? Hanya dengan menunjukkan tanda pengenal kita tentu saja para pengawal tidak akan mengijinkan."
+
+Lihua tentu saja sangat gembira. Ah Xiu tidak pernah meninggalkan istana, jadi ia sama sekali tidak tahu bagaimana harus pergi ke Xiangyang. Jadi 
+ia sendiri memang dibutuhkan untuk mengantarnya ke situ. Tanpa membuang waktu lagi, ia segera berkata, "Aku tahu bagaimana caranya keluar dari sini."
+
+Ia segera mengendap-endap menuju ke ruangan kasim, lalu menotok dua orang yang dikenalnya, dan berbisik, "Kalian bawa dua perangkat pakaian kasim lain, 
+lalu temui aku di ruangan Ah Xiu."
+
+Kedua kasim yang masih muda itu sudah mengenal tabiat Lihua dengan baik, dan mereka mulai ketakutan. Gadis itu bisa berbuat apa saja sekehendaknya 
+kepada mereka, tapi jika mereka menurut, maka kemungkinan besar mereka masih bisa lolos. Jadi mereka tidak banyak bertanya, lalu melakukan apa yang 
+disuruh Lihua.
+
+Setelah berganti pakaian menjadi kasim, Lihua dan Ah Xiu menyuruh kedua kasim itu berjalan di depan mereka menuju ke pintu gerbang istana. Lihua tahu, 
+di tengah malam ini Permaisuri Munashiri, yang sekitar delapan tahun lebih tua dari Ki Seung Nyang, sedang mengadakan rapat bersama dengan para sekutunya. 
+Ia sama sekali tidak menyukai Munashiri, jadi ia ingin menimpakan semua kesalahan kepada permaisuri itu. Ia membawa banyak uang emas yang disembunyikannya 
+di balik pakaian dalam, dan sebagian diberikannya kepada kedua kasim yang sedang berjalan di depan mereka.
+
+Ketika ditanya oleh para pengawal di pintu gerbang, kasim yang bertindak sebagai pemimpin mereka berkata, "Kami disuruh Permaisuri Munashiri membeli 
+banyak bahan pakaian di luar istana. Saat ini mereka sedang mengadakan rapat penting."
+
+"Kenapa membawa banyak sekali uang?" tanya pengawal itu.
+
+"Karena semua bahan itu memang sangat mahal," jawab kasim itu. "Kalau kalian terlalu banyak bicara, aku akan melaporkannya kepada Niangniang!"
+
+Karena tidak ingin didamprat Munashiri, para pengawal lalu menyuruh mereka lewat. Di sebuah penginapan, Lihua dengan cepat menemukan dua orang 
+wanita dari sebuah rumah bordil yang potongan tubuhnya kurang lebih mirip dengan dirinya dan Ah Xiu. Mereka kemudian membayar kedua wanita itu untuk menyamar sebagai 
+kasim menggantikan mereka, dan mengikuti kedua kasim itu kembali ke istana. Nantinya, di istana mereka akan bekerja sebentar menjadi pelayan, lalu mencari 
+kesempatan untuk menyelinap keluar bersama kedua kasim yang mengantar mereka masuk.
+
+Ketika Mei Jian keluar dari istana, sebenarnya Lihua dan Ah Xiu sudah keluar setengah jam sebelumnya. Mereka segera menuju ke Tianjin setelah berganti 
+pakaian dengan pakaian wanita suku Han biasa, yang mereka bawa dari istana. Dari Tianjin mereka naik kapal menuju ke Shanghai. Setelah itu, rencana Lihua, 
+mereka akan menanyakan jalan tercepat menuju ke Xiangyang melalui sungai.
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 

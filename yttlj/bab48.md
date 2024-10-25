@@ -1,6 +1,6 @@
 # Bab 48
 
-![Ilustrasi Bab 46](/assets/images/Yuan-Dynasty-10.jpg "Kemenangan cuma-cuma")
+![Ilustrasi Bab 48](/assets/images/Yuan-Dynasty-10.jpg "Kemenangan cuma-cuma")
 
 ## Kemenangan Cuma-Cuma
 
