@@ -967,7 +967,7 @@ aneka macam makanan lezat, dan agak melupakan bahwa mereka harus segera pergi ke
 untuk segera tiba di Xiangyang, ia pasti akan menemukan alasan untuk mencari di mana tempat tinggal keluarga besar pasangan Pendekar Besar Guo Jing 
 dan Huang Rong, lalu menginap lebih lama di markas besar Zhang Wuji. Melihat dari nada bicara Ah Xiu, Lihua segera tahu bahwa kakaknya ini diam-diam 
 telah jatuh hati kepada kakak seperguruan mereka, yang sebenarnya tak pernah mereka temui sebelumnya. Dengan mudah ia akan mengajak Ah Xiu untuk tinggal 
-lebih lama di Xiangnyang, lalu ia akan menyelinap pergi sendirian ke tempat lain, sementara Ah Xiu sibuk dengan Zhang Wuji. Kalaupun akhirnya ia ketahuan, 
+lebih lama di Xiangyang, lalu ia akan menyelinap pergi sendirian ke tempat lain, sementara Ah Xiu sibuk dengan Zhang Wuji. Kalaupun akhirnya ia ketahuan, 
 setidaknya ia sudah menikmati sedikit perjalanan keliling wilayah selatan.
 
 Ah Xiu tahu Lihua punya banyak pengalaman, dan suka mempelajari peta besar di ruang kerja ayah mereka, maka ia mempercayai begitu saja apa yang dikatakan Lihua. 
@@ -1153,12 +1153,12 @@ Ah Xiu berkata sebelum Lihua sempat mencegahnya, "Sampaikan saja kepada ibu kami
 Tanpa membuang waktu lagi, Ah Xiu segara mengambil kudanya, dan mengajak Lihua berangkat ke Kaifeng, sesuai dengan petunjuk dari para anggota 
 Kai Pang tiga kantong itu.
 
-Sementara itu, di Kaifeng, Zhao Min dan YinLi dengan susah payah akhirnya berhasil menghindarkan komandan pasukan Liu Futong dan para prajuritnya, 
-yang sebelumnya telah mereka laporkan akibat insiden kecil di kedai Xiao Liang. Menjelang makan siang, Liu Futong sangat murka setelah membaca laporan 
-terperinci, berikut nama-nama para prajuritnya yang membuat keributan di kedai Xiao Liang. Laporan itu juga menyertakan kesaksian para pelayan dan 
-kasir yang melayani di kedai itu, sehingga ia tak dapat menemukan celah sedikit pun untuk meloloskan para prajuritnya dari kesalahan. Ia menghunus 
-golok dari salah seorang prajurit yang ada di dekatnya, dengan maksud untuk memenggal semua orang yang dilaporkan bersalah itu, demi menegakkan 
-wibawa mereka.
+Sementara itu, di Kaifeng, Zhao Min dan Yin Li dengan susah payah akhirnya berhasil menghindarkan komandan pasukan Liu Futong dan para prajuritnya, 
+yang sebelumnya telah mereka laporkan akibat insiden kecil di kedai Xiao Liang, dari hukuman mati. Menjelang makan siang, Liu Futong sangat murka 
+setelah membaca laporan terperinci, berikut nama-nama para prajuritnya yang membuat keributan di kedai Xiao Liang. Laporan itu juga menyertakan kesaksian 
+para pelayan dan kasir yang melayani di kedai itu, sehingga ia tak dapat menemukan celah sedikit pun untuk meloloskan para prajuritnya dari kesalahan. 
+Ia menghunus golok dari salah seorang prajurit yang ada di dekatnya, dengan maksud memenggal semua orang yang dilaporkan bersalah itu, demi 
+menegakkan wibawa mereka.
 
 Tetapi Yin Li menahan tangannya, lalu berkata, "Tunggu!"
 
@@ -1166,15 +1166,15 @@ Tetapi Yin Li menahan tangannya, lalu berkata, "Tunggu!"
 teriaknya.
 
 "Liu Chengxiang, ini adalah pengadilan tertutup," kata Yin Li. "Tak seorang pun dari rakyat ikut menyaksikannya. Jika kau meneliti kasus ini baik-baik, 
-maka kau juga pasti akan menyadari apa tujuanku sebenarnya. Aku hanya ingin mengatakan bahwa Kaifeng saat ini dalam keadaan baik-baik saja. Memang 
+maka kau pasti akan menyadari apa tujuanku sebenarnya. Aku hanya ingin mengatakan bahwa Kaifeng saat ini dalam keadaan baik-baik saja. Memang 
 betul, sistem hukum Dinasti Yuan yang kalian anggap salah itu tetap ada, tetapi ternyata di kota kami keadilan telah tercipta. Kedai-kedai makanan 
 Mongolia itu pun tidak lagi mencegah pelanggan dari suku Han makan di situ. Dan mereka juga tidak menetapkan harga lebih tinggi bagi warga suku Han. 
 Orang-orangmu ini sebetulnya ingin membayar, tetapi uang mereka tidak cukup. Mereka tidak ingin pasukanmu mendapat malu, jadi mereka melakukan apa yang 
 mereka anggap benar untuk menyelamatkan muka kalian. Aku yakin kesalahan semacam ini bisa diperbaiki jika kau memberi pengertian yang benar kepada 
-semua anak buahmu, dan bukan dengan jalan membunuh mereka yang melakukan kesalahan semacam ini. Jika kau masih ingin meneruskan niatmu, kami memang 
-tidak bisa mencegahmu. Hanya saja, kau hanya akan membuat semua orang menganggap kalian terlalu kejam, dan tidak layak memimpin mereka."
+semua anak buahmu, dan bukan dengan jalan membunuh mereka yang melakukan kesalahan ini. Jika kau masih ingin meneruskan niatmu, kami memang 
+tidak bisa mencegahmu. Hanya saja, kau akan membuat semua orang menganggap kalian terlalu kejam, dan tidak layak memimpin mereka."
 
-Ucapan Yin Li yang bertujuan baik itu terasa seperti tamparan keras ke muka Liu Futong. Ia semakin murka, lalu berteriak, "Sekarang _kau_ juga 
+Ucapan Yin Li yang bertujuan baik itu terasa seperti tamparan keras di muka Liu Futong. Ia semakin murka, lalu berteriak, "Sekarang _kau_ juga 
 ingin mengajariku bagaimana harus mengelola negara?"
 
 Zhao Min mengambil kesempatan untuk menekan Liu Futong lebih jauh. Ia berkata dengan tenang, "Daripada menghukum mereka, bukankah sebaiknya kau memikirkan 
@@ -1182,7 +1182,68 @@ bagaimana harus menyelesaikan masalah yang kurang lebih sama, tetapi sampai seka
 
 "Masalah apa lagi?" tanya Liu Futong.
 
+"Silakan lihat sendiri rumah-rumah penduduk di sekitar tempat ini," kata Zhao Min. "Para prajuritmu memang tidak melakukan pelanggaran hukum. Mereka 
+tidak merampok, menjarah atau memaksa rakyat menyerahkan rumahnya. Kemarin, setelah kami mengosongkan tempat ini, semua penduduk yang mendiami rumah 
+berdekatan dengan tempat ini meninggalkan rumah mereka, lalu berkemah di sepanjang tembok kota — di sebelah _luarnya_ — karena mereka takut kepada para 
+prajuritmu. Sekarang ini para prajuritmu menempati rumah-rumah itu, dan mereka berpesta pora di situ, sementara para pemilik rumah berkemah di luar 
+pintu gerbang. Jika kau sendiri ditempatkan pada posisi para pemilik rumah itu, apa yang akan kau pikirkan?"
 
+Liu Futong tak bisa bicara, lalu membanting golok yang sedang dipegangnya, melotot ke arah komandan pasukan yang masih berlutut di hadapannya 
+dengan kepala tertunduk. Ia menendang muka komandan itu dengan sepatu botnya sambil berteriak, "Mulai sekarang jangan lakukan lagi hal-hal semacam 
+ini!"
+
+Dengan langkah lebar ia mendahului Zhao Min melangkah keluar. Yin Li segera berkata kepada Xu Da, "Bebaskan mereka!"
+
+Xu Da segera memerintahkan beberapa prajuritnya untuk membebaskan komandan pasukan Liu Futong dan semua bawahannya, lalu melangkah keluar bersama 
+Yin Li. Di luar pintu gerbang, Liu Futong segera melihat beberapa orang prajuritnya sedang berdiri di depan rumah-rumah penduduk yang mereka tempati. 
+Ia langsng mendatangi salah satu rumah terdekat, dan menemukan beberapa orang dalam keadaan mabuk, sedang terkapar di meja ruang makan. Ketika melihatnya 
+memasuki rumah, salah satu orang menudingkan jari ke arahnya sambil berkata, "Kau... kau..."
+
+Dengan geram Liu Futong berpaling ke kiri-kanannya, dengan maksud memanggil salah satu komandan pasukan yang bisa disuruhnya, tetapi yang dilihatnya 
+hanya Xu Da. Tanpa pikir panjang lagi, ia berteriak, "Tangkap semua prajurit yang sedang berada di rumah-rumah penduduk!"
+
+Mendengar perintah itu, Xu Da menjadi bimbang. Ia memandang ke arah Zhao Min untuk minta persetujuan. Zhao Min hanya menggerakkan kepalanya sebagai 
+isyarat supaya ia menuruti perintah Liu Futong. Kemudian Xu Da memanggil komandan pasukannya sendiri, dan memberikan perintah singkat di luar pintu. 
+Mereka bergerak cepat. Dalam waktu setengah jam, semua prajurit Liu Futong yang sedang menempati rumah-rumah penduduk telah diringkus, dan dibawa 
+ke hadapan Liu Futong, yang berdiri menunggu di depan rumah pertama yang didatanginya bersama Zhao Min dan Yin Li.
+
+Liu Futong berteriak lantang, "Tunggu apa lagi? Bawa mereka ke alun-alun! Panggil semua pemilik rumah ini supaya berkumpul di sekitar situ!"
+
+Ketika Xu Da menoleh kepadanya, Zhao Min hanya memberinya isyarat yang sama. Setelah memberikan perintah itu, Liu Futong melangkah kembali ke rumah 
+dinas, tanpa mempedulikan kehadiran Zhao Min dan Yin Li.
+
+Kejadian itu telah menarik perhatian warga kota. Mereka mulai berkerumun di sekitar alun-alun sambil menunggu apa yang akan terjadi selanjutnya.
+Di tengah alun-alun itu, para prajurit Liu Futong yang sebelumnya menduduki rumah-rumah warga kota diikat seperti tawanan perang, dan duduk di atas 
+tanah menunggu hukuman.
+
+Yin Li berkata, "Tak ada lagi yang bisa kita lakukan di sini. Kita makan siang di kedai Bibi Xie."
+
+Sebagian warga memang berkerumun di alun-alun, tetapi sebagian lagi ternyata sedang berkumpul di kedai Xie Ying. Jumlah orang yang makan di situ memang 
+tidak sebanyak biasanya, dan mereka tidak berani membicarakan apa yang terjadi dengan suara keras, hanya saling berbisik-bisik di antara kelompok kecil 
+yang makan di satu meja.
+
+Xie Ying menyuruh pelayan menyiapkan makan siang bagi Yin Li dan Zhao Min, lalu duduk bersama keduanya sambil berkata dengan nada rendah, "Apa kira-kira 
+yang akan dilakukan Liu Futong?"
+
+"Dia sudah pasti akan mengeksekusi semua prajurit yang menduduki rumah penduduk itu sebagai bukti kepada semua orang bahwa hukum yang mereka terapkan 
+adalah lebih baik daripada hukum Dinasti Yuan," kata Zhao Min.
+
+"Hukum apa?' kata Xie Ying. "Hukum seperti itu akan membuat orang takut."
+
+"Berarti lebih bagus," kata Yin Li sambil tertawa. "Mereka sedang merintis sendiri jalan pulang ke Bozhou."
+
+Zhao Min berbisik, "Ah Yi, katakan kepada semua tamu di sini supaya datang ke alun-alun, dan menyaksikan sendiri apa yang dilakukan Liu Futong 
+kepada para prajuritnya. Biarkan mereka menceritakan kepada semua kenalan mereka di kota-kota lain."
+
+"Aku akan mengatur semuanya," kata Xie Ying sambil tersenyum.
+
+[^ger]: Tenda atau kemah-kemah gaya Mongolia ini disebut _ger_.
+
+Sebenarnya, para pemilik rumah yang meninggalkan rumah-rumah mereka di pusat kota itu memang sekarang berada di luar pintu gerbang kota sebelah barat. 
+Tetapi Yin Li telah memberikan ganti rugi dalam bentuk tenda-tenda besar[^ger] ala Mongolia bagi semua keluarga itu, dan tenda yang mereka diami 
+tak kalah dibandingkan rumah mereka sendiri di pusat kota. Hanya saja, mereka harus sedikit menyesuaikan diri. Sekarang mereka semuanya mmendengar bahwa 
+para prajurit yang menduduki rumah mereka akan dieksekusi oleh Liu Futong. Berita itu menimbulkan reaksi yang berlain-lainan di antara para pemilik 
+rumah, yang sekarang telah berdiam di rumah baru mereka, di luar pintu gerbang kota.
 
 
 
