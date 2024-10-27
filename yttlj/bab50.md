@@ -124,9 +124,9 @@ terpaksa mengepungnya."
 Mei Jian mendengus, lalu berkata sambil menyimpan pedangnya kembali ke sarungnya, "Kalian orang-orang Kunlun Pai dari dulu selalu memasang jebakan licik di 
 Guangming Ding untuk menyerang kami. Dan kalian juga..." Ia menoleh kepada para pengemis yang telah berkumpul di sebelah kanannya, lalu melanjutkan 
 omelannya, "Sejak aku masih kecil, kalian tak ada bedanya dengan bandit-bandit utara yang hanya berani mengganggu para wanita dan memeras pedagang 
-di pinggir jalan. Di Jiangnan kalian begitu, dan di Dadu juga sama! Tadi siang anggota kalian sekonyong-konyong menyerangku tanpa bertanya, lalu  
-terang-terangan menghina Zhang Jiaozhu dan keponakanku lainnya, yang sedang memperjuangkan rakyat di Kaifeng, kenapa sekarang kalian kembali menjilat 
-setelah kalah berkelahi?"
+di pinggir jalan. Di Jiangnan kalian begitu, dan di Dadu juga sama! Tadi siang anggota kalian sekonyong-konyong menyerangku tanpa bertanya, lalu 
+terang-terangan menghina Zhang Jiaozhu dan keponakanku lainnya, yang sedang memperjuangkan kepentingan rakyat di Kaifeng, kenapa sekarang kalian 
+kembali menjilat setelah kalah berkelahi?"
 
 Ah Xiu tertawa dan berkata, "Mufei, ini sungguh-sungguh salah paham. Tadi siang kami bertemu dengan Zeng Zhanglao di Qufu. Kami menitipkan pesan bahwa 
 kami sedang menuju ke Kaifeng untuk membantu Ah Li dan Minmin. Tapi memang ada orang sengaja menghasut mereka untuk melawan kita, karena itu semuanya 
