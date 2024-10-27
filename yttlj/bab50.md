@@ -26,7 +26,7 @@ dari ayahnya sendiri.
 
 Ia berkata dengan hati-hati, "Menurutmu bagaimana?"
 
-Caranya bicara membuat Ah Xiu curiga. Ia merasa ada sesuatu yang sangat penting disembunyikan oleh Zhang Wuji, dab tiba-tiba ia merasa bahwa ayah 
+Pertanyaannya membuat Ah Xiu curiga. Ia merasa ada sesuatu yang sangat penting disembunyikan oleh Zhang Wuji, dab tiba-tiba ia merasa bahwa ayah 
 dan ibunya juga mengetahui hal ini. Ia berkata dengan muram, "Kalian semua sama saja. Mulai dari Mama, Mufei, Muhou, Qi Muhou dan bahkan Fuhuang 
 juga seperti ini. Tadi Ah Li bilang bahwa semua orang hanya tahu bahwa dia adalah murid Tajkis dan anak Chaghan Temur. Kurasa dia memang murid 
 Tajkis, tapi sekali lihat aku tahu dia bukan anak Chaghan Temur. Kecuali jika kau sendiri _juga_ adalah anak Chaghan Temur dari salah satu wanita 
