@@ -10,7 +10,7 @@ malam. Suasana malam di kota kecil itu sepi, tetapi kedai itu masih buka dan men
 arak. Zhang Wuji juga memesan semangkuk mie bagi dirinya sendiri, karena Ah Xiu tidak mau makan terlalu banyak. Mereka memilih meja di dekat kasir untuk 
 menikmati pesanan mereka.
 
-Baru sekarang Zhang Wuji sempat mengamati Ah Xiu dari jarak dekat. Dan ia harus mengakui kacantikan Ah Xiu, yang tidak kalah jika dibandingkan dengan 
+Baru sekarang Zhang Wuji sempat mengamati Ah Xiu dari jarak dekat. Dan ia harus mengakui bahwa kecantikan Ah Xiu tidak kalah jika dibandingkan dengan 
 Zhou Zhiruo maupun Zhao Min, meskipun tidak secantik Xiao Zhao. Mereka membicarakan hal-hal kecil yang tidak ada hubungannya dengan urusan mereka di Liaocheng 
 sambil makan. Tanpa sadar Ah Xiu terus memperhatikan hal-hal kecil yang dilakukan oleh Zhang Wuji, mulai dari cara makannya, caranya tersenyum, 
 atau caranya memandang orang lain sementara sedang bicara dengan mereka. Ia mulai merasa ada kemiripan antara Zhang Wuji dan Yin Li, yang tidak dapat 
