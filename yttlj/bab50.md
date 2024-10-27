@@ -220,7 +220,7 @@ eh — maksudku, tidak pernah keluar rumah — kenapa sekarang kau tiba-tiba ada
 sudah sering bepergian." Ia menambahkan dengan nada gusar, "Mufei, aku tidak mau menikah dengan orang itu! Aku tidak kenal dia. Mulai sekarang, aku 
 juga tidak mau pulang."
 
-Zhang Wuji berdeham dan berkata, "Bibi Mei, setidaknya Bibi sudah mmenemukan Ah Xiu, dan dia baik-baik saja. Kungfunya sangat tinggi, bukan sembarang 
+Zhang Wuji berdeham dan berkata, "Bibi Mei, setidaknya Bibi sudah menemukan Ah Xiu, dan dia baik-baik saja. Kungfunya sangat tinggi, bukan sembarang 
 orang bisa mengganggunya, jadi kalian tidak usah kuatir. Sekarang kita harus secepat mungkin membereskan masalah dengan meriam ini. Rencana Bibi bagaimana?"
 
 Hu Zhanglao yang hadir di situ berkata, "Zhang Jiaozhu, kami tahu ada beberapa anggota kami yang telah termakan hasutan orang yang diutus oleh 
