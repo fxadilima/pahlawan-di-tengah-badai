@@ -1569,19 +1569,6 @@ akan dilakukan selanjutnya. Wuji juga merasa ayah bisa bersiap untuk memasuki Ka
 kau bisa mengatasi masalah dengan penghasut itu. Setelah itu seret orang itu ke hadapan Liu Futong hidup-hidup, dengan begitu kita akan membuatnya malu, 
 dan kemungkinan besar dia akan berarak pulang ke Bozhou. Aku hanya akan melihat apa yang bisa kulakukan dari luar tembok kota."
 
-"Kalau begitu Wuji berangkat sekarang," kata Zhang Wuji sambil berdiri dari kursinya, dan bermaksud segera pergi.
-
-Ah Xiu berkata, "Aku ikut denganmu! Kurasa aku bisa membantumu di sepanjang jalan ke arah Liaocheng."
-
-"Meizi," kata Zhang Wuji. "Sebaiknya kau kembali ke Kaifeng. Masalah ini bisa kutangani sendiri. Ini terlalu berbahaya."
-
-"Karena itu aku harus ikut denganmu," kata Ah Xiu bersikeras. "Aku bukan perempuan lemah. Kau pikir Minmin bisa mengalahkanku dengan mudah ya?"
-
-Chaghan Temur berkata, "Biarkan dia ikut. Kau memang membutuhkan bantuannya. Ibunya murid langsung Yang Dingtian, jadi dia tahu seperti apa ajaran 
-Ming Jiao yang benar. Dia pasti bisa memberi kesaksian mengenai hal ini."
-
-Dengan bijaksana Lihua berkata, "Kalau begitu aku yang kembali ke Kaifeng. Mungkin aku bisa membantu para penduduk yang berkemah di luar tembok kota."
-
-"Baiklah," kata Zhang Wuji. "Ayah, kami berangkat sekarang."
+"Kalau begitu Wuji berangkat sekarang," kata Zhang Wuji sambil berdiri dari kursinya.
 
 

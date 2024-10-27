@@ -2,6 +2,18 @@
 
 ![Ilustrasi Bab 50](/assets/images/Yuan-Dynasty-1.jpg "Melayani masyarakat kecil")
 
+Ah Xiu berkata, "Aku ikut denganmu! Kurasa aku bisa membantumu di sepanjang jalan ke arah Liaocheng."
+
+"Meizi," kata Zhang Wuji. "Sebaiknya kau kembali ke Kaifeng. Masalah ini bisa kutangani sendiri. Ini terlalu berbahaya."
+
+"Karena itu aku harus ikut denganmu," kata Ah Xiu bersikeras. "Aku bukan perempuan lemah. Kau pikir Minmin bisa mengalahkanku dengan mudah ya?"
+
+Chaghan Temur berkata, "Biarkan dia ikut. Kau memang membutuhkan bantuannya. Ibunya murid langsung Yang Dingtian, jadi dia tahu seperti apa ajaran 
+Ming Jiao yang benar. Dia pasti bisa memberi kesaksian mengenai hal ini."
+
+Dengan bijaksana Lihua berkata, "Kalau begitu aku yang kembali ke Kaifeng. Mungkin aku bisa membantu para penduduk yang berkemah di luar tembok kota."
+
+"Baiklah," kata Zhang Wuji. "Ayah, kami berangkat sekarang."
 
 Chaghan Temur memberikan kuda terbaik kepada Zhang Wuji dan Ah Xiu. Dari situ mereka tidak mengambil jalan yang melewati Kaifeng, tetapi langsung 
 menuju ke arah Jining, karena tujuan Zhang Wuji adalah menemui penatua Kai Pang yang sedang siaga di sekitar Liaocheng. Setelah berkuda sekitar 
@@ -238,7 +250,7 @@ Lihua di sana. Kalian tidak perlu kuatir."
 Mei Jian segera mengambil kudanya, lalu beranjak dari situ untuk mencari jejak Wang Baobao dan Chang Yuchun. Para anggota Kai Pang dan Kunlun Pai juga 
 minta diri untuk segera melaksanakan urusan mereka.
 
-Dari situ Zhang Wuji dan 
+Dari situ Zhang Wuji dan Ah Xiu 
 
 
 
