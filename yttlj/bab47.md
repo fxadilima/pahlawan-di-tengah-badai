@@ -72,7 +72,7 @@ bahwa _Kaisar_ salah?"
 
 Mendengar kalimat itu, dari sebelah kiri Yin Li terdengar suara pria tertawa, yang segera diikuti oleh beberapa orang anggota Majelis lainnya. Banyak 
 orang mulai berbisik-bisik sambil terus tertawa dan membuat situasi rapat itu menjadi agak berisik. Yin Li diam-diam melirik ke arah sumber suara pertama, 
-dan melihat seorang pemuda berusia sekitar delapan belas tahun, bertubuh kekar, dan mengenakan busana yang sangat unik duduk di kursi tersendiri. 
+dan melihat seorang pemuda berusia sekitar sembilan belas tahun, bertubuh kekar, dan mengenakan busana yang sangat unik duduk di kursi tersendiri. 
 Pemuda itu kemudian berhenti tertawa setelah melihat Kaisar dan Permaisuri Qi menatapnya dengan tajam. Dengan segera Yin Li menyimpulkan bahwa pemuda 
 ini adalah Putra Mahkota Dinasti Yuan, putra tunggal Ki Seung Nyang dan Kaisar Toghon Temur, Pangeran Ayushiridara.
 

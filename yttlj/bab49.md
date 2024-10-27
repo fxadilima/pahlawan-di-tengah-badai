@@ -1239,18 +1239,349 @@ kepada para prajuritnya. Biarkan mereka menceritakan kepada semua kenalan mereka
 
 [^ger]: Tenda atau kemah-kemah gaya Mongolia ini disebut _ger_.
 
-Sebenarnya, para pemilik rumah yang meninggalkan rumah-rumah mereka di pusat kota itu memang sekarang berada di luar pintu gerbang kota sebelah barat. 
-Tetapi Yin Li telah memberikan ganti rugi dalam bentuk tenda-tenda besar[^ger] ala Mongolia bagi semua keluarga itu, dan tenda yang mereka diami 
-tak kalah dibandingkan rumah mereka sendiri di pusat kota. Hanya saja, mereka harus sedikit menyesuaikan diri. Sekarang mereka semuanya mmendengar bahwa 
-para prajurit yang menduduki rumah mereka akan dieksekusi oleh Liu Futong. Berita itu menimbulkan reaksi yang berlain-lainan di antara para pemilik 
-rumah, yang sekarang telah berdiam di rumah baru mereka, di luar pintu gerbang kota.
+Sebenarnya, para pemilik rumah yang meninggalkan rumah-rumah mereka di pusat kota itu memang sekarang berada di luar pintu gerbang kota sebelah barat, 
+tetapi Yin Li telah memberikan ganti rugi dalam bentuk tenda-tenda besar[^ger] ala Mongolia bagi semua keluarga itu, dan tenda yang mereka diami 
+tak kalah dibandingkan rumah mereka sendiri di pusat kota. Hanya saja, mereka harus sedikit menyesuaikan diri. Hal ini bisa dilakukan adalah berkat 
+jasa Ying Furen, yang mengenal baik para pemilik kios yang menjual tenda semacam ini. Yin Li menggunakan dana yang diterimanya dari masyarakat Kaifeng 
+sendiri untuk membayar semua keperluan itu. Kalau pun para prajurit dan jajaran Liu Futong sungguh-sungguh mengambil alih tanah dan rumah-rumah itu 
+untuk kepentingan mereka, para pemilik rumah itu sudah tidak peduli lagi akan nasib harta benda mereka yang tertinggal di sana, karena mereka telah 
+memiliki tempat tinggal yang baru. Beberapa keluarga bahkan merasa kehidupan mereka menjadi lebih baik ketimbang sebelumnya.
 
+Perubahan besar itu terjadi hanya dalam tempo beberapa jam, berkat kerja sama semua orang, karena sebelumnya mereka telah siap menghadapi kedatangan 
+balatentara Liu Futong. Ketika Liu Futong berarak memasuki kota, ia sama sekali tak tahu mengenai hal ini.
 
+Sekarang mereka semuanya mmendengar bahwa para prajurit yang menduduki rumah mereka akan dieksekusi oleh Liu Futong. Berita itu menimbulkan reaksi yang 
+berlain-lainan di antara para pemilik rumah, yang sekarang telah berdiam di rumah baru mereka, di luar pintu gerbang kota.
 
+Acara eksekusi militer itu baru siap untuk dilaksanakan beberapa jam kemudian. Matahari sudah mulai bergerak mendekati ufuk barat ketika seorang 
+pejabat Liu Futong yang berpakaian resmi naik ke sebuah panggung di alun-alun untuk mengumumkan tindakan yang akan dilakukan. Liu Futong sendiri, 
+dan juga Han Lin'er, sama sekali tidak muncul di tempat itu.
 
+Pejabat itu mengumumkan dengan suara lantang, "Semua prajurit ini telah melawan perintah atasan, dan menindas rakyat dengan cara merampas hak milik 
+mereka. Mereka menduduki rumah-rumah penduduk kota Kaifeng secara sewenang-wenang dan menyalahgunakan kekuatan militer mereka. Sesuai dengan kesepakatan 
+militer antara pihak Dinasti Song dengan Shaoli Junzhu, sebelum pasukan kami memasuki kota Kaifeng, dengan ini Liu Chengxiang akan mengeksekusi para prajurit 
+yang ditemukan bersalah ini berdasarkan hukum militer."
 
+Lebih dari seratus orang algojo disiapkan untuk melaksanakan eksekusi itu, di hadapan para penduduk kota. 
 
+Ketika eksekusi itu mulai dilaksanakan, pekikan ngeri terdengar dari segala penjuru, dan banyak orang mulai meninggalkan tempat itu karena tidak tega 
+menyaksikannya.
 
+Sementara di alun-alun sedang terjadi eksekusi besar-besaran, dari pintu selatan Ah Xiu dan Lihua memasuki kota dengan diiringi oleh tiga orang anggota 
+Kai Pang tiga kantong. Dalam perjalanan menuju ke Kaifeng, tiga anggota Kai Pang itu telah menceritakan kepada Ah Xiu mengenai dua kepala pejabat 
+Liu Futong yang tergantung di atas pintu gerbang selatan kota ketika mereka berangkat. Ah Xiu kemudian sengaja memasuki kota dari pintu gerbang selatan 
+untuk melihat sendiri apa yang diceritakan oleh ketiga pengemis itu. Lihua sebelumnya telah menyaksikan dengan matanya sendiri pemandangan semacam itu, 
+ketika ia menyelinap keluar dari istana. Saat itu beberapa orang di Dadu dieksekusi karena melakukan terbukti melakukan pemberontakan melawan pemerintah, 
+dan kepala mereka digantung di atas tembok kota sebagai peringatan bagi semua orang, karena itu Lihua sama sekali tidak merasa takut melihat pemandangan itu.
+Tetapi Ah Xiu belum pernah menyaksikannya, dan tengkuknya tiba-tiba terasa dingin ketika melihat dua kepala manusia tanpa tubuh sedang terayun-ayun 
+di atas tembok kota.
 
+Sekelompok prajurit berseragam merah tampak sedang membawa gerobak berisi jenazah sepuluh militer yang mengenakan seragam yang sama, menuju ke arah 
+mereka. Ah Xiu dan Lihua buru-buru mengajak ketiga anggota Kai Pang itu menyingkir agak jauh untuk memberi jalan. Para prajurit itu kemudian memisahkan 
+bagian kepala dan menngikat rambut mereka menjadi satu, lalu bekerja sama menaikkan sepuluh kepala manusia itu ke posisi yang sejajar dengan dua 
+kepala yang saat itu telah tergantung di situ. Setelah itu mereka membawa bagian tubuh tanpa kepala itu keluar dari pintu gerbang.
+
+Seorang penjual ubi rebus keliling sedang melintas di dekat mereka sambil menjajakan dagangannya. Lihua segera turun dari punggung kudanya, lalu 
+menghampiri penjual makanan itu, dan membeli lima potong ubi bagi mereka semua. Ketika membayar harga makanan itu, ia bertanya secara sambil lalu, 
+"Dage, apa yang sedang terjadi?"
+
+Penjual ubi itu meletakkan telunjuk di depan mulutnya sendiri, lalu berkata dengan nada rendah, "Liu Futong sedang mengeksekusi banyak orang di alun-alun. 
+Junzhu dan Panglima Xu sedang di situ untuk menyaksikannya."
+
+Lihua mengucapkan terima kasih, kembali ke tempatnya semula, lalu membagikan makanan itu kepada Ah Xiu dan ketiga pengemis yang datang bersama mereka. 
+Ia naik ke atas punggung kudanya sendiri, lalu menceritakan apa yang baru didengarnya dari si penjual ubi. Mendengar ceritanya, Ah Xiu berkata kepada 
+salah seorang pengemis, "Bawa kami ke alun-alun."
+
+Di alun-alun ia melihat sebuah kedai yang menjual mie tak jauh dari tempat seorang wanita muda yang mengenakan pakaian biru. Wanita itu sedang berdiri di dekat 
+seorang pria yang berseragam militer merah. Tampaknya sedang menyaksikan eksekusi militer yang sedang berlangsung sambil berdiskusi dengan suara rendah. 
+Dua orang wanita lain tampak berdiri agak jauh dari tempat mereka, dan sedang menyaksikan adegan yang sama. Lihua segera melihat bahwa wajah salah seorang 
+dari kedua wanita itu penuh dengan bekas luka akibat goresan pedang. Ia segera menunjuk wanita itu dengan jari telunjuknya sambil berbisik kepada Ah Xiu, "Itu pasti Lili."
+
+Ah Xiu mengangguk, lalu berkata kepada ketiga pengemis yang datang bersama mereka, "Katakan kepada Shaoli Junzhu bahwa kami menunggunya di kedai mie itu."
+Ia menyodorkan tanda pengenal Ming Jiao kepada salah seorang pengemis.
+
+Ia mengajak Lihua menambatkan kuda mereka di sebuah pohon besar di dekat tempat itu, lalu mereka berjalan memasuki kedai, dan memilih tempat di dekat 
+jendela. Seorang pelayan datang untuk menanyakan pesanan mereka, sambil menuangkan teh hangat. Lihua memesan dua mangkuk mie kuah bagi mereka, 
+dan sebotol arak.
+
+Tak lama kemudian ketiga pengemis itu datang bersama Yin Li. Ah Xiu segera memberi isyarat supaya ketiga pengemis itu menunggu di luar, lalu mempersilakan Yin Li 
+duduk di hadapan mereka sambil tersenyum tipis dan berkata, "Kami sedang menuju ke Xiangyang, tapi di tengah jalan mereka mengatakan bahwa di sini telah 
+terjadi kekacauan yang mengancam keselamatan penduduk kota, jadi kami datang untuk membantu."
+
+Yin Li tidak pernah bertemu dengan Ah Xiu maupun Lihua, dan ia tak dapat menebak identitas mereka, kecuali bahwa mereka pastilah salah seorang anggota 
+Ming Jiao yang cukup berpengaruh, mengingat mereka membawa tanda pengenal itu. Hanya orang-orang seperti kakeknya, Yang Xiao, Fan Yao atau Tajkis 
+yang memiliki tanda pengenal seperti itu. Tetapi kedua gadis di hadapannya ini masih muda, jadi hampir tak mungkin mereka memiliki jabatan setinggi 
+itu di Ming Jiao. Satu-satunya orang muda yang memiliki jabatan tinggi di Ming Jiao saat ini hanya Zhang Wuji.
+
+Melihat air muka Yin Li, Lihua segera berkata, "Dajie, kau membuatnya bingung." Ia tertawa sambil menjelaskan, "Muhou menguatirkan keselamatanmu, 
+jadi menyuruh kami datang."
+
+"Muhou? Oh, kalian pasti anak Bibi Mei dan Bibi Luo!" kata Yin Li dengan gembira. Tetapi detik berikutnya ia merendahkan suaranya, "Muhou tak 
+mungkin menyuruh kalian datang, jadi kalian pasti kabur dari istana."
+
+"Jangan dengarkan penipu ini," kata Ah Xiu. "Ibunya diutus Huang Shang untuk mendukung pengawalan meriam. Muhou tidak menyuruh kami datang. Kami pergi 
+sendiri karena ingin tahu apa yang terjadi."
+
+Yin Li berdehem, lalu bertanya, "Bagaimana aku memanggil kalian?"
+
+"Panggil aku Ah Xiu, dia Lihua," kata Ah Xiu.
+
+Pembicaraan mereka terhenti ketika pelayan mengantarkan mie yang mereka pesan. Lihua segera mengambil semangkuk mie dan mulai makan dengan lahap. 
+Ah Xiu menawarkan makanan itu kepada Yin Li, dan memesan semangkuk lagi bagi dirinya sendiri. Setelah pelayan itu pergi, ia berkata, "Katakan, bagaimana 
+kami bisa membantu kalian?"
+
+Sambil makan mie pelan-pelan, Yin Li memikirkan apa yang harus dikatakannya kepada kedua gadis ini. Ki Seung Nyang dan Permaisuri Bayan sudah jelas 
+tidak mengatakan apa-apa mengenai identitasnya kepada mereka. Jika mereka muncul di hadapan Bibi Liu dan rekan-rekannya, apalagi jika semua orang 
+tahu bahwa mereka berdua adalah putri Toghon Temur, maka segalanya akan kacau.
+
+"Pertama-tama," katanya dengan hati-hati. "Kalian tidak boleh mengatakan identitas kalian yang sebenarnya, atau semua rencana kita akan kacau. 
+Jika ditanya, katakan saja bahwa kalian adalah saudara seperguruan Jiaozhu. Liu Futong hanya tahu bahwa aku putri Chaghan Temur dan murid Jinhua Popo. 
+Jadi katakan bahwa kalian juga saudara seperguruanku. Biarkan semua orang di sini hanya tahu seperti itu."
+
+"Jinhua Popo?" tanya Lihua heran.
+
+"Ibu kalian pasti menyebutnya Tajkis," jawab Yin Li sambil tersenyum.
+
+"Baik, pengemis itu juga tahu cerita yang kira-kira sama," kata Ah Xiu lagi.
+
+"Bagaimana dengan Minmin?" tanya Lihua.
+
+"Dengan Minmin, kita akan saling menyapa berdasarkan usia," jawab Yin Li sambil tersenyum. "Tahun ini aku akan genap berusia dua puluh tiga tahun. 
+Berarti aku yang paling tua."
+
+"Aku dua puluh lima, jadi aku akan tetap Dajie," kata Ah Xiu dengan ringan. "Kau menjadi Er Jie, kurasa berikutnya adalah Minmin. Lalu anak bengal ini."
+
+"Aku akan memberitahu Minmin," kata Yin Li lagi. "Senang sekali punya saudara seperti kalian."
+
+"Karena aku paling kecil, berarti kalian semua harus mengalah kepadaku," kata Lihua tanpa malu-malu, dan mengambil semua pangsit yang tersisa. 
+"Aku sedang dalam masa pertumbuhan, jadi harus makan lebih banyak."
+
+"Kurasa kau sudah terlalu besar," kata Yin Li.
+
+"Minmin lebih besar," kata Lihua tak mau kalah.
+
+"Ibu Lihua kemungkinan besar akan berpapasan dengan Wang Baobao — di tengah jalan menuju ke sini — tapi kami menduga Liu Futong sedang mengirim orang 
+untuk menghadang perjalanan meriam itu ke Dadu," lanjut Yin Li. "Sekarang ini murid-murid Emei Pai dan beberapa prajurit kita sedang mengikuti 
+orang itu. Kalian tidak berpapasan dengan mereka di sepanjang jalan menuju ke sini?"
+
+"Kami tidak memperhatikan hal itu," kata Ah Xiu. "Kemungkinan besar mereka lewat jalur lain. Siapa Wang Baobao itu?"
+
+Yin Li sekarang tahu bahwa kedua gadis ini memang tidak terlalu banyak tahu mengenai persoalan ini. Ia berkata, "Orang yang mengawal meriam itu. 
+Dia kakak angkat kami — keponakan ayah. Di depan orang lain kalian harus memanggil dia Gege."
+
+"Oh," kata Ah Xiu. "Kungfunya tinggi?"
+
+"Justru tidak," kata Yin Li lagi. "Karena itu kami kuatir Liu Futong akan menggalang para pendekar Jianghu untuk menghadangnya. Dia bisa menghasut para 
+orang di sepanjang jalan untuk mendukungnya merampas senjata-senjata itu. Jika para pendekar masih termakan oleh omongannya, maka semua 
+orang akan celaka. Sekarang ini aku sedang menunggu-nunggu kabar dari murid-murid Emei dan prajurit yang mengejar utusan Liu Futong itu. 
+Untuk sementara urusan di sini masih bisa kami tangani dengan baik. Liu Futong hanya menghukum orang-orangnya sendiri yang membuatnya malu."
+
+"Aku tak habis pikir, kenapa kami tidak berpapasan dengan Gege atau murid-murid Emei yang kalian sebutkan tadi," kata Ah Xiu lagi.
+
+"Itu gampang," kata Yin Li. "Kemungkinan besar Gege mengambil jalur lurus ke arah utara, yang memang lebih pendek. Saat ini mereka pasti sedang beristirahat 
+di salah satu tempat. Mereka hanya akan bergerak setelah gelap. Seharusnya mereka sedang di tengah jalan menuju ke Liaocheng. Kalian datang dari arah mana?"
+
+"Qufu," jawab Ah Xiu. "Kami mampir di rumah keluarga besar Kongzi. Kami naik kapal dari Tianjin, dan turun di Dongying."
+
+"Berarti memang masuk akal," kata Yin Li lagi. "Kalian masuk ke pinggiran Kaifeng dari arah timur, bagaimana bisa berjumpa dengan murid-murid Emei atau Gege 
+yang sudah bergerak ke utara?" Ia mendesah, lalu menambahkan, "Aku sungguh kuatir, sampai saat ini tidak ada kabar."
+
+Ia bangkit berdiri setelah menghabiskan makanannya, lalu berkata, "Sebaiknya kita bergabung dengan Minmin sekarang, tapi aku akan bicara dengan 
+dia dulu. Beberapa menit lagi baru kalian keluar. Jangan lupa, ada seorang murid senior Emei Pai di situ, kalian panggil dia Ding Shijie."
+
+"Kelihatannya Lili ingin menyuruh kita ke Liaocheng," kata Lihua setelah Yin Li pergi. "Kita pasti akan ketemu Mama di sana. Jangan mau."
+
+"Bagaimana cara menolaknya?" tanya Ah Xiu. Ia berdiri dan berjalan menuju ke meja kasir untuk membayar apa yang mereka makan, lalu berkata, 
+"Kita temui Minmin sekarang."
+
+Mereka keluar dari kedai, dan berjalan di antara kerumunan orang menuju ke tempat Zhao Min dan Yin Li sedang berdiri, di deretan paling depan. 
+Mereka sedang menyaksikan jalannya eksekusi itu, yang masih terus berlanjut sampai sekarang. Masih tersisa sekitar seratus orang lagi yang sedang 
+menunggu giliran dipenggal oleh algojo-algojo Liu Futong yang bertubuh tinggi besar. Saat itu para petugas sedang membersihkan sisa darah yang tergenang 
+di lantai panggung kayu, dan petugas-petugas lain sibuk mengangkut mayat-mayat tanpa kepala dengan gerobak mereka. Dari pembicaraan orang di sekelilingnya, 
+Lihua mendengar bahwa kali ini kepala mereka akan dipajang di atas pintu gerbang utara.
+
+Ketika melihat mereka datang, Zhao Min tersenyum sambil menyapa dengan ramah, "Dajie, Lihua, kalian datang!" Sandiwara baru itu pun mulai bergulir. 
+Lihua dengan senang hati mengikuti apa yang sedang berlangsung. Mereka memang hanya berbeda sedikit, dan keduanya sama-sama jangkung. Lihua dan 
+Ah Xiu memang pernah melihat Zhao Min sebelumnya, tetapi saat itu mereka semua masih kecil, yaitu pada saat Zhao Min meninju muka Ayushiridara 
+di halaman istana. Tetapi Zhao Min yang mereka lihat sekarang sudah sngat berbeda, meskipun mereka masih bisa mengenali wajahnya. Zhao Min sendiri 
+sama sekali tidak pernah melihat kedua gadis itu, karena saat itu mereka tidak diperkenalkan.
+
+Zhao Min berdiri di sisi Lihua untuk mengukur siapa yang lebih tinggi dari mereka. "Kau sudah setinggi aku!" kata Zhao Min.
+
+Ah Xiu tidak tertarik untuk berbasa-basi. Ia segera bertanya dengan nada datar, "Kau ingin membiarkan semua ini?"
+
+"Kecuali jika kau punya usul lain," jawab Zhao Min. Ia mulai memperhatikan penampilan Ah Xiu baik-baik. Di matanya Ah Xiu sangat cantik. Bentuk matanya 
+yang lebar itu agak mirip Yin Li, yang adalah ciri khas wanita asal Jiangnan. Alisnya tebal, dan bulu matanya lentik. Kulitnya putih dan halus. 
+Ah Xiu bertubuh sedang, dan lekuk-lekuk tubuhnya sangat sempurna. Sayangnya cara bicaranya kasar dan dengan mudah akan membuat orang tersinggung. 
+Yin Li juga kasar, tetapi kekasaran Yin Li bisa dipahaminya dengan mudah, karena Zhao Min tahu jelas apa saja yang telah dialami Yin Li sejak kecil. 
+Sedangkan Ah Xiu sudah jelas lahir dan dibesarkan di lingkungan istana, dan pasti dididik dengan ketat. Ia juga bisa dipastikan tak pernah mengalami 
+kekurangan apa pun sejak dilahirkan. Yin Li juga datang dari keluarga kaya yang tak pernah kekurangan, tetapi sejak kecil ia terpaksa melarikan diri 
+dari rumah, karena Yin Yewang bermaksud membunuhnya setelah Yin Li membunuh ibu tirinya secara tak sengaja. Sejak itu Yin Li mulai anah. Saat ini, 
+Zhao Min tak bisa memahami apa yang membuat Ah Xiu bersikap seolah-olah bermusuhan dengannya.
+
+"Ada cara untuk menghentikan segala hal ini dengan cepat," kata Ah Xiu lagi. "Bukankah mereka selalu memakai nama Ming Jiao untuk meyakinkan orang? Kau 
+bisa langsung mengatakan bahwa Wuji Gege tidak menyetujui cara kerja seperti ini. Kurasa posisi Liu Futong di Ming Jiao juga tidak terlalu tinggi."
+
+"Kau benar," kata Zhao Min. "Sayangnya sejak Han Shantong meninggal, Liu Futong tidak lagi mematuhi nasihat kita. Di sini kita hanya berusaha melindungi 
+kepentingan rakyat, jadi kita terpaksa mengalah."
+
+Ah Xiu hendak mengatakan sesuatu, tetapi saat itu seorang murid laki-laki Emei Pai datang, dan langsung berkata kepada Ding Minjun, "Shishu, 
+kami menemukan sesuatu."
+
+Yin Li buru-buru berkata, "Kita bicara di tempat lain."
+
+Mereka menyingkir dari kerumunan orang itu, dan bicara di bawah pohon besar di mana Ah Xiu dan Lihua menambatkan kuda-kuda mereka. Ding Minjun segera 
+bertanya, "Bukankah kalian sedang membuntuti orang yang diutus ke utara itu?"
+
+"Betul," kata muridnya. "Orang itu ternyata menghasut banyak orang di sepanjang jalan, terutama sekali para anggota Kai Pang. Dia mengatakan bahwa 
+Zhang Jiaozhu adalah pengkhianat Ming Jiao, dan Junzhu adalah sekutunya. Dia menyuruh para pendekar itu membantunya merampas meriam-meriam yang akan 
+dikirim kembali ke istana. Kami sudah memberitahu Panglima Chang dan Wang Gongzi supaya berhati-hati, dan sebagian dari kami kemudian meneruskan 
+perjalanan ke arah utara untuk memperingatkan para pendekar yang kami jumpai di sepanjang jalan. Banyak anggota Kai Pang di sepanjang jalan sampai 
+ke Liaocheng."
+
+"Dan mereka semua percaya apa yang dikatakan orang itu?" tanya Zhao Min.
+
+"Sebagian percaya, tetapi ada yang tidak," jawab murid Emei itu. "Karena itu banyak terjadi perdebatan, dan kedua kelompok itu kemudian berpisah."
+
+"Sekarang ini Wang Gongzi dan Panglima Chang ada di mana?" tanya Yin Li.
+
+"Terakhir aku bertemu dengan mereka kurang lebih lima puluh _li_ dari Liaocheng, sedang beristirahat di sebuah hutan. Mereka baru akan melanjutkan perjalanan 
+setelah gelap. Berarti sekarang mereka sudah pergi dari situ. Aku kembali ke sini sendirian, lewat jalan pintas, karena itu aku tidak bertemu dengan 
+mereka. Di Liaocheng kami bertemu dengan seorang pendekar wanita yang sangat tinggi..." Ia kemudian menyadari kehadiran Lihua, lalu melanjutkan 
+sambil menunjuk ke arah gadis itu, "kira-kira seperti nona ini. Dia yang menyuruhku segera melaporkan apa yang terjadi ke sini. Dia orang Ming Jiao."
+
+Lihua hendak mengatakan sesuatu, tetapi Ah Xiu mendahuluinya, "Kenapa kalian tidak segera menangkap utusan Liu Futong itu?"
+
+"Karena saat itu anggota Kai Pang dan para pendekar lain yang mempercayainya sudah sangat banyak," jawab murid Emei itu. "Kami kuatir akan terjadi 
+perkelahian, dan malah membocorkan di mana posisi pasukan yang mengawal senjata itu. Begitu mendengar apa yang terjadi, Wang Gongzi dan Panglima Chang 
+segera mengalihkan rute perjalanan mereka agak ke barat, jadi mereka pasti tidak akan melalui Liaocheng. Aku sendiri sekarang tidak tahu mereka ada 
+di mana. Wanita bertubuh jangkung itu menyuruh para prajurit Panglima Xu segera mengikuti jejak Wang Gongzi dan Panglima Chang."
+
+"Bagus," kata Zhao Min. "Dajie, Lihua, aku perlu bantuan kalian. Ceritakan masalah ini kepada ayah di Nanyang. Urusan ini tidak bisa kita tangani 
+sendiri, karena saat ini kami berdua harus tetap di Kaifeng." Ia mengeluarkan sebuah tanda pengenal, dan menyodorkannya kepada Ah Xiu sambil berkata, 
+"Kalian dengan mudah akan menemukan pasukan ayah jika menunjukkan ini kepada salah seorang prajurit yang kalian jumpai di situ."
+
+Lihua sangat senang mendengar perintah itu, karena dengan begitu ia tak usah pergi ke Liaocheng, yang bisa dipastikan akan bertemu dengan ibunya. 
+Tanpa pikir panjang ia segera berkata, "Dajie, ayo kita berangkat sekarang!"
+
+Yin Li berkata, "Minmin, mereka baru tiba dari jauh, mungkin sebaiknya aku yang menemui ayah."
+
+Tetapi Ah Xiu berkata dengan gusar, "Aku bukan perempuan lemah. Kita berangkat sekarang juga!"
+
+Tanpa bicara lagi ia segera menarik tangan Lihua, lalu mengambil kuda mereka yang ditambatkan tak jauh dari situ, dan segera berangkat ke Nanyang melalui 
+pintu gerbang selatan.
+
+"Kelihatannya kakak kalian itu lebih judes dari kau sendiri," kata Ding Minjun kepada Yin Li setelah Ah Xiu dan Lihua pergi. 
+
+Yin Li menatapnya dengan bola mata menghadap ke atas, lalu berkata, "Ding Shijie, aku hanya belajar dari kau."
+
+Lihua yang lebih terbiasa melakukan perjalanan jauh memimpin perjalanan itu tanpa diminta. Ia mengambil jalur tercepat seperti yang ditunjukkan oleh 
+sekelompok pedagang yang mereka temui di jalan. Mereka hanya berhenti sekali untuk membeli bakpao di pinggir jalan, lalu memberi minum kuda mereka. 
+Setelah itu mereka kembali berpacu ke arah Nanyang tanpa banyak bicara di jalan. Dalam waktu sekitar tiga jam mereka telah tiba di Fangcheng, yang termasuk 
+wilayah yang berada di bawah komando militer Nanyang. 
+
+Dengan mudah Lihua menemukan seorang pria berpakaian militer Dinasti Yuan sedang makan di sebuah kedai. Tampaknya orang itu adalah komandan batalyon 
+yang mengawal kota kecil ini. Mereka masuk ke kedai itu, dan menghampiri pria itu. "Dage, kami baru tiba dari Kaifeng, sedang mencari ayah kami di sekitar 
+sini. Kau bisa membantu?" tanya Lihua sambil menunjukkan tanda pengenal yang diberikan Zhao Min.
+
+Begitu melihat tanda pengenal itu, si komandan meletakkan shaobing yang sedang dipegangnya, lalu merogoh sakunya untuk mengambil uang perak, dan 
+meletakkannya di atas meja kayu. Ia berseru kepada pemilik kedai, "Laoban, aku pergi dulu. Katakan kepada anak buahku supaya meneruskan patroli mereka!"
+
+Ia berkata kepada Lihua da Ah Xiu sambil bergegas menuju ke arah pintu, "Ikuti aku!"
+
+Tanpa banyak tanya, mereka segera mengikuti komandan itu mengambil kudanya, lalu si komandan memimpin mereka berkuda di depan menuju ke arah barat daya 
+Fangcheng. Di pinggiran sebuah hutan kecil mereka melihat sebuah kemah besar, dan dua ekor kuda sedang ditambatkan di depannya. Komandan itu segera 
+turun dari kudanya sambil berkata, "Tunggu di sini!"
+
+Ia masuk ke dalam tenda besar itu sambil membawa tanda pengenal yang diberikan Lihua. Satu menit kemudian ia keluar lagi sambil berkata, "Silakan masuk! 
+Wangye ada di dalam!"
+
+Lihua dan Ah Xiu sudah sering bertemu dengan Chaghan Temur sejak kecil, dan penampilan jendral itu tidak banyak berubah, kecuali sekarang jenggot 
+dan cambangnya yang lebat itu sudah mulai dihiasi warna putih. Ketika mereka memasuki tendanya, Chaghan Temur sedang menerima seorang tamu pria 
+yang masih berusia sekitar dua puluh tujuh tahun, berwajah tampan, dengan alis tebal yang gagah. Ketika melihatnya, Lihua merasa seperti sudah pernah 
+bertemu dengan orang ini sebelumnya, tapi ia tidak dapat mengingat di mana.
+
+Chaghan tertawa senang, lalu berkata tanpa basa-basi kepada kedua gadis itu, "Kalian pastilah anak-anak Selir Luo dan Selir Mei. Jadi Minmin menyuruh 
+kalian datang, ada apa?"
+
+"Wangye, Liu Futong menyuruh orang ke utara untuk menghadang meriam-meriam itu," jawab Lihua. "Orang itu menghasut banyak pendekar dan para anggota 
+Kai Pang di sepanjang jalan, dengan mengatakan bahwa Zhang Wuji adalah seorang pengkhianat dan Shaoli Junzhu adalah sekutunya. Sekarang banyak orang 
+mulai bergerak untuk menghadang perjalanan meriam itu ke Dadu. Mama sudah dikirim dari Dadu untuk membantu, terakhir kalinya salah seorang murid Emei Pai 
+mengatakan bahwa dia bertemu Mama di Liaocheng. Tetapi katanya Wang Baobao mengalihkan rute perjalanan mereka sedikit ke arah barat. Kami tidak tahu 
+di mana tepatnya sekarang mereka berada. Murid-murid Emei Pai masih terus memata-matai utusan Liu Futong dan para pendekar yang berhasil dikumpulkannya. 
+Mama menyuruh prajurit Panglima Xu yang juga sedang menguntit untuk mencari keberadaan Wang Baobao dan Panglima Chang."
+
+Meskipun mereka bisa melihat bahwa Chaghan Temur sedang terkejut mendengar cerita Lihua, tetapi air mukanya masih tetap tenang. Ia tidak segera menanggapi, 
+tetapi tampak sedang berpikir dengan serius. Sekitar dua menit kemudian ia baru bicara, "Wuji, apa pendapatmu?"
+
+Ah Xiu dan Lihua terkejut ketika mendengar Chaghan Temur menyapa pemuda itu. Mereka sama sekali tidak mengira akan bertemu dengan Zhang Wuji di pinggiran 
+kota Nanyang. Ah Xiu merasa jantungnya berdegup beberapa kali lebih kencang ketika mendengar Zhang Wuji berbicara, "Ayah, sekarang ini Minmin dan Ah Li 
+pasti bisa mengendalikan situasi di dalam kota Kaifeng — setidaknya untuk sementara. Yang Wuji kuatirkan adalah Gege, tetapi karena Bibi Mei atau 
+Bibi Luo ada di situ, maka kita bisa memastikan bahwa salah seorang dari murid Emei Pai pasti akan mengantarkannya ke tempat Gege berada, dan kemungkinan 
+besar mereka sekarang ini sudah kembali melanjutkan perjalanan lewat jalur lain. Tetapi kita harus mencegah penghasut itu mengumpulkan lebih banyak orang 
+lagi dengan cara ini. Jika dibiarkan, keadaan akan menjadi berbahaya bagi Minmin dan Ah Li."
+
+Lihua berkata, "Yang dikirim dari Dadu adalah ibuku — Mei Jian!"
+
+Zhang Wuji menoleh ke arahnya sambil berkata dengan ragu-ragu, "Eh, kau..."
+
+"Namaku Lihua, dia kakakku — Ah Xiu," jawab Lihua. "Wuji Gege, sebaiknya kau segera pergi ke Kaifeng. Liu Futong membunuh banyak orang, dan menggantung 
+kepala mereka di tembok-tembok kota."
+
+Kali ini Chaghan Temur ikut terkejut. Zhang Wuji segera bertanya, "Mengapa dia melakukannya?"
+
+"Karena orang-orang itu bikin malu, jadi Liu Futong mengeksekusi mereka di hadapan rakyat Kaifeng," jawab Lihua.
+
+"Apa yang mereka lakukan?" tanya Zhang Wuji lagi.
+
+Lihua agak ragu, karena mereka memang belum mendengar cerita itu dari Zhao Min maupun Yin Li. Ia tidak segera menjawab. Ah Xiu berkata dengan agak 
+ketus, "Kau membingungkan orang. Lain kali kalau tidak tahu jangan sembarangan bicara." Ia berpaling kepada Zhang Wuji, dan berkata dengan nada lain, 
+"Wuji Gege, sebetulnya kami baru tiba di situ, jadi kami hanya melihat apa yang sedang terjadi. Minmin mengutus kami adalah karena menguatirkan masalah 
+meriam itu, dan bukan masalah di dalam kota. Liu Futong sedang mengeksekusi orang-orangnya sendiri yang dianggapnya mengganggu rakyat. Mereka semua 
+adalah prajurit Liu Futong. Jika dilihat dari apa yang sedang terjadi, kemungkinan besar Minmin atau Ah Li yang sengaja mendorong para prajurit itu 
+untuk melanggar perintah Liu Futong, dengan begitu mereka akan bisa menggunakan hal itu untuk menekan Liu Futong dari sisi politik, dan mengatakan 
+bahwa pasukan mereka menindas rakyat."
+
+Chaghan Temur menarik nafas panjang setelah mendengar uraian Ah Xiu. "Rupanya begitu," katanya singkat. Air mukanya berubah tenang seperti sebelumnya. 
+Tampaknya kekuatirannya sudah lenyap sama sekali.
+
+Zhang Wuji berkata, "Ayah, setidaknya kita harus mencegah Liu Futong melakukan lebih banyak pembunuhan."
+
+[^yuefu]: Yue Fu (岳父) adalah panggilan umum dari seorang suami kepada ayah mertuanya dalam struktur masyarakat Tionghoa.
+[^papa]: Papa atau Fuqin (爸爸 atau 父亲) adalah panggilan umum bagi seorang anak kepada ayah mereka, tetapi biasanya seorang suami akan memanggil ayah mertua mereka dengan sebutan Yuefu[^yuefu].
+
+Dalam hati Ah Xiu heran. Ia berpikir, "Mengapa dia memanggil Chaghan Temur 'ayah'[^papa]?"
+
+Ia mendengar Chaghan Temur berkata dengan nada datar, "Abaikan saja masalah itu. Kau tidak punya hak untuk mencegah orang menghukum militer mereka 
+sendiri. Mengurus penghasut itu jauh lebih penting."
+
+Baik Ah Xiu maupun Lihua segera menyetujui pendapat Chaghan Temur. Tetapi Ah Xiu segera merasa bahwa Zhang Wuji ternyata memang sesuai dengan pribadi 
+yang selama ini ada di benaknya. Tanpa terasa bibirnya tersenyum tipis. Hal ini tidak luput dari perhatian Lihua yang sejak tadi memperhatikan gerak-geriknya. 
+
+"Kurasa kau memang harus segera pergi ke arah Liaocheng," kata Ah Xiu. "Mereka memang tidak akan menemukan Wang Baobao di situ, tetapi kau pasti akan 
+menemukan mereka di sepanjang jalan ke situ. Saat ini mereka masih belum menyadari bahwa kita sudah mengendus niat mereka, tetapi akhirya mereka 
+akan tahu juga. Setelah itu, kau akan sulit melacak siapa saja yang sudah terpengaruh oleh utusan Liu Futong itu."
+
+"Baik," kata Zhang Wuji. "Ayah, Wuji berangkat sekarang juga. tapi harus ada yang memberitahu Minmin mengenai rencana kita, jadi mereka tahu apa yang 
+akan dilakukan selanjutnya. Wuji juga merasa ayah bisa bersiap untuk memasuki Kaifeng sekarang."
+
+"Belum perlu," kata Chaghan. "Jika aku masuk sekarang juga, yang terjadi adalah perang, karena Liu Futong pasti akan melawan. Pastikan dulu bahwa 
+kau bisa mengatasi masalah dengan penghasut itu. Setelah itu seret orang itu ke hadapan Liu Futong hidup-hidup, dengan begitu kita akan membuatnya malu, 
+dan kemungkinan besar dia akan berarak pulang ke Bozhou. Aku hanya akan melihat apa yang bisa kulakukan dari luar tembok kota."
+
+"Kalau begitu Wuji berangkat sekarang," kata Zhang Wuji sambil berdiri dari kursinya, dan bermaksud segera pergi.
+
+Ah Xiu berkata, "Aku ikut denganmu! Kurasa aku bisa membantumu di sepanjang jalan ke arah Liaocheng."
+
+"Meizi," kata Zhang Wuji. "Sebaiknya kau kembali ke Kaifeng. Masalah ini bisa kutangani sendiri. Ini terlalu berbahaya."
+
+"Karena itu aku harus ikut denganmu," kata Ah Xiu bersikeras. "Aku bukan perempuan lemah. Kau pikir Minmin bisa mengalahkanku dengan mudah ya?"
+
+Chaghan Temur berkata, "Biarkan dia ikut. Kau memang membutuhkan bantuannya. Ibunya murid langsung Yang Dingtian, jadi dia tahu seperti apa ajaran 
+Ming Jiao yang benar. Dia pasti bisa memberi kesaksian mengenai hal ini."
+
+Dengan bijaksana Lihua berkata, "Kalau begitu aku yang kembali ke Kaifeng. Mungkin aku bisa membantu para penduduk yang berkemah di luar tembok kota."
+
+"Baiklah," kata Zhang Wuji. "Ayah, kami berangkat sekarang."
 
 
