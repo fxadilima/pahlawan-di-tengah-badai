@@ -1384,7 +1384,7 @@ Guo Limin masih termenung di tempatnya berdiri sambil memandangi punggung Yin Li
 sekejap Yin Li sudah menggantikan seratus orang yang dikirim oleh Bolad Temur untuk mengawal rumahnya, dengan da puluh orang prajuritnya sendiri, 
 ditambah dengan empat puluh anggota Kai Pang yang belum tiba di situ. Para penduduk yang menyaksikan peristiwa itu mulai membubarkan diri untuk 
 kembali ke tempat mereka masing-masing. Ia merasa seperti sedang bermimpi, dan tak tahu apakah saat itu ia seharusnya menangis atau tertawa.
-Dalam hati ia sedang mengarang cerita untuk melaporkan kejadian ini kepada Bolad Temur di Shanxi.
+Dalam hati ia sedang mengarang cerita untuk melaporkan kejadian ini kepada Bolad Temur di Datong.
 
 ***
 

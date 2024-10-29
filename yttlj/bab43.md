@@ -1248,7 +1248,7 @@ melalui surat sebelumnya, kita memang harus mengembangkan kota ini, supaya kita 
 "Nah, itu sudah agak lama kupikirkan," kata Bei Jinyi. "Tapi kita mau melakukan _apa_? Masa kita mau menarik pajak dari penduduk kota? Siapa yang 
 menyuruh kita melakukannya?"
 
-Yu Daiyan berkata, "Kita memang tidak boleh melakukannya, karena sampai sekarang ini masih ada pejabat resmi yang melakukannya. sejauh ini kita tidak 
+Yu Daiyan berkata, "Kita memang tidak boleh melakukannya, karena sampai sekarang ini masih ada pejabat resmi yang melakukannya. Sejauh ini kita tidak 
 pernah mengatakan bahwa kita _menduduki_ Xiangyang — dengan maksud mengambil alih kepemimpinan. Jadi resminya memang wilayah ini masih tetap 
 adalah wilayah Dinasti Yuan."
 

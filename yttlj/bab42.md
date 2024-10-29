@@ -371,7 +371,7 @@ Burung-burung itu bisa kalian gunakan untuk mengantar pesan ke Henan.
 Usahakan supaya kalian membekali pihak ayah dengan cara yang sama dari Xiangyang.
 Kami sudah tahu Huanghou ada di mana, pastikan kita semua selalu berkirim pesan setiap hari,
 Tekanan dari utara semakin berat, tapi aku berusaha mengatasinya sebisaku.
-Pihak Nanjing memang bisa kita pakai untuk mengusik Zhang Sicheng atau Kaifeng, 
+Pihak Nanjing memang bisa kita pakai untuk mengusik Zhang Shicheng atau Kaifeng, 
 tapi kau harus sangat berhati-hati, aku sendiri tidak mempercayainya.
 Mereka sedang membuat meriam mereka sendiri, dan kau tidak diberitahu.
 Usahakan untuk menarik 'otak' mereka ke pihakmu.
