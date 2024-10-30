@@ -1587,7 +1587,7 @@ Datong dan Taiyuan untuk menyelidiki ketiga nama itu. Apa pun yang kalian dapatk
 
 "Shuo Bude Dashi, kalian pernah mendengar tiga nama itu beredar di sekitar Nanjing?" tanya Ah Xiu lagi.
 
-"Ketiga nama itu? Rasanya Pinsheng belum pernah mendengarnya," kata Shuo Bude. "Tetapi Pinsheng harus mengatakan supaya Nona berhati-hati dengan Nanjing. 
+"Ketiga nama itu? Rasanya Pinsheng belum pernah mendengarnya," kata Shuo Bude. "Tetapi Pinsheng harus mengatakan supaya kau berhati-hati dengan Nanjing. 
 Pinsheng mulai merasakan ada hal yang kurang beres sedang terjadi di situ. Tetapi karena Pinsheng tidak punya bukti, maka Pinsheng tidak berani mengatakannya."
 
 "Shuo Bude," kata Fan Yao. "Sebaiknya kau membicarakan hal itu dengan Jiaozhu sendiri."
@@ -1596,19 +1596,60 @@ Pinsheng mulai merasakan ada hal yang kurang beres sedang terjadi di situ. Tetap
 pergi, Pinsheng juga sudah bicara dengan Ma Furen, dan Ma Furen memahaminya dengan baik."
 
 Ah Xiu merasa sangat penasaran mendengar ucapan Shuo Bude, tetapi kelihatannya biksu itu tidak mau mengatakan apa yang diketahuinya secara terbuka, 
-karena itu ia tidak ingin memaksanya.
+karena itu ia tidak ingin memaksanya. Ia kemudian melihat Ah Luo sedang berpikir keras. Ia berkata, "Mama pernah mendengar tentang anak Bibi Tajkis?"
 
-"Hm! Aku juga sudah pernah mendengar Qi Shimei mengatakan sesuatu mengenai Zhu Yuanzhang, dan aku juga tidak mempercayai orang itu," kata Ah Luo. 
-"Sebaiknya kita segera menarik kembali Yang Shige dari Hangzhou."
+"Kenapa kau tiba-tiba menanyakan tentang Bibi Tajkis?" tanya Ah Luo.
 
-"Ma, tidak bisa," kata Ah Xiu. "Mengenai hal ini aku tahu apa sebabnya. Jika Yang Zuoshi pergi dari situ, maka keadaannya akan semakin tidak 
-terkendali."
+"Bibi Mei mengatakan kepada Wuji Gege bahwa dia bertemu dengan orang-orang Persia di luar Dadu, dan mereka ternyata adalah murid Ming Jiao, 
+yang diutus oleh Bibi Tajkis atau anaknya untuk menemui Wuji Gege," kata Ah Xiu.
 
-"Lalu kenapa?" tanya Ah Luo. "Biarkan yang ingin berperang tetap berperang! Kita akan menyelamatkan orang-orang yang mau diselamatkan."
+Sejak tadi Ah Luo sedang berpikir, bagaimana Ah Xiu bisa tahu begitu banyak hal yang telah disebutkannya sejak tadi? Dan sekarang ia menyebutkan 
+bahwa dirinya dan Zhang Wuji ternyata telah bertemu dengan Mei Jian. Ia lalu menarik kesimpulan bahwa ternyata Mei Jian yang menceritakan semuanya.
+Karena Ah Xiu telah mengatakan sebuah rahasia besar mereka, maka sekarang ia menjadi lebih berhati-hati jika berbicara dengan Ah Xiu. Akan tetapi 
+ia juga bisa menilai dari semua uraian Ah Xiu tadi, bahwa anaknya ternyata memang orang yang sangat tepat untuk duduk di sini menjadi wakil dari 
+Zhang Wuji. Ia merasa mereka tidak bisa mendukung Ah Xiu setengah-setengah, dan beranggapan bahwa Ah Xiu pasti punya alasan sendiri untuk membiarkan 
+orang-orang ini tahu mengenai identitas Yin Li yang sebenarnya. Ia kemudian bangkit dari kursinya, dan berjalan ke dekat Yu Daiyan dan Bei Jinyi 
+sambil menghadap ke arah semua orang lain, lalu berkata, "Saudara-saudaraku, sekarang suka atau tidak suka aku terpaksa mengatakan hal ini. Kalian 
+tentu sudah mendengar sendiri, bahwa begitu Yin Li mulai melangkah ke sidang Majelis, dan menghadapi bajingan-bajingan yang ada di situ, nyawanya 
+ada dalam bahaya. Sekarang Bolad Temur sangat membencinya. Kalian mungkin pernah mendengar siapa Bolad Temur itu, tetapi mungkin juga belum pernah. 
+Jadi aku akan mengatakannya. Ayah Bolad Temur adalah Dash Badalugh, sedangkan putrinya adalah Permaisuri Bayan. Salah satu keponakannya yang lain 
+adalah Jendral Bayan, yang sekarang ini sudah meninggal, tetapi pernah berkuasa sebagai Gubernur Henan, dan kemudian diangkat menjadi Penasihat Agung, 
+yaitu penasihat utama Kaisar Toghon Temur. Salah seorang keponakan Jendral Bayan bernama Toqto'a, yang pernah juga menjabat sebagai Penasihat Agung 
+menggantikan posisi pamannya. Tanpa mengetahui permainan politik mereka di istana, dengan hanya mendengar keteranganku ini saja, kalian tentu bisa 
+melihat betapa kuatnya lingkaran keluarga mereka ini di dalam Dinasti Yuan. Sekarang yang ditantang oleh Yin Li, di depan semua orang di istana, adalah 
+Bolad Temur. Jadi kita semua mau tak mau harus mendukungnya, karena ini memang menyangkut kepentingan banyak orang yang hidup di Zhongyuan ini. 
+Aku tadinya ingin mencegah Ah Xiu mengatakan identitas Yin Li kepada kalian semua secara terbuka, karena bagiku lebih sedikit orang yang tahu akan 
+semakin baik. Tetapi aku kemudian melihat bahwa kalian yang hadir di sini pastilah orang-orang yang telah menjadi penasihat Zhang Wuji sejak awal 
+perjuangannya hingga sekarang ada di Xiangyang ini, jadi aku beranggapan bahwa kalian memang harus tahu. Pada akhirnya rahasia kita itu pasti akan 
+diketahui semua orang, tetapi saat ini bukan waktu yang tepat untuk mengatakannya. Jadi aku berharap kita semua bisa bertindak bijaksana sebelum 
+mengatakan sesuatu kepada orang-orang lain. Kemungkinan besar tak lama setelah ini aku sendiri harus pergi, jadi aku sekalian ingin menitipkan 
+anakku Ah Xiu, dan juga keponakanku Zhang Wuji, ke dalam tangan kalian. Betapa pun juga, mereka masih muda, kulihat para pendekar yang hadir di sini 
+adalah senior-senior yang kaya pengalaman di Jianghu. Jadi aku berharap kita bisa bekerja sama dengan baik untuk membantu apa yang saat ini sedang 
+mereka perjuangkan."
 
+[^qi-shang-quan]: Qi Shang Quan (七伤拳) adalah jurus andalan dari Kongtong Pai, yang secara literal berarti 'Tujuh Jurus Cedera'.
 
+Sebagai orang-orang yang telah berumur, Zong Weixia, Tang Wenliang dan Chang Jingzhi bisa melihat ketulusan Ah Luo, dan juga kekuatirannya. Penjelasan Ah Xiu yang 
+panjang lebar sejak tadi telah menyingkirkan keraguan mereka. Sama seperti ketika pertama kalinya Zong Weixia menyadari bahwa Zhang Wuji telah menolongnya 
+mengatasi kesulitan akibat berlatih kungfu Qi Shang Quan[^qi-shang-quan], sekarang Tang Wenliang berkata, "Luo Furen, penjelasan Nona Ah Xiu dan 
+Shuo Bude Dashi tadi telah menerangi pikiran semua orang. Sekarang kami sunggh-sungguh tahu apa yang sebenarnya telah terjadi selama ini. Jadi kita 
+memang harus mendukung Yin Li."
 
+Yu Daiyan berkata, "Betul, identitas Yin Li memang harus kita lindungi. Kami telah mendengar dari Huanghou bahwa banyak orang di Kaifeng telah menyumbangkan 
+harta mereka secara sukarela untuk mendorongnya menjadi Gubernur Henan. Hal itu, jika terlaksana, akan membuat posisinya semakin berbahaya. Chaghan Temur 
+sekarang ini kemungkinan besar memang punya tujuan untuk menguasai keseluruhan Henan, dan karena ia sudah menyebutkan bahwa Yin Li adalah anaknya, 
+suka atau tidak suka Yin Li memang akan terus memainkan peranan itu. Dengan sendirinya, setelah kemenangannya di Kaifeng, sekarang ini Jendral Chaghan Temur 
+sendiri juga menjadi incaran banyak jendral lain di Zhongyuan, entah mereka adalah kaum pemberontak atau bersandar pada Dinasti Yuan."
 
+Ban Shuxian berkata, "Yu Sanxia, jangan kuatir. Kami sudah mendengar penjelasan Ah Xiu sejak tadi, dan kita memang harus melindungi identitas Yin Li. 
+Bukan hanya itu, sekarang kita bahkan harus mengikuti permainan politik Chaghan Temur. Kami akan melupakan dendam lama, dan akan mendukungnya. Jika 
+Zhang Jiaozhu bisa memaafkan kesalahan kita semua, yang ikut mendorong terjadinya peristiwa tragis yang menewaskan kedua orang tuanya puluhan tahun 
+yang lalu, mengapa kita tidak bisa? Kita harus rela mengorbankan kepentingan pribadi kita demi rakyat Zhongyuan."
 
+Hu Zhanglao berkata, "Ban Furen benar, Sima Zhanglao juga akan melaporkan perkembangan ini kepada Shi Bangzhu di Chang'an. Kami yakin Shi Bangzhu 
+juga akan bersikap sama. Jadi Kai Pang akan tetap mendukung perjuangan Zhang Jiaozhu bagi rakyat."
+
+Melihat sikap semua pemimpin itu, Ah Luo merasa lega. Sekarang ia tidak lagi menguatirkan Ah Xiu dan juga Lihua yang saat ini ada di Kaifeng bersama 
+dengan Zhang Wuji dan jajarannya di situ. 
 
 
