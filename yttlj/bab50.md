@@ -38,7 +38,7 @@ dari ayahnya sendiri.
 
 Ia berkata dengan hati-hati, "Menurutmu bagaimana?"
 
-Pertanyaannya membuat Ah Xiu curiga. Ia merasa ada sesuatu yang sangat penting disembunyikan oleh Zhang Wuji, dab tiba-tiba ia merasa bahwa ayah 
+Pertanyaannya membuat Ah Xiu curiga. Ia merasa ada sesuatu yang sangat penting disembunyikan oleh Zhang Wuji, dan tiba-tiba ia merasa bahwa ayah 
 dan ibunya juga mengetahui hal ini. Ia berkata dengan muram, "Kalian semua sama saja. Mulai dari Mama, Mufei, Muhou, Qi Muhou dan bahkan Fuhuang 
 juga seperti ini. Tadi Ah Li bilang bahwa semua orang hanya tahu bahwa dia adalah murid Tajkis dan anak Chaghan Temur. Kurasa dia memang murid 
 Tajkis, tapi sekali lihat aku tahu dia bukan anak Chaghan Temur. Kecuali jika kau sendiri _juga_ adalah anak Chaghan Temur dari salah satu wanita 
@@ -1240,12 +1240,12 @@ Ketika Ah Luo tiba di ruang rapat Zhang Wuji, ruangan itu telah dipenuhi oleh ba
 Fan Yao dan Bei Jinyi memperkenalkan nama-nama mereka semua. Di antaranya adalah para pendekar dari Kunlun Pai, Kongtong Pai, beberapa orang 
 penatua Kai Pang antara enam sampai delapan kantong, dan seorang biksu gemuk yang pernah dilihatnya di Guangming Ding puluhan tahun yang lalu. 
 
-Ia segera menyapa dengan ramah, "Shuo Bude Dashi, kau tampak sehat dan gembira. Masih mengenaliku?"
+Ia segera menyapa dengan ramah, "Shuobude Dashi, kau tampak sehat dan gembira. Masih mengenaliku?"
 
-Shuo Bude tersenyum lebar sambil berkata, "Amituofo! Salah satu murid kesayangan Yang Jiaozhu — Ah Luo! Bagaimana kami bisa melupakanmu?"
+Shuobude tersenyum lebar sambil berkata, "Amituofo! Salah satu murid kesayangan Yang Jiaozhu — Ah Luo! Bagaimana Pinsheng bisa melupakanmu?"
 
 Setelah semua orang duduk, Yu Daiyan membuka rapat itu dengan berkata, "Kita sedang menunggu-nunggu kabar dari Kaifeng, tetapi pagi ini ada kabar 
-penting lainnya dari Nanjing. Shuo Bude Dashi baru tiba dari sana untuk mengantarkan sendiri laporan selengkapnya kepada kita."
+penting lainnya dari Nanjing. Shuobude Dashi baru tiba dari sana untuk mengantarkan sendiri laporan selengkapnya kepada kita."
 
 Saat itu pintu diketuk, meskipun pintu itu dibiarkan terbuka untuk membiarkan udara segar masuk, karena ruangan itu dipenuhi banyak orang yang 
 mengikuti rapat. Seorang gadis berjalan dengan tenang memasuki ruangan, dengan diikuti pandangan semua orang yang menatapnya dengan penuh rasa 
@@ -1275,7 +1275,7 @@ Liu Futong masih juga memilih untuk pergi ke sana sendiri, meskipun sebenarnya t
 
 Yu Daiyan berkata, "Tadi Shuo Bude Dashi mengatakan ada sebuah kabar penting lain?"
 
-Shou Bude berkata, "Singkatnya, keterangan Nona Ah Xiu itu memang benar. Xu Shouhui saat ini menduduki Longxing, sedangkan Chen Youliang mengambil posisi 
+Shoubude berkata, "Singkatnya, keterangan Nona Ah Xiu itu memang benar. Xu Shouhui saat ini menduduki Longxing, sedangkan Chen Youliang mengambil posisi 
 di Jiangzhou. Sebelumnya Chen Youliang memang menentang gagasan Xu Shouhui untuk pergi ke Longxing, dan memindahkan ibukotanya dari Hanyang ke situ, 
 karena Chen Youliang sudah punya rencana sendiri, tetapi Xu Shouhui tentu saja bersikeras. Tak hanya itu, sebenarnya sudah agak lama Chen Youliang 
 mengangkat dirinya sendiri sebagai Raja Han di Jiangzhou. Tentu saja hal ini membuat Xu Shouhui bertambah panas. Karena itu, selain pertikaian dengan 
@@ -1464,14 +1464,14 @@ bersekongkol dengan orang-orang Mongolia?"
 Ah Luo hendak mengatakan sesuatu, tetapi Ah Xiu mencegahnya. Sebaliknya, ia berkata dengan tenang, "Qianbei, ini sangat tergantung — bagaimana 
 cara Qianbei melihatnya. Karena sebenarnya Elbeg dan teman-temannya ini adalah murid-murid Ming Jiao."
 
-Kecuali Ah Luo, semua orang yang hadir di situ tercengang. Ah Xiu melanjutkan, "Shou Bude Dashi, Paman Fan, Mama, kalian adalah murid-murid senior 
+Kecuali Ah Luo, semua orang yang hadir di situ tercengang. Ah Xiu melanjutkan, "Shoubude Dashi, Paman Fan, Mama, kalian adalah murid-murid senior 
 Ming Jiao, jauh sebelum kami dilahirkan ke dunia ini. Bibi Tajkis dan Bibi Yin juga, tetapi mereka berdua tidak ada di sini sekarang. Yang seorang 
 pulang ke Persia, sedangkan yang lainnya telah lama meninggal, jadi aku tidak bisa bertanya. Tetapi aku ingin bertanya kepada kalian bertiga, 
 adakah di antara ajaran asli Ming jiao, yang mengatakan bahwa orang-orang Mongolia dilarang untuk menjadi murid Ming Jiao?"
 
-Shuo Bude tertawa sambil berkata, "Amituofo! Tentu saja tidak ada. Pinsheng tidak pernah mendengarnya."
+Shuobude tertawa sambil berkata, "Amituofo! Tentu saja tidak ada. Pinsheng tidak pernah mendengarnya."
 
-Fan Yao dan Ah Luo hanya tertawa, lalu membenarkan ucapan Shuo Bude.
+Fan Yao dan Ah Luo hanya tertawa, lalu membenarkan ucapan Shuobude.
 
 "Aku sendiri telah bertahun-tahun mengaduk-aduk semua buku yang ditulis Mama, dan juga buku-buku lain yang berisi ajaran Ming Jiao," kata Ah Xiu lagi. 
 "Dan aku juga tidak bisa menemukannya. Ternyata betul-betul tidak ada. Tetapi sebelum ini Elbeg dan teman-temannya — termasuk atasan mereka sendiri, 
@@ -1503,9 +1503,9 @@ memusuhi mereka? Jika ada, lalu bagaimana kita akan menyuruh orang semacam Elbeg
 
 "Tentu saja tidak ada," kata Fan Yao. Dalam hati ia harus mengakui kecerdikan Ah Xiu dalam menggiring opini semua orang.
 
-"Aku pun tidak menemukannya, berarti memang tidak ada," kata Ah Xiu lagi. "Shuo Bude Dashi, lalu sejak kapan ada ajaran semacam ini?"
+"Aku pun tidak menemukannya, berarti memang tidak ada," kata Ah Xiu lagi. "Shuobude Dashi, lalu sejak kapan ada ajaran semacam ini?"
 
-"Amituofo!" kata Shuo Bude. "Sebenarnya sudah lama Pinsheng ingin mengatakan hal ini. Sebelum Jiaozhu sendiri dilahirkan, muncul sebuah kelompok 
+"Amituofo!" kata Shuobude. "Sebenarnya sudah lama Pinsheng ingin mengatakan hal ini. Sebelum Jiaozhu sendiri dilahirkan, muncul sebuah kelompok 
 yang menamakan diri mereka Hongjin Qiyi. Ini juga adalah sebuah gerakan keagamaan. Mereka tersebar di tempat-tempat yang sedang dilanda malapetaka 
 akibat bencana alam. Mereka berkumpul di waktu malam untuk menyembah Maitreya, sambil membakar dupa. Lalu kelompok ini terbagi menjadi dua, yaitu 
 kelompok selatan dan kelompok timur. Kelompok selatan berpusat di sebelah selatan Hubei, dan kelompok timur di Sungai Huai, Anhui. Ajaran ini 
@@ -1520,14 +1520,14 @@ di sepanjang Sungai Huai."
 "Oh, rupanya begitu!" kata Ah Luo. "Jadi ketika kami semua bertemu dengan Peng Dashi di sebuah kedai, pada saat terjadi kekacauan akibat perang 
 antar dua ibukota itu, Peng Dashi baru memulai gerakannya ya?"
 
-"Amituofo," kata Shuo Bude. "Itu sekitar tahun 1328, menurut penanggalan masehi, jadi Pinsheng bisa memastikan, bahwa saat itu Peng Dashi masih 
+"Amituofo," kata Shuobude. "Itu sekitar tahun 1328, menurut penanggalan masehi, jadi Pinsheng bisa memastikan, bahwa saat itu Peng Dashi masih 
 belum mulai. Ah Luo, kalian menerjemahkan buku sejarah itu cukup lama. Pinsheng yakin, saat itu pastilah Yang Jiaozhu mengatakan bahwa Ming jiao 
 dan para penganut agama lain sering bermeditasi bersama. Pada saat itulah Peng Dashi mendapatkan gagasan untuk memulai gerakannya. Jadi sebenarnya 
 ajaran yang dianut Hongjin Qiyi itu memang ada kaitannya dengan Ming Jiao, karena kami berasal dari Ming Jiao."
 
 "Shuo Bude Dashi," kata Ah Xiu. "Apakah ini berarti Dashi sendiri juga memiliki pandangan yang sama dengan Peng Dashi?"
 
-"Nona sangat teliti," jawab Shuo Bude. "Pinsheng memang ikut bermeditasi bersama dengan para penganut agama lain, sama seperti Peng Dashi. Tetapi 
+"Nona sangat teliti," jawab Shuobude. "Pinsheng memang ikut bermeditasi bersama dengan para penganut agama lain, sama seperti Peng Dashi. Tetapi 
 beberapa hal yang akhirnya diajarkan oleh Peng Dashi sendiri, Pinsheng kurang menyetujuinya, jadi Pinsheng juga tidak mengikutinya. Sebenarnya 
 Pinsheng beberapa kali berusaha untuk mengingatkan Peng Dashi bahwa ada beberapa hal yang sangat berbahaya jika dibiarkan, khususnya ketika Pinsheng 
 mendengar ada orang memakai ajaran itu untuk mengatakan hal-hal yang berbau kebencian. Tetapi akhirnya Peng Dashi tidak mau mendengar teguran Pinsheng. 
@@ -1536,10 +1536,10 @@ karya Peng Dashi."
 
 "Ini berarti pengaruh ajaran Peng Dashi sangat besar di dalam Ming Jiao, setelah Yang Jiaozhu meghilang," kata Ah Luo.
 
-"Betul," kata Shuo Bude. "Kalian akhirnya bisa melihatnya, jadi Pinsheng tidak perlu lagi mengatakannya. Akhirnya Pinsheng hanya bisa mengatakan 
+"Betul," kata Shuobude. "Kalian akhirnya bisa melihatnya, jadi Pinsheng tidak perlu lagi mengatakannya. Akhirnya Pinsheng hanya bisa mengatakan 
 bahwa apa yang saat ini sedang diupayakan oleh Zhang Jiaozhu adalah benar. Pinsheng akan mendukungnya dengan segala senang hati."
 
-Ah Luo segera bangkit dari kursinya, lalu membungkuk hormat kepada Shuo Bude, sambil berkata, "Atas nama Yin Shijie dan keponakanku Zhang Wuji, 
+Ah Luo segera bangkit dari kursinya, lalu membungkuk hormat kepada Shuobude, sambil berkata, "Atas nama Yin Shijie dan keponakanku Zhang Wuji, 
 hari ini Ah Luo berterima kasih sebesar-besarnya atas segala kerendahan hati dan bimbingan Dashi."
 
 Ban Shuxian dengan penasaran mengulangi pertanyaannya tadi, "Ah Xiu, apa yang dikatakan oleh para anggota Majelis itu?"
