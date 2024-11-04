@@ -861,7 +861,7 @@ dari Ah Luo, yang sudah mengetahui semuanya dari cerita Ki Seung Nyang.
 Ah Luo menggendong Zihan yang saat itu sedang bermain-main di pangkuan Zhao Min, lalu mengajak Ying Furen yang sedang bercanda dengan Ziying mendekati 
 Zhou Zhiruo. Ia berkata, "Kurasa anak-anak ini mulai lapar. Zhiruo, sebaiknya kita bicara di dekat dapur."
 
-Sambil menyusui Zihan di sebuah ruangan kecil di dapur, Zhou Zhiruo berkata, "Aku ingin bicara dengan Ah Li. Kenapa aku jarang melihatnya?"
+Sambil menyusui Zihan di sebuah ruangan kecil di sebelah dapur, Zhou Zhiruo berkata, "Aku ingin bicara dengan Ah Li. Kenapa aku jarang melihatnya?"
 
 "Ah Li sedang mengurus pengiriman bahan makanan ke Dadu bersama dengan Wang Baobao," kata Ah Luo. "Sekarang ini Wang Baobao sudah kembali ke Ruyang, 
 karena itu mereka lebih mudah bekerja sama untuk mengurus Henan. Huang Shang membuat perjanjian dengan Wang Baobao untuk mengirim bahan-bahan makanan. 
