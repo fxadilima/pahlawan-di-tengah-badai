@@ -1440,7 +1440,7 @@ ke sini, padahal kita tahu sekarang ini Zhongyuan juga sudah dalam keadaan peran
 tidak banyak."
 
 [^yuemu]: Yue Mu (岳母) adalah panggilan seorang suami kepada ibu mertuanya, sama seperti Pomu[^pomu].
-[^pomu]: Pu Mo (婆母) adalah panggilan seorang suami kepada ibu mertuanya, sama seperti Yuemu[^yuemu].
+[^pomu]: Po Mu (婆母) adalah panggilan seorang suami kepada ibu mertuanya, sama seperti Yuemu[^yuemu].
 
 Zhang Wuji berkata, "Pomu[^pomu] memang benar, tetapi orang-orang yang mengaku sebagai pengikut Ming Jiao saat ini sangat banyak, padahal mereka bukan semuanya 
 memahami ajaran Ming Jiao dengan baik. Dan orang-orang yang mengatakan bahwa mereka adalah pengikut Hongjin Qiyi itu juga belum tentu memahami ajaran Buddha Maitreya 
