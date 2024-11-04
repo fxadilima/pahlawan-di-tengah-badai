@@ -894,7 +894,7 @@ ibu Zhao Min segera merasa akrab dengan Zhou Zhiruo. Ia menganggap kedua anak Zh
 telah dibaptis.
 
 Bukan seperti Chaghan Temur, yang punya garis keturunan suku Han dari pihak ibunya, ibu Zhao Min dilahirkan di Xinjiang, dan masih dengan setia mengikuti 
-tradisi suku Naiman, dan masih tetap menganut agama Kristen seperti yang dianut oleh leluhurnya. Mereka semua memanggil ibu Zhao Min dengan sebutan Li Furen, 
+tradisi suku Naiman, selain itu ia juga menganut agama Kristen seperti yang dianut oleh leluhurnya. Mereka semua memanggil ibu Zhao Min dengan sebutan Li Furen, 
 karena bagi mereka nama aslinya agak sulit disebutkan. Chaghan kadang-kadang memang memakai nama suku Han dengan marga Li. Meskipun begitu, dalam keseharian 
 Li Furen tampak tidak berbeda dengan wanita suku Han dari kalangan menengah, dan berbusana seperti suku Han. Karena keluarga Chaghan menganut kepercayaan suku Han, 
 berikut tradisi, budaya, dan bahasanya, maka ia juga tidak asing dengan segala hal ini. Ia bisa berbicara dalam bahasa Han dengan sempurna. Ia telah mendengar 
@@ -1339,13 +1339,15 @@ dengan pemberontakan melawan Kubilai Khan di sekitar Liaoning.
 Yin Li pernah mendengar cerita Ki Seung Nyang mengenai Kaidu, tetapi belum pernah mendengar mengenai Nayan. Ia bertanya sambil menunjuk namanya, 
 "Siapa orang ini?"
 
+[^gereja-latin]: Di masa itu, Gereja Katolik Roma memang dikenal sebagai Gereja Latin.
+
 "Dia keturunan dari salah seorang saudara Genghis Khan — Temuge — seorang Kristen Nestorian," jawab Wang Baobao. "Saat itu dia berkuasa di wilayah 
 yang sekarang ini adalah Liaoning, dan juga Jilin dan Heilong Jiang. Pendeknya wilayah-wilayah yang ditempati oleh suku Jurchen dan Liao, dan bahkan sebagian 
 Goryeo. Setelah pemberontakannya gagal, Kubilai Khan hanya mengeksekusi dia, tetapi hampir semua sukunya yang beragama Kristen Nestorian tidak dibunuh. 
 Kemungkinan besar karena Kubilai Khan teringat akan ibunya sendiri, yang juga penganut Kristen Nestorian. Sebagian leluhur kami juga menganut agama ini, tetapi 
-Tetapi Li Mama menganut agama Kristen seperti yang dianut oleh Marco Polo. Pemberontakan Nayan sedikit banyak juga berbau agama. Setelah mereka kalah, wilayah 
-itu didominasi oleh keluarga Hong dari Goryeo, diawali oleh Hong Dagu. Saat ini ada seorang militer yang masih cukup muda, yang bernama Naghachu, 
-cukup bisa diajak bekerja sama. Dia tinggal di Liaoyang."
+Tetapi Li Mama menganut agama Kristen dari Gereja Latin[^gereja-latin], seperti yang dianut oleh Marco Polo. Pemberontakan Nayan sedikit banyak juga berbau agama. Setelah 
+mereka kalah, wilayah itu didominasi oleh keluarga Hong dari Goryeo, diawali oleh Hong Dagu. Saat ini ada seorang militer yang masih cukup muda, yang bernama 
+Naghachu, cukup bisa diajak bekerja sama. Dia tinggal di Liaoyang."
 
 "Karena itu sekarang ini Li Mama sangat tidak menyukai urusan politik, dan menentang perang," kata Yin Li. "Muhou juga punya pandangan yang hampir sama, 
 meskipun mereka berbeda agama. Perang memang menyengsarakan orang banyak."
@@ -1411,7 +1413,8 @@ Ia merasa tangan kirinya dipegang oleh Zhao Min dengan lembut, dan ia tersadar d
 sadarkanlah para pemimpin di negeri ini, supaya bekerja sama untuk menghentikan perang, yang telah menyakiti hati rakyat, dan membuat anak-anak 
 kehilangan orang tua mereka, para wanita menjadi janda karena kehilangan suaminya, dan orang-orang tua tak dapat menikmati masa tua mereka dalam damai. 
 Ya Allah, bagaimanakah para pemimpin agama kami juga ikut-ikutan mengobarkan peperangan? Bukankah mereka seharusnya mengajarkan supaya kami mencintai 
-sesama manusia, seperti mencintai diri kami sendiri?"
+sesama manusia, seperti mencintai diri kami sendiri? Ya Allah, hapuskanlah kebencian di dalam hati kami kepada sesama kami, dan ajarkan kami bagaimana 
+mencintai dengan benar."
 
 Tanpa terasa air mata mengalir turun dari pelupuk mata Zhang Wuji. Saat itu mereka semua sedang berlutut di depan pohon cemara yang telah dihias 
 oleh banyak orang di sekitar perkemahan itu selama berhari-hari. Ratusan lilin dinyalakan mengelilinginya, dan banyak warga yang beragama Kristen 
