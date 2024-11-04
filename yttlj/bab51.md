@@ -889,8 +889,8 @@ di sepanjang jalan hingga ke sebelah utara Sungai Han, bukankah mereka akan lebi
 
 Ia baru menyerahkan Zihan yang sudah kenyang kepada Ah Luo, dan mulai menyusui Ziying, ketika ibu Zhao Min datang bersama Ah Zhu ke ruangan itu. 
 Sejak kedatangannya di Kaifeng, ibu Zhao Min sangat dekat dengan Zhou Zhiruo. Karena orang tua Zhou Zhiruo sendiri sudah meninggal, maka ibu Zhao Min menyuruh 
-Zhou Zhiruo memanggilnya 'Mama', dan Zhou Zhiruo langsung menyetujuinya dengan senang hati. Zhao Min sejak kecil lebih dekat kepada ayahnya, karena itu 
-ibu Zhao Min dengan cepat menjadi akrab dengan Zhou Zhiruo. Ia menganggap kedua anak Zhou Zhiruo sebagai cucunya sendiri, apalagi setelah tahu bahwa mereka 
+Zhou Zhiruo memanggilnya 'Mama', dan Zhou Zhiruo langsung menyetujuinya dengan senang hati. Zhao Min sejak kecil lebih dekat dengan ayahnya, karena itu 
+ibu Zhao Min segera merasa akrab dengan Zhou Zhiruo. Ia menganggap kedua anak Zhou Zhiruo sebagai cucunya sendiri, apalagi setelah tahu bahwa mereka 
 telah dibaptis.
 
 Bukan seperti Chaghan Temur, yang punya garis keturunan suku Han dari pihak ibunya, ibu Zhao Min dilahirkan di Xinjiang, dan masih dengan setia mengikuti 
