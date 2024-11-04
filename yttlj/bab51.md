@@ -830,7 +830,7 @@ sekarang ini dia belajar berhitung baik-baik setelah menjadi Raja Han, nyatanya 
 lalu bisa sekalian mencaplok Hubei melalui Xiangyang dari situ. Dia lupa mengukur berapa kekuatan pasukan kita di Xiangyang saat ini."
 
 Zhang Wuji tersenyum sambil berkata, "Kali ini kau keliru. Xiao Zhao punya ide yang jauh lebih baik. Kita akan sengaja menyerahkan Hanyang dan Xiangyang 
-kepada Chen Youliang. Xiao Zhao sedang menyusun rencana dengan Ming Yuzhen untuk melaksanakan rencana itu."
+kepada Chen Youliang. Xiao Zhao sedang menyusun rencana dengan Ming Yuzhen untuk melaksanakannya."
 
 Zhou Zhiruo menyela dengan marah, "Tidak bisa begitu! Di Hanyang ada lebih dari seratus lima puluh ribu orang pengungsi dari utara. Aku selalu berusaha 
 menyebarkan mereka ke kota-kota lain, tetapi saat ini dari utara datang yang baru akibat wabah penyakit. Jika Chen Youliang berkuasa di situ, bagaimana 
