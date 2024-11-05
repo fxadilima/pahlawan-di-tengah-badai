@@ -109,8 +109,8 @@ yang mirip Minmin, selebihnya tak jauh berbeda dengan Wuji!"
 punya tanda lahir yang sangat kecil di pangkal siku kirinya, di sebelah dalam. Tanda yang kira-kira sama dimiliki Zijian di lutut kanannya. Hanya Ziwu 
 yang tidak punya tanda lahir seperti itu."
 
-Setelah memeriksa ketiga anak itu dengan teliti, barulah mereka semua bisa membedakan ketiga anak itu dengan baik. "Ketiga anak ini akan membingngkan 
-semua orang, termasuk kalian sendiri," kata Chaghan sambil tertawa. "Bagaimana kalian akan membedakan mereka jika semuanya berpakaian lengkap?"
+Setelah memeriksa ketiga anak itu dengan teliti, barulah mereka semua bisa membedakan ketiga anak itu dengan baik. "Ketiga anak ini akan membingungkan 
+semua orang, termasuk kalian sendiri," kata Chaghan sambil tertawa. "Bagaimana kalian bisa membedakan mereka jika semuanya berpakaian lengkap?"
 
 Li Furen berkata, "Coba kalian perhatikan baik-baik kepala ketiga anak ini. Hanya Ziwu yang punya pusaran rambut di sebelah kiri, yang lain semuanya 
 di kanan. Mereka semuanya berambut dan beralis tebal. Meskipun nantinya mereka memakai topi, atau mengikat rambut mereka dengan gaya apa pun, aku 
@@ -132,9 +132,11 @@ itu ia tanpa sadar telah menganggap Zihan dan Ziwen sebagai anak-anak yang lebih
 anak lainnya, karena dianggapnya punya bakat untuk berperang dan bermusuhan dengan orang lain. Ia juga akan selalu mengingatkan Zhang Wuji agar tidak 
 mengajarkan ilmu silat kepada mereka bertiga sampai kapan pun juga.
 
+[^airag]: Airag atau Koumiss adalah minuman khas yang menjadi bagian penting dalam kehidupan sehari-hari suku-suku di padang rumput Mongolia. Minuman ini difermentasi dari susu kuda, keledai, sapi, kambing atau domba. 
+
 Malam itu mereka masih bercanda dalam suasana riang selama satu jam lebih, sebelum anak-anak itu mulai tampak mengantuk. Xie Ying dan Bibi Liu juga minta 
 diri. Dan Chaghan menyuruh lima orang gadis yang menjadi tangan kanan Zhou Zhiruo itu untuk membawa semua anak-anak pulang untuk beristirahat. Lalu 
-ia mengajak semua anggota keluarganya memasuki tenda besar istrinya, dan menuangkan airag bagi mereka semua.
+ia mengajak semua anggota keluarganya memasuki tenda besar istrinya, dan menuangkan airag[^airag] bagi mereka semua.
 
 Setelah meneguk minuman yang disodorkan suaminya sedikit, Li Furen segera bertanya, "Wangye, ada masalah apa?"
 
@@ -521,6 +523,224 @@ pernah melihat jurus-jurus ajaran Yang Dingtian diperagakan oleh Huanghou. Itu s
 mempelajari semuanya dengan baik. Nanti Wuji harus mengajarkan prinsip-prinsip Taiji kepadamu, supaya membantumu menjadi lebih lembut dan sabar jika 
 menghadapi tekanan, dan tidak terburu-buru menyerah dengan mengatakan hal-hal seperti 'terpaksa pergi, demi kebaikan semua orang', yang belum tentu 
 akan menghasilkan sesuatu yang baik."
+
+Muka Ah Xiu kembali memerah, karena Zhang Sanfeng dengan tepat bisa membaca isi hatinya. Ia kembali bersujud sambil berkata dengan sungguh-sungguh, 
+"Semua orang bilang Tai Shifu sangat bijaksana, sekarang Ah Xiu baru tahu mengapa mereka mengatakannya. Mulai sekarang Ah Xiu akan terus berbakti sekuat 
+tenaga, apa pun juga yang mereka katakan. Jika Ah Xiu keliru, maka Ah Xiu akan memperbaikinya, dan tidak akan menyerah."
+
+"Apa yang akan kalian lakukan selanjutnya?" tanya Zhang Sanfeng lagi.
+
+Zhang Wuji segera menceritakan rencana mereka untuk pergi ke Sichuan dan Yunnan. Zhang Sanfeng mendengarkan semua uraiannya sambil memejamkan mata 
+dan mengelus-elus jenggotnya. Sampai beberapa menit setelah Zhang Wuji selesai mengatakan semuanya, ia masih tetapi diam. Akhirnya ia berkata, "Wuji, 
+aku memang senang mendengar kabar baik yang kalian kirimkan dari Kaifeng, Xiangyang dan Hanyang. Tetapi aku sudah lama tahu bahwa keadaan yang tenang 
+itu tidak akan berlangsung lama. Dari semua pekerjaan yang kau lakukan selama bertahun-tahun ini, yang menjadi pusat perhatianku selalu adalah ajaran 
+Ming Jiao, karena sebelumnya aku selalu mengatakan bahwa ajaran itu salah. Aku senang melihatmu berusaha mencegah mereka melakukan hal-hal buruk seperti 
+mencuri, saling berkelahi sendiri, atau sejumlah hal lain yang biasanya dijadikan bahan untuk menjelek-jelekkan nama Ming Jiao. Tindakan seperti itu memang 
+salah. Tetapi aku selalu menunggu saat di mana kau berani mengambil tindakan seperti sekarang ini. Sayangnya selama sekian tahun aku belum juga melihatnya. 
+Baru sekarang aku merasa lega, karena kau mengoreksi ajaran yang sebelumnya kuanggap salah. Jadi kalau pun saat ini aku mati, maka aku akan menutup mataku 
+dengan damai, lalu akan bertemu dengan ayah dan ibumu sambil mengatakan bahwa aku telah mendidik anak mereka dengan baik."
+
+Zhang Wuji tertegun. Ia baru menyadari bahwa selama ini kakek gurunya tidak terlalu mempedulikan seberapa banyak kota yang berhasil mereka duduki, 
+atau seberapa banyak musuh yang sudah mereka kalahkan. Terlebih lagi, kakek gurunya sedikit pun tidak ingin tahu apakah berikutnya ia akan menjadi kaisar 
+atau tidak. Yang ditunggunya selama ini adalah saat di mana ia menemukan kekeliruan kecil di dalam ajaran Peng Yingyu, yang mendorong orang untuk melakukan 
+pembantaian besar-besaran terhadap kelompok lain, yang sebelumnya juga mereka anggap kejam. Ia dengan mudah bisa melihat kekejaman yang dilakukan oleh 
+Miejue Shitai terhadap Ming Jiao, tetapi ia selalu bersikap lunak kepada para anggota Ming Jiao sendiri, atau kepada para pengikut Hongjin Qiyi, yang 
+melakukan hal yang pada dasarnya sama terhadap orang lain, dan selalu memaafkan mereka dengan alasan bahwa mereka sedang berjuang untuk membela rakyat. 
+
+Kakek gurunya juga pasti tahu bahwa saat ini banyak orang telah menganggapnya sebagai pengkhianat Ming Jiao, apalagi sekarang ia secara terbuka telah 
+menikahi Ah Xiu, yang adalah putri Kaisar Toghon Temur. Tetapi sepertinya Zhang Sanfeng tidak terpengaruh oleh istilah pengkhianat yang diberikan kepadanya 
+oleh banyak orang itu.
+
+Saat ini telinganya mendengar Zhang Sanfeng melanjutkan penuturannya, "Aku sendiri tidak pernah menyuruhmu menjadi kaisar, tapi juga tidak akan melarangmu, 
+jika kau memang memutuskan untuk itu. Huanghou sebenarnya hanya kuatir akan keselamatan keluarganya sendiri, jika dinasti ini akhirnya tumbang. Dia tidak 
+mempercayai semua orang lain, dan hanya percaya kepadamu. Kalian bisa saja membantu mereka keluar dari masalah ini, jika akhirnya saat itu sungguh-sungguh 
+terjadi, tanpa harus menjadi kaisar. Sama seperti ketika kalian menciptakan keadilan bagi rakyat melalui hukum yang sekilas tampak tidak adil bagi mereka. 
+Kaisar baru akan mengeluarkan sejumlah hukum yang kelihatannya lebih baik, tetapi nantinya kita semua akan tetap merasakan ketidakadilan. Jika kita masih 
+bisa berbuat sesuatu di tengah ketidakadilan itu, cukuplah."
+
+Mereka masih berbicara sekitar satu jam lagi setelah itu. Zhang Sanfeng banyak menceritakan pengalamannya di masa muda, ketika ia juga banyak melakukan 
+berbagai kekeliruan ketika Kubilai Khan baru mulai berkuasa di Kaifeng, sebelum berhasil menembus pertahanan kota Xiangyang.
+
+Didorong oleh rasa ingin tahu, tiba-tiba Zhang Wuji bertanya, "Tai Shifu, sebenarnya apa yang terjadi setelah Tai Shifu berpisah dengan Guo Xiang Nuxia 
+saat itu? Bukankah Yang Guo dan Xiao Longnu menghilang dari peredaran, bagaimanakah pedang Yang Guo bisa berada di tangan pasangan pendekar Guo Jing 
+dan Huang Rong, sampai akhirnya menjadi Tulong Dao dan Yitian Jian?"
+
+Ah Xiu sangat tertarik mendengar cerita ini. Ia memasang telinganya baik-baik ketika Zhang Sanfeng berkata, "Yang pasti mereka ternyata tidak kembali 
+ke makam kuno itu, karena aku sendiri juga sangat penasaran, sampai akhirnya aku pergi ke sana. Guo Xiang sendiri tidak pernah menemukan jejak mereka lagi, 
+meskipun telah berusaha selama bertahun-tahun, dan baru kembali ke Xiangyang setelah kota itu hancur. Hanya itu yang bisa kuceritakan tentang Guo Xiang. 
+Karena itulah aku sendiri baru mengerti ketika kalian menemukan kebenaran mengenai Tulong Dao dan Yitian Jian, setelah Zhiruo merusakkan kedua senjata 
+itu dan mengambil dua kitab rahasia dengan berbekal peta Taohua Dao yang ditemukan di dalamnya. Hampir mustahil kalian akan menemukan jejak keluarga 
+Yang Guo di Taohua Dao. Satu-satunya yang menjadi dugaanku hingga saat ini adalah makam keluarga Qin Shi Huang di Shaanxi. Yang Guo adalah seorang yang suka 
+menyendiri ketika menemukan hal-hal yang dianggapnya tak terpecahkan. Saat itu yang membuatnya prihatin adalah masalah Kekaisaran Song Selatan yang hampir 
+tumbang, lalu dia pasti memikirkan tentang Kubilai Khan, yang pernah ditemuinya sendiri di masa mudanya. Guo Jing pasti menceritakan tentang ayah 
+Kubilai Khan yang bernama Tolui, dan dia adalah saudara angkat Guo Jing. Bagi orang-orang Mongolia, persaudaraan semacam itu nilainya setinggi langit. 
+Karena itulah Kubilai Khan tetap menghargai Guo Jing sebagai saudara ayahnya yang sejati, meskipun mereka sedang berhadapan sebagai musuh. Yang Guo pasti 
+menghabiskan waktu untuk memikirkan segala hal ini, dan satu-satunya tempat berbau 'makam kuno' yang masuk akal bagiku hanyalah makam orang yang dianggap 
+sebagai awal dari kekaisaran di Zhongyuan — yaitu Qin Shi Huang."
+
+Kening Zhang Wuji berkerut ketika mendengar uraian Zhang Sanfeng. Tampaknya ia berpikir sangat keras, dan seolah tidak menemukan apa yang dicarinya. 
+Dengan penasaran, Ah Xiu bertanya, "Kenapa kau tiba-tiba menanyakan tentang Yang Guo?"
+
+"Karena salah satu keturunan Yang Guo, yang hanya dikenal sebagai Nona Yang, sejak awal beberapa kali muncul untuk menolong Kai Pang," kata Zhang Wuji. 
+"Dan dia juga yang mencegah Zhiruo membunuh ayah angkatku — Xie Xun — dengan menggunakan Jiu Yin Baigu Zhua, yang dipelajarinya dengan cara yang keliru. 
+Dan setelah itu, diam-diam dia masih terus membantu perjuangan kami dengan jalan mengirim sejumlah orang yang membawa sumbangan berupa uang atau harta benda 
+lain ke Xiangyang. Setelah dilacak, pasukan rahasia kita selalu menemui jalan buntu untuk menelusuri jejaknya. Belakangan ini kulihat angka yang masuk semakin 
+besar. Semua nama yang bisa ditemukan kaitannya dengan Nona Yang ini akan selalu dianggap aman, dan aku sudah mengatakannya kepada semua anggota kita 
+yang mana pun juga, baik di Xiangyang maupun Kaifeng."
+
+Zhang Sanfeng tanpak sangat tertarik mendengar ucapannya. Ia bertanya, "Hal itu masih terus berlangsung sampai saat ini?"
+
+"Betul," kata Zhang Wuji. "Karena itu kami bisa membiayai pemindahan sejumlah besar pengungsi dari Hanyang, yang sebagian saat ini sudah berangkat 
+menuku ke Kunlun Shan bersama dengan He Taichong, Ban Shuxian dan murid-murid mereka. Setelah itu Wuji pasti akan membawa sebagian terbesar dari mereka 
+untuk menetap di Gansu. Di situ kami akan bertetangga dengan Kongtong Pai."
+
+Ia lalu menceritakan secara mendetil apa yang menjadi rencananya bagi semua pengungsi dari utara itu.
+
+"Rencana itu luar biasa bagus," kata Zhang Sanfeng dengan gembira. "Dari semua hal yang kau lakukan, akhirnya ini adalah salah satu yang paling berguna. 
+Memindahkan sejumlah besar pengungsi itu bukan masalah kecil. Ayahmu di masa mudanya sempat menolong sejumlah pengungsi, tetapi apa yang dikerjakannya 
+menjadi sangat kecil jika dibandingkan dengan apa yang saat ini sedang kalian upayakan."
+
+Ah Xiu tersenyum dan berkata, "Tai Shifu, sebenarnya ini semua berawal dari adik-adik Ah Xiu — Zhou Zhiruo dan Minmin. Mereka yang pertama kali 
+berkenalan dengan para pengungsi itu di Hanyang."
+
+"Aku sudah mendengar apa yang mereka lakukan di Hanyang," kata Zhang Sanfeng. "Tapi sekarang ini kalian memang harus memindahkan mereka ke tempat yang 
+jauh lebih baik. Kedua tempat itu memang sangat cocok bagi mereka. Tapi untuk sementara kalian berdua masih akan sangat sibuk di Xiangyang. Bagaimana bisa 
+pergi ke Gansu mengurus mereka semua? Kurasa hanya mengandalkan Zong Weixia dan Tang Wenliang saja tidak cukup. Anggota mereka rata-rata sudah cukup tua, 
+dan perjalanan ke Gansu sangat jauh. Jumlah orang yang ikut sangat banyak."
+
+"Kami pasti akan segera mengurus mereka," kata Ah Xiu. "Jika benar-benar terjadi perang, maka posisi perkemahan mereka sangat tidak menguntungkan. 
+Begitu menyelesaikan dua urusan ini, Ah Xiu pasti akan menemukan caranya."
+
+"Baiklah, aku masih ingin mendengar kabar baik berikutnya dari kalian," kata Zhang Sanfeng sambil tersenyum. "Di usiaku yang sekarang, masih bisa 
+mendengar berita ini saja aku sudah cukup puas. Apalagi jika kalian berhasil mewujudkannya."
+
+1360
+1323
+  37
+
+[^wangyousha]: Wang You Sha (网油砂), secara literal berarti 'Pasir Minyak'. makanan ini terbuat dari kacang merah dicampur telur, lalu ditaburi gula dan dogoreng dan ditambah berbagai bumbu. Hasilnya tampak mirip dengan bunga Saussurea.
+
+Setelah itu Zhang Wuji dan Ah Xiu berpamitan untuk segera melanjutkan perjalanan mereka. Tetapi setelah keluar dari perguruan Wudang, ternyata Zhang Wuji 
+mengajak Ah Xiu mampir di sebuah kedai di pusat kota Shiyan untuk makan di situ. Mereka memesan Wangyousha[^wangyousha] dan semacam pangsit kuah khas 
+daerah itu, dan beberapa jenis makanan kecil lainnya. Ketika sup itu tiba di meja mereka, aromanya begitu menggoda penciuman Ah Xiu, yang belum pernah 
+menikmati hidangan itu seumur hidupnya. Rupanya kulit pangsit itu terbuat dari tepung ubi, dan berisi irisan daging. Ia tidak tahu apa yang membuat 
+aromanya begitu harum. Ia berkata, "Wuji Gege, kau pasti sering menikmati sup ini sebelumnya, karena itu kau mengajakku ke sini ya?"
+
+"Sebenarnya aku pertama kalinya makan sup ini adalah ketika aku tiba Zhongyuan bersama kedua orang tuaku," kata Zhang Wuji sambil tertawa. "Saat itu aku belum genap sepuluh tahun, 
+dan Yu Erbo dengan gembira selalu membelikan Bing Tanghulu dan semua manisan lain yang kusukai. Tentu saja saat itu aku sama sekali belum pernah makan semua makanan itu. 
+Kami baru datang dari Binghuo Dao[^binghuodao], aku dilahirkan di situ. Tapi saat itu kami bukan mampir di sini. Kami masih agak jauh dari sini, dan akhirnya aku diculik oleh 
+He Biweng, lalu dia memukulku dengan Xuanming Shen Zhang[^xuanmingshenzhang], sampai akhirnya aku sangat menderita. Bahkan Tai Shifu juga tidak sanggup menolongku."
+
+[^binghuodao]: Binghuo Dao (冰火岛) secara literal berarti 'Pulau Es dan Api'.
+[^xuanmingshenzhang]: Xuanming Shen Zhang (玄冥神掌) bisa diartikan 'Pukulan Telapak Dewa Misterius'.
+
+Ah Xiu sudah mendengar cerita Xiao Zhao dan Yin Li mengenai luka dalam yang diderita oleh Zhang Wuji ketika masih kecil. Xiao Zhao sendiri tentu saja 
+mendengar tentang Xuanming Shen Zhang dari cerita ibunya. Zhang Wuji banyak menceritakan pengalaman hidupnya di masa itu kepada Xiao Zhao di sepanjang 
+petualangan mereka di Zhongyuan dan Pulau Ular. Beberapa penggalan cerita yang tidak diketahui Xiao Zhao, didengar Ah Xiu melalui Yin Li. Tetapi detil-detil 
+cerita seperti yang yang baru dikatakan oleh Zhang Wuji itu tak pernah didengarnya.
+
+"Mengapa hanya Yu Erbo yang bersama kalian, di mana yang lain?" tanya Ah Xiu.
+
+"Kami bertemu dengan Yu Erbo di atas kapal Jiujiu, itu armada laut dari Tian Yingjiao," kata Zhang Wuji mengenang peristiwa itu. "Kapal itu sangat besar, 
+sedangkan saat itu kami hanya menaiki rakit kecil, yang dibuat oleh ayah dan ayah angkatku, Xie Xun, di Binghuo Dao. Bendera Tian Yingjiao itu terlihat 
+oleh ayah dan ibuku dari kejauhan. Ternyata saat itu Jiujiu dan semua anggota Tian Yingjiao sedang berkelahi melawan Yu Erbo, yang datang bersama 
+murid-murid Kunlun Pai. Karena itu akhirnya hanya Yu Erbo yang pulang bersama kami ke Wudang."
+
+Ah Xiu juga belum pernah mendengar bagian cerita yang ini. Sambil menikmati makanannya, ia mendengarkan cerita Zhang Wuji dengan penuh perhatian, 
+dan menanyakan segala hal kecil yang menarik perhatiannya. Mereka menghabiskan waktu hampir dua jam di kedai itu untuk bercerita sambil makan. Lalu 
+tiba-tiba Zhang Wuji berkata, "Kita harus segera pergi, dari Xianyang ke Longshu cukup jauh."
+
+Ah Xiu agak heran, tetapi segera menghabiskan supnya, dan minum sedikit arak. Ia bertanya, "Bukankah kita akan langsung ke arah barat, lalu langsung ke 
+Ankang, dan dari situ bisa menuju ke Dazhou, mengapa harus ke Xianyang?"
+
+"Karena aku ingin pergi ke areal pemakaman Qin Shi Huang di Chang'an, dan kemungkinan akan mampir di Xianyang untuk melihat-lihat apa yang ada 
+di situ," kata Zhang Wuji. "Masalah Yang Xiaojie ini sudah lama ingin kuselidiki, sekarang tiba-tiba jadi mendesak."
+
+Ah Xiu makin heran, lalu bertanya, "Mengapa?"
+
+"Karena kita tidak tahu apa-apa mengenai orang-orang yang dikirimnya," jawab Zhang Wuji. "Sejauh ini tak satu pun dari mereka menuntut apa-apa dari kita. 
+Bagaimana jika selanjutnya yang terjadi adalah seperti Ming Yuzhen, yang mengharapkan dukungan untuk menguasai salah satu wilayah, dan kita ternyata 
+tidak bisa memberikannya?"
+
+Bagi Ah Xiu, semua itu sama sekali bukan masalah, karena semua dana itu diberikan begitu saja, tanpa perjanjian apa pun. Tetapi bagi Zhang Wuji ternyata 
+sangat lain. Ah Xiu tidak ingin mempersoalkan hal ini, dan hanya menuruti keputusan Zhang Wuji. Mereka memerlukan waktu setengah harian untuk mencapai 
+Chang'an, meskipun kuda mereka cukup cepat. 
+
+Chang'an adalah kota yang sangat tua, dan telah menjadi ibukota dari beberapa dinasti sejak Qin Shi Huang mendirikan kekaisarannya yang pertama. 
+Di jaman Qin Shi Huang, ibukota mereka adalah Xianyang, yang tidak jauh dari posisi Chang'an saat ini. Setelah Liu Bang berhasil mendirikan Dinasti Han, 
+ia memindahkan posisi ibukotanya sekitar empat puluh kilometer ke arah timur dari Sungai Wei, dan kota ini dinamai Chang'an. Di era Dinasti Tang, 
+Chang'an sangat luas, dan kemudian ketika hancur ketika terjadi pemberontakan oleh An Lushan, di masa pemerintahan Kaisar Li Longji. Sekarang ini 
+yang disebut Chang'an adalah kota yang menjadi bagian dari pusat komando yang lebih besar, yang dinamakan Jiangzhou. Selain Chang'an sendiri, di Jiangzhou 
+ada dua wilayah lain yang ingin dikunjungi oleh Zhang Wuji, yaitu Lintong dan Xianyang. Keduanya juga berada di bawah pengelolaan Jiangzhou. Lintong adalah 
+nama wilayah di mana areal pemakaman keluarga Qin Shi Huang itu berada.
+
+Karena mereka datang dari arah Shiyan, maka Zhang Wuji memilih untuk langsung menuju ke Lintong, dan melihat-lihat areal pemakaman raksasa keluarga 
+Qin Shi Huang. Areal terletak di bawah gundukan makam setinggi tujuh puluh enam meter yang berbentuk seperti piramida terpotong. Untuk membangun 
+areal itu, dibutuhkan waktu sekitar tiga puluh delapan tahun, mulai dari tahun 246 SM - 208 SM. Tata letak pemakaman itu dirancang berdasarkan model 
+kota Xianyang di jaman Qin Shi Huang. Di dalamnya ada koleksi patung-patung para prajurit Qin Shi Huang, yang dianggap akan melindunginya dalam kehidupan 
+abadi, jumlahnya mencapai puluhan atau bahkan ratusan ribu, yang dilengkapi dengan kereta perang berikut persenjataan lengkap. Areal ini sendiri bisa 
+dibilang seluas sebuah kota yang cukup besar.
+
+Ada cerita yang mengatakan bahwa pemakaman itu telah dirampok oleh Xiang Yu, setelah Qin Shi Huang meninggal, tetapi makam itu sendiri tidak pernah 
+disentuh.
+
+Hari telah larut malam ketika mereka tiba di situ, karenanya mereka tidak diperbolehkan masuk, dan Zhang Wuji memang tidak ingin masuk ke areal itu 
+secara diam-diam, meskipun mereka dengan mudah bisa melakukannya. Agak sulit melihat apa pun di tengah malam.
+
+Mereka menginap di sebuah penginapan yang terletak di luar areal itu, dan memesan makanan untuk dimakan di dalam kamar. Setelah makan malam, yang 
+sebenarnya sudah sangat terlambat, mereka langsung tidur nyenyak sampai pagi.
+
+Tidak terlalu banyak pengawal yang menjaga areal pemakaman itu ketika mereka datang keesokan harinya. Mereka juga dibiarkan bebas berkeliaran di sekitar 
+tempat itu, karena dianggap tak lebih dari pelancong yang ingin tahu tentang keluarga Qin Shi Huang di jaman kuno. Setelah puas berkeliling untuk melihat-lihat 
+koleksi patung para prajurit Qin Shi Huang, mereka duduk di sebuah batu besar yang sengaja diletakkan di bawah sebuah pohon rindang. 
+
+Ah Xiu mengusap keringat yang membasahi dahinya dengan saputangan dari dalam sakunya. Lalu berkata sambil tertawa, "Tempat ini agak mengerikan. Aku 
+merasa patung-patung itu seolah-olah masih hidup bersama dengan kereta dan kuda-kuda mereka. Betapa dahsyatnya pasukan Qin Shi Huang di masa itu."
+
+Zhang Wuji hanya tersenyum, lalu berkata, "Meng Tian memang pernah mengalahkan Xiongnu, tetapi akhirnya dia juga membangun Tembok Besar itu untuk 
+menangkis serangan dari utara. Terbukti, pasukan Xiongnu memang selalu menyulitkan Qin sejak jaman kuno. Itu masih terus berlangsung sampai jaman Dinasti Han. 
+Setelah Liu Bang meninggal, dan Lu Zhi menjadi janda, Modu Chanyu mengirimkan surat lamaran kepada Lu Zhi. Tentu saja maksudnya untuk menggoda, dan 
+sekaligus menggertak Dinasti Han. Isinya sangat kurang ajar." 
+
+Ah Xiu tersenyum manis sambil duduk di pangkuan Zhang Wuji, lalu melingkarkan kedua tangan di lehernya sambil berkata, "Jika sekarang juga kau mengirim 
+surat seperti itu kepadaku, akan kutunjukkan bagaimana cara menjawabnya."
+
+"Hei, sekarang kau ada di hadapanku, untuk apa aku menulis surat?" kata Zhang Wuji sambil tertawa.
+
+Tiba-tiba telinganya yang tajam mendengar suara seseorang sedang menghela nafas tak jauh dari situ. Tetapi ketika mereka memandang ke sekeliling dari 
+tempat mereka duduk, tak seorang pun ada di situ. Ah Xiu merasa tengkuknya agak dingin, dan ia berkata, "Wuji Gege, rasanya tidak ada sesuatu yang 
+penting di sini. Bagaimana kalau kita segera berangkat ke Longshu?"
+
+"Jangan takut," kata Zhang Wuji sambil tersenyum. "Mungkin saja memang ada seorang pendekar hebat yang sedang mengawasi gerak-gerik kita, dan aku terlambat 
+menyadari kehadirannya. Yang jelas dia bukan menghilang begitu saja."
+
+Shaanxi saat itu berada di dalam kekuasaan Li Siqi, dan Li Siqi sendiri adalah sahabat baik Chaghan Temur, yang sekaligus adalah gurunya dalam urusan 
+militer. Mereka berdua belum pernah bertemu dengan Li Siqi, tetapi menurut catatan Ki Seung Nyang, orang itu hanya akan mempercayai Chaghan Temur, dan 
+tidak akan memandang semua orang lain. Usianya saat itu tak lebih dari tiga puluh tujuh tahun.
+
+"Kau merasa Li Siqi sedang mengawasi kita?" tanya Ah Xiu.
+
+"Aku tidak tahu," jawab Zhang Wuji. "Dia boleh dibilang adalah murid ayah, mengapa harus mencurigai kita? Ayah jelas tidak akan merampas Shaanxi 
+dari tangannya."
+
+[^willow]: Liu Shu (柳树) secara literal berarti pohon willow.
+
+"Sudahlah, kalau kau masih ingin mengunjungi Xianyang, sebaiknya kita ke sana sekarang," kata Ah Xiu sambil bangkit berdiri. "Kita sudah terlalu 
+lama di sini." Ia baru hendak mendahului melangkah pergi dari situ, ketika mereka mendengar dentingan suara sitar yang halus dan panjang terbawa angin 
+dari kejauhan. Setelah menelusuri sumber suara itu, akhirnya mereka melihat sebuah pohon Liu yang cukup besar dan rimbun di hadapan mereka. Tampaknya 
+suara sitar yang sekarang telah lenyap itu berasal dari sebelah atasnya.
+
+Dari sela-sela dedaunan rimbun, mereka melihat seorang gadis cantik berbaju kuning sedang duduk dengan tenang di atas sebuah ranting yang sangat tinggi, 
+agak tertutup oleh dedaunan. Di pangkuannya mereka melihat ada sebuah sitar. Gadis itu tersenyum tipis, lalu bergerak turun dari pohon itu dengan cara 
+yang sangat anggun. Nyaris tak terdengar suara apa pun ketika ia sedang bergerak, menunjukkan qinggong-nya yang sangat sempurna.
+
+Ia berkata, "Zhang Jiaozhu, tampaknya setiap kali melihatmu, wanita yang menemanimu selalu berbeda."
+
+"Nona Yang, apa kabar?" sapa Zhang Wuji sambil tersenyum ramah. "Terima kasih atas semua bantuan yang kau kirimkan kepada kami."
+
+"Bantuan apa?" tanya Nona Yang. "Kau membantu Kai Pang. Aku hanya mengalihkan orang-orang yang ingin menemuiku ke rumahmu."
+
+
 
 
 
