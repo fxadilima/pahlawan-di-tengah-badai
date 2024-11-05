@@ -98,6 +98,29 @@ Mongolia
 2. Togus Temur
 3. Torebeg
 4. Elbeg
+5. Bat-erdene.
+6. Batbayar.
+7. Batzorig.
+8. Erdene (jewel).
+9. Ankhbayar.
+10. Baatar.
+11. Demberel.
+12. Chuluunbaatar.
+
+Females
+
+1. Altantsetseg (Golden Flower).
+2. Bilguun.
+3. Bolormaa (Crystal Mother).
+4. Altan (Golden).
+5. Altansarnai (Golden Rose).
+6. Chimeg (Ornament).
+7. Davaajav (Moon of Deliverance).
+8. Nergui (No name).
+9. Amarjargal (Bliss of Happiness).
+10. Delger (dari Rusia, berarti 'makmur').
+11. Enkhjargal (Peaceful Happiness).
+12. Erdene (jewel).
 
 ## Lokasi
 

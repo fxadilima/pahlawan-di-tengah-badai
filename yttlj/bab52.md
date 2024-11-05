@@ -210,13 +210,13 @@ di pintu gerbang markas besar mereka. Sima Han terkejut melihat kedatangan merek
 
 "Tidak usah, aku ingin tahu ada apa di sini," jawab Ah Luo.
 
-Di ruang rapat Zhang Wuji, ternyata mereka melihat Yu Lianzhou hadir di situ bersama Yu Daiyan. Ah Xiu dan Xiao Zhao sedang berbicara dengan Bei Jinyi. 
+Di ruang rapat Zhang Wuji, ternyata mereka melihat Yu Lianzhou hadir di situ bersama Yu Daiyan. Ah Xiu dan Xiao Zhao sedang berbicara dengan Bei Jinyi dan Ding Minjun. 
 Mereka semua terkejut melihat kedatangan Zhang Wuji. Xiao Zhao tampak ingin segera memanggilnya, tetapi kemudian menahan diri. Lalu Ah Xiu bertanya, 
 "Ada apa? Mengapa kalian tiba-tiba datang?"
 
 Ah Luo segera mengeluarkan surat Ki Seung Nyang, lalu meletakkannya di atas meja supaya mereka semua bisa membacanya. Berturut-turut Fan Yao, Yang Xiao, 
-dan semua anggota senior lainnya memasuki ruangan itu. Tak lama kemudian Mei Jian dan Lihua datang bergabung, dan langsung membaca surat yang masih 
-terletak di tengah meja.
+dan semua anggota senior lainnya memasuki ruangan itu, lalu He Taichong dan Ban Shuxian bersama dua orang pendekar Kongtong Pai juga datang. Tak lama 
+kemudian Mei Jian dan Lihua datang bergabung, dan langsung membaca surat yang masih terletak di tengah meja.
 
 "Kami sama sekali tidak diberitahu mengenai hal ini," kata Mei Jian.
 
@@ -294,7 +294,234 @@ Ki Seung Nyang yang telah diterjemahkan oleh Situ Peng dan teman-temannya.
 Bahkan Huanghou tidak dapat berbuat banyak."
 
 Bagi Ah Luo, ini berarti pertikaian antara orang-orang yang mendukung Toghon Temur melawan orang-orang yang mendukung dinobatkannya Ayushiridara 
-sebagai kaisar yang baru kembali berlangsung, dan tampaknya kelompok pertama yang dipimpin oleh Bolad Temur itu sedang unggul mutlak.
+sebagai kaisar yang baru kembali berlangsung, dan tampaknya kelompok pertama yang dipimpin oleh Bolad Temur itu sedang unggul mutlak. Ia mengangguk dan 
+berkata, "Baiklah, aku mengerti sekarang. Setelah ini kami akan sangat membutuhkanmu di Xiangyang, jadi kau harus tetap di sini. Kita akan segera 
+meresmikan pernikahan antara keponakanku — Zhang Wuji — dengan anakku — Bilguun Khatun. Kau harus mengumumkannya kembali supaya didengar oleh semua 
+orang di Xiangyang ini. Kau boleh beristirahat sekarang. Nona Bei akan menunjukkan tempat bagimu."
+
+"Baik, Niangniang," kata Kasim He.
+
+Bei Jinyi berkata sambil mempersilakan Kasim He mengikutinya, "Daren, silakan mengikutiku."
+
+[^badamlyanhua]: Badamlyanhua adalah nama perempuan Mongolia, yang diambil dari nama bunga Lily. Maknanya adalah 'bunga yang kuat'.
+
+Saat itu Zhang Wuji tanpa sadar masih terus menggenggam tangan kanan Ah Xiu. Setelah Kasim He pergi bersama Bei Jinyi, ia baru menyadarinya, lalu 
+segera melepaskannya sambil berkata dengan canggung, "Aku baru tahu kau punya nama Mongolia yang bunyinya agak aneh."
+
+Ah Luo berkata sambil tertawa, "Tentu saja mereka punya nama Mongolia, karena Huang Shang harus memberikannya. Nama 'Bilguun' itu berarti 'pintar dan bijaksana'. 
+Lihua diberi nama Badamlyanhua[^badamlyanhua]. Putra Qi Shimei diberi nama Ayushiridara, kurasa kalian pernah mendengarnya. Sebaliknya, meskipun Permaisuri Bayan 
+sendiri adalah seorang Mongolia, tetapi anaknya diberi nama menurut suku Han, Xue Shan. Selain Ayushiridara yang diangkat menjadi Putra Mahkota, 
+mereka semua sengaja dibuat tidak menonjol, untuk menghindari pertikaian dengan anak-anak lainnya."
+
+"Shijie, apa yang terjadi di Kaifeng?" tanya Mei Jian.
+
+Zhang Wuji dan Ah Luo saling berpandangan, lalu Zhang Wuji berkata, "Tian Feng dan Wang Shicheng telah melepaskan jabatan mereka di Dinasti Yuan, dan sekarang 
+mereka menggalang kelompok petani di Shandong. Kita memang mengendus bahwa mereka mendekati Zhang Shicheng, tetapi ayah juga tidak bisa memastikan bahwa 
+Zhang Shicheng memang bekerja sama dengan kedua orang itu. Karena yang mereka duduki adalah wilayah yang penting di utara, dan kelihatannya mereka sengaja 
+memanfaatkan apa yang baru terjadi di Liaoning dan Goryeo, maka ayah memutuskan untuk melawan mereka. Sekarang ini Minmin sedang membawa semua keluarga 
+ke Ganzhou untuk tinggal di situ, Zhiruo ikut bersamanya. Pendeknya sebentar lagi akan terjadi perang di wilayah utara."
+
+Zong Weixia berkata, "Bukankah itu adalah wilayah kami? Mengapa mereka justru menjauh dari sini?"
+
+"Karena ayah bersikeras supaya mereka semua meninggalkan Henan sejauh mungkin, dan itu memang masuk akal," kata Zhang Wuji. "Qianbei, bukankah sekarang 
+kita menjadi tetangga dekat? Mengingat perubahan yang baru terjadi di utara, dengan ini aku sekalian juga mengumumkan supaya Qianbei juga kembali 
+ke Gansu, untuk melindungi wilayah itu dari kemungkinan bahaya akibat perang. Pusat perhatian kita tetap adalah keselamatan rakyat jelata, sebagai pendekar 
+kita tidak menginginkan jabatan apa pun di pemerintahan, baik yang sekarang maupun yang akan datang. Seperti diketahui, saat ini para pengungsi yang 
+jumlahnya sangat besar dari Hanyang tersebar di sepanjang jalan sampai ke sebelah utara Sungai Han, dan bahkan melewati Nanyang. Di antara mereka 
+ada sekelompok kecil orang-orang Yahudi Kaifeng, atau yang baru datang dari barat. Sebagian lagi adalah komunitas Muslim, yang belum tentu adalah suku Hui. 
+Aku merasa mereka akan sangat cocok tinggal di Gansu, jadi aku pasti akan membawa mereka semua ke situ, jika mereka mau. Kelompok yang cukup besar adalah warga 
+Kristen dari Gereja Latin, yang dikumpulkan oleh salah seorang frater. Zhiruo dan Minmin sudah mengenal mereka dengan baik, dan bahkan kedua anak kami 
+yang pertama dibaptis menjadi Kristen oleh frater itu. Mereka tidak terpengaruh oleh isu mengenai Perang Salib yang berasal dari wilayah barat, dan kita 
+harus menjaga kerukunan yang sudah terjalin selama ini. Sebagian besar lainnya adalah masyarakat suku Han tradisional, yang juga hidup rukun bersama kelompok 
+lain di tempat penampungan pengungsi. Aku tidak tahu apakah mereka akan bersedia mengikuti kita ke Gansu, dan aku akan membawa semua orang yang tidak ingin 
+ikut ke Gansu menuju ke Kunlun Shan untuk menetap di situ. Ketua He, Ban Furen, apakah kalian bisa membantu dalam hal ini?"
+
+Ban Shuxian segera berkata, "Jika mereka memang mau ikut, kami pasti akan membantu mereka sampai semua orang punya tempat untuk menetap."
+
+"Baiklah," kata Zhang Wuji. "Kurasa Zong Qianbei dan Tang Qianbei akan berangkat bersamaku, jadi kalian berdua akan berangkat lebih dahulu untuk kembali 
+ke Kunlun Shan. Kita tetap akan terus saling berhubungan melalui surat. Kalian semua harus menjaga rakyat di wilayah masing-masing. Biaya untuk itu bisa kalian 
+bawa dari sini."
+
+"Kapan saja Zhang Jiaozhu siap, kami akan segera berangkat bersama mereka," kata He Taichong.
+
+"Mengenai wilayah selatan, sesuai laporan dari kalian, aku bisa menyimpulkan bahwa dalam waktu dekat bahkan Zhu Yuanzhang pun ingin bergerak sendiri, 
+dan belum tentu mau mendengarkan arahan kita lagi. Sejauh ini aku menilai dia yang paling taat, jadi sampai sekarang aku masih tetap mendukungnya. 
+Meskipun begitu, ada sejumlah kecil garam hasil produksi kita sendiri di Pulau Ular. Ini adalah upaya yang telah dilakukan oleh ibu Xiao Zhao selama bertahun-tahun, 
+dan dilakukan secara diam-diam, berdasarkan hasil kerja Yang Zuoshi, Fan Youshi, Bibi Luo, Bibi Mei, Bibi Qi dan juga ibuku sendiri, puluhan tahun yang lalu. 
+Kita tahu garam adalah barang mahal, dan di Yunnan garam lebih mahal lagi. Jadi kita bisa memanfaatkannya untuk menjalin hubungan baik dengan Kunming dan 
+keluarga Duan di Yunnan. Mengingat kita sudah menjalin kerja sama dengan Ming Yuzhen, yang mengambil wilayah di Sichuan, maka posisi Yunnan menjadi 
+sangat penting bagi kita. Daerah itu memang tetap setia kepada Dinasti Yuan, tetapi mereka juga selalu berdiri sendiri sejak jaman dahulu kala. Dengan 
+menjalin hubungan baik dengan pihak mereka, kita akan bisa menghindarkan perang antara Ming Yuzhen dengan Yunnan."
+
+Hari itu juga, Ah Luo menyelenggarakan pesta sederhana untuk meresmikan pernikahan antara Zhang Wuji dengan putrinya. Dengan begitu semua orang di Xiangyang 
+tahu bahwa sekarang Zhang Wuji telah resmi menerima posisi sebagai Kepala Daerah di Xiangyang. Wilayahnya tidak besar, tetapi yang dikuasainya adalah 
+pusat komando militer yang sangat penting sejak jaman dulu. Dinasti Yuan memang tidak biasanya memberikan posisi seperti itu kepada seorang Han, tetapi 
+karena kehadiran Ah Xiu yang adalah Bilguun Khatun dari Dinasti Yuan, maka semuanya menjadi lain. Tak seorang pun mempertanyakan otoritas Zhang Wuji lagi 
+di wilayah selatan. Tetapi keputusan Kaisar Toghon Temur ini membuat banyak anggota Hongjin Qiyi lebih mudah lagi diyakinkan bahwa Zhang Wuji adalah 
+seorang pengkhianat Ming Jiao.
+
+Malam itu, setelah mereka duduk berdua di ruangan pribadi Zhang Wuji, Ah Xiu berkata, "Wuji Gege, kau menyesal hari ini menikah denganku?"
+
+Zhang Wuji tertawa sambil berkata, "Meizi, tak seorang pria pun di dunia ini akan menyesal menikah denganmu. Pertanyaan itu seharusnya aku yang menanyakannya, 
+karena kau tentu tahu, saat ini aku sudah punya Zhiruo dan Minmin, dan aku memang sungguh menyayangi mereka, dan juga anak-anak kami. Kau sendiri menyesal 
+telah menikah denganku?"
+
+Ah Xiu menggelengkan kepalanya dengan muka serius, lalu berkata, "Sejak kecil aku tidak tahu, mengapa Mama merelakan dirinya menjadi seorang selir, dan bahkan 
+di peringkat rendah, yang dianggap tidak penting oleh hampir semua selir lain di istana. Aku sudah terbiasa melihat sejumlah besar wanita yang ada di sekeliling 
+Fuhuang, dan mereka semua punya kepentingan sendiri-sendiri, sesuai dengan amanat orang tua masing-masing. Memang Fuhuang yang menyuruhku menikah 
+denganmu melalui titah resmi itu. Jika aku tidak setuju, dengan mudah aku bisa melarikan diri dari sini, tapi aku tidak melakukannya."
+
+"Mengapa?" tanya Zhang Wuji ingin tahu.
+
+"Tentu saja karena sekarang aku sudah memahami alasan Mama untuk tetap tinggal di sisi Fuhuang, padahal setiap hari dia juga melihat semua wanita yang 
+ada di istana itu, termasuk Bibi Qi dan Bibi Mei," kata Ah Xiu sambil tersenyum. "Alasanku adalah sama."
+
+"Apa alasanmu?" tanya Zhang Wuji lagi. Ia masih belum mengerti apa yang dimaksud Ah Xiu.
+
+Ah Xiu memahami dengan baik, bahwa di dalam hati Zhang Wuji saat ini, masih ada seorang Xiao Zhao, yang sejak awal selalu merendahkan diri dan mengambil 
+sikap seperti pelayan, padahal justru dialah yang paling dicintai oleh Zhang Wuji di antara mereka semua. Sekarang Xiao Zhao ada di tempat ini, tetapi 
+sekonyong-konyong mereka mendapat titah dari ayahnya, yang kemudian membuat mereka menikah begitu saja. Zhang Wuji hanya sempat menanyakan sepatah kata 
+yang tidak terlalu penting kepada Xiao Zhao, setelah sekian lama mereka berpisah. Sedangkan Zhao Min dan Zhou Zhiruo terpaksa membawa anak-anak mereka dalam 
+keadaan darurat untuk pergi ke Gansu, yang sangat jauh dari sini. Entah kapan mereka akan bertemu lagi.
+
+Ia lalu melingkarkan kedua tangannya untuk memeluk pinggang Zhang Wuji, dan menyandarkan diri ke dadanya sambil berkata, "Wuji Gege, asalkan di dalam 
+hatimu masih tersedia tempat sedikit saja untukku, maka aku pasti akan bersikap baik kepada Zhou Zhiruo, Minmin dan juga Xiao Zhao. Aku yang paling tua 
+di sini, jadi mereka semua adalah adik-adikku. Aku akan menganggap semua anak adalah anak-anakku sendiri. Jika terjadi pertengkaran, aku akan menjadikan 
+diriku sebagai sasaran kemarahan mereka, lalu semuanya akan menjadi baik. Sekarang juga aku akan menunjukkan kepadamu, mengapa aku bersedia melakukannya."
+
+Zhang Wuji mengusap wajah Ah Xiu yang seputih salju, menelusuri alis dan matanya yang indah dengan jarinya, lalu mencium keningnya dengan lembut. 
+Ia berkata, "Ah Xiu, tempatmu bukan hanya sedikit."
+
+Ia mematikan semua lilin di ruangan itu dengan kebasan lengan jubahnya.
+
+***
+
+Setelah itu perubahan berlangsung cepat di semua wilayah. Zhu Yuanzhang sungguh-sungguh menarik pajak dari arak, cuka dan garam. Chen Youliang memang 
+berhasil mengambil alih seluruh wilayah Sichuan, dan menyerahkannya kepada Ming Yuzhen. Ia sendiri tetap tinggal di Jiangzhou. Tak lama setelah itu, 
+Xu Shouhui dikabarkan meninggal. Tak seorang pun bisa memastikan, apakah Chen Youliang mengeksekusinya, ataukah ia meninggal karena sebab alamiah. 
+Tetapi hal ini membangkitkan amarah di hati banyak orang di wilayah selatan.
+
+Zhang Wuji telah mengatakan bahwa kelompok kecil Muslim dari tempat penampungan pengungsi, yang sekarang telah beranjak dari Hanyang itu, tidak terpengaruh 
+oleh isu-isu politik dari wilayah barat, dan hidup dalam damai dengan warga lain yang beragama Kristen, Ming Jiao, Yahudi, Buddha dan penganut kepercayaan 
+tradisional suku Han. Tetapi di Fuzhou terjadi masalah lain.
+
+Tiga tahun sebelumnya, sekelompok prajurit Muslim beraliran Syiah dari Quanzhou yang dipimpin oleh dua orang keturunan Persia, Sayf ad-Din dan 
+Amir ad-Din, telah memberontak melawan Dinasti Yuan, dan mengambil alih kendali atas Quanzhou, Putian, dan bahkan Fuzhou. Kelompok itu mulai mengalami 
+konflik internal antara anggotanya yang menganut aliran Sunni dan Syiah, dan menimbulkan masalah cukup besar bagi rakyat setempat. Kelompok ini 
+dikenal sebagai Pemberontak Ispah Persia. Keributan itu cukup mempengaruhi Chen Youliang yang menduduki wilayah itu.
+
+Chen Youliang mengabaikan pendapat semua orang, dan terus memperluas wilayah kekuasaannya. Tanpa menyia-nyiakan kesempatan, Zhang Shicheng dan Zhu Yuanzhang 
+segera mengambil sikap menentangnya, dan mengatakan bahwa Chen Youliang telah mengkhianati atasannya sendiri, jadi kekuasaannya tidak dapat dianggap sah.
+Ming Yuzhen juga ikut meramaikan suasana, dan segera mengirimkan utusannya dengan membawa surat kepada Zhang Wuji di Xiangyang.
+
+Setelah membaca surat itu, Ah Xiu tersenyum sambil berkata dengan tenang, "Katakan kepada Ming Yuzhen, kami mendukung sepenuhnya. Bahkan dia harus segera 
+mengumumkan diri sebagai seorang raja di Sichuan. Sebentar lagi kami akan ke situ sendiri untuk menyaksikan upacara penobatannya."
+
+Mereka baru mengutus Xiao Zhao bersama sejumlah pasukan rahasia dari Xiangyang yang beragama Islam untuk pergi ke Fujian, dan menyelidiki konflik 
+yang terjadi di kubu Pemberontak Ispah Persia, dengan upaya untuk mengajak kedua belah pihak itu berdamai. Sekarang karena Ah Xiu telah mengatakan 
+bahwa mereka akan pergi ke Sichuan, Zhang Wuji berpaling kepada paman gurunya dari Wudang sambil berkata, "Yu Erbo, Yu Sanbo, kami terpaksa pergi 
+ke dua tempat yang agak berjauhan, tetapi sebelumnya aku ingin mampir ke Wudang untuk menemui Tai Shifu. Jadi kami menitipkan tempat ini kepada kalian 
+semua bersama Paman Yang dan semua pejabat tinggi Ming Jiao. Semoga tidak ada sesuatu yang mengejutkan sementara kami pergi."
+
+Yu Lianzhou berkata sambil tersenyum, "Wuji, Shifu memang sudah lama ingin bertemu langsung denganmu. Di sini ada banyak orang, jadi kau tidak perlu 
+kuatir. Apa yang bisa kami lakukan saat ini untuk membantu kalian. Kurasa urusan itu tidak sesederhana yang dikira orang, karena setelah Ming Yuzhen 
+berkuasa di Sichuan, dia mulai bisa berbuat apa saja yang belum tentu kita setujui."
+
+Ah Xiu berkata, "Paman Yu, kalian pasti tahu bahwa Xiao Zhao telah membawa sejumlah besar garam dari Pulau Ular, yang saat ini pengiriman dari situ masih 
+terus berlangsung. Sekarang saatnya kita memanfaatkan garam itu baik-baik, dan mengirimkannya ke Kunming. Paman Yang dan kalian semua pasti bisa mengatur 
+sampai separuh dari jumlah yang sekarang ada di gudang kita tiba dengan selamat di Yunnan. Kami akan menemui Basalawarmi setelah membereskan urusan 
+di Sichuan. Kalian bisa membawa suratku, yang berstempel resmi dari Kaisar, untuk dibawa ke sana. Katakan saja bahwa garam itu kita kirimkan dari Xiangyang. 
+Segala hal lain akan dijelaskan sendiri oleh Bilguun Khatun, maka mereka akan memahaminya."
+
+Fan Yao bertanya, "Ah Xiu, kalian hanya akan berangkat berdua saja?"
+
+"Mungkin kalian perlu membawa beberapa orang prajurit," kata Ah Luo agak cemas. "Perjalanan itu cukup jauh. Mereka pasti akan banyak membantu. Siapa 
+tahu ada orang yang ingin menyerang kalian."
+
+Ah Xiu tertawa sambil berkata, "Mama, aku akan muncul di Sichuan sebagai Jiaozhu Furen, dan suamiku sedang bersamaku. Di situ Ming Yuzhen sendiri 
+yang akan menjadi pengawal kami. Jika tidak ada suamiku, mana mungkin dia menjadi raja di situ? Sedangkan di Kunming, aku akan tampil sebagai Bilguun Khatun, 
+dan Basalawarmi yang akan menjadi pengawalku. Siapa yang berani mengganggu kami di Yunnan? Bahkan Chen Youliang juga akan berpikir ribuan kali sebelum 
+menyerang kami."
+
+Yang Xiao berkata, "Shimei, dengan kungfu mereka berdua, apa yang masih kau kuatirkan lagi?"
+
+"Jiejie, bagaimana kalau aku ikut bersama kalian?" tanya Lihua menawarkan diri. Ia diam-diam merasa bosan berada di Xiangyang.
+
+Ah Xiu menoleh kepada Zhang Wuji untuk minta persetujuan, lalu Zhang Wuji berkata, "Jika Bibi Mei setuju, Lihua bisa ikut bersama rombongan yang akan 
+mengawal garam ke Yunnan. Ini memang akan membantu, karena Lihua juga bisa berbahasa Mongolia."
+
+Lihua sangat gembira. Ia segera berkata, "Kalau begitu aku akan berkemas sekarang."
+
+"Hm!" kata Mei Jian. "Tunggu dulu! Kurasa aku juga akan ikut ke Yunnan untuk mengawal garam."
+
+Fan Yao tertawa terbahak-bahak, lalu berkata, "Shimei, anak ini sudah besar. Dia bahkan bisa mengimbangi kungfuku, kau masih juga ingin melindunginya?"
+
+Dengan penuh pengertian, Bei Jinyi berkata, "Ah Li menyuruh beberapa anak muda datang dari Kaifeng untuk membantu kita. Aku akan menyuruh Shangguan Wu 
+ikut pergi ke Yunnan mengawal garam. Kalian juga akan ditemani oleh beberapa anak perempuan, dan semuanya akan memakai seragam bersulam. Ini juga sekaligus 
+menguji apakah Basalawarmi menghargai pihak kita di Xiangyang ini. Lihua dan Shangguan Wu bisa menyamar sebagai anak-anak orang kaya, yang kita utus ke situ 
+membawa garam hasil produksi mereka sendiri. Jadi kita tidak perlu mengatakan dari mana garam itu berasal."
+
+"Bei Shijie, itu ide yang cemerlang!" kata Zhang Wuji. "Jadi itu yang akan kita lakukan."
+
+Saat itu juga semua orang yang akan mengikuti He Taichong dan Ban Shuxian bersama murid-murid mereka kembali ke Kunlun Shan sudah terdaftar, jadi 
+Zhang Wuji juga mengatakan kepada mereka untuk segera bergerak dari Xiangyang menuju ke utara. Jumlah para pengungsi yang berangkat bersama dengan para 
+pendekar Kunlun Pai dari Xiangyang sekitar lima ratus orang, dan masih akan terus bertambah di sepanjang jalan setelah menyeberangi Sungai Han. 
+
+Ketika Zhang Wuji bertemu dengan Zhang Sanfeng di ruang meditasinya, ia bisa melihat bahwa kakek gurunya tampak semakin tua, tetapi masih terus berlatih 
+jurus Taiji ciptaannya sendiri, bahkan terkadang di tengah hujan lebat. Tak seorang pun bisa mengatakan bahwa kesehatan Zhang Sanfeng merosot di usianya 
+yang sudah mendekati seratus dua puluh tahun itu. Suaranya masih nyaring ketika menyambt kedatangan Zhang Wuji dan Ah Xiu dengan gembira, "Wuji, 
+apa yang telah kalian lakukan di Kaifeng sungguh membuatku terkejut. Itu sangat berani, tapi ternyata berjalan dengan mulus."
+
+Zhang Wuji menghela nafas panjang, lalu berkata, "Tai Shifu, sekarang ini Kaifeng kembali berada dalam bahaya, karena ada dua orang pejabat Dinasti Yuan 
+yang baru membelot dan bergabung dengan kelompok petani di Shandong. Karena itu ayah memutuskan untuk membawa seluruh anggota keluarga bersama Pomu ke Gansu dan 
+tinggal di situ, sementara dia sendiri pasti akan meredam gerakan mereka di Shandong. Minmin dan Zhiruo yang mengawal keluarga, berserta anak-anak, 
+ke Ganzhou. Belum pasti apa yang akan terjadi selanjutnya."
+
+Zhang Sanfeng memandang ke arah Ah Xiu dengan muka bertanya. Menyadari hal ini, Zhang Wuji segera mengajak Ah Xiu berlutut di hadapannya, lalu berkata, 
+"Tai Shifu, Wuji tidak tahu bagaimana harus menceritakan hal ini. Kaisar telah membuat Wuji menjadi Kepala Daerah di Xiangyang, lalu menyerahkan 
+putrinya, Ah Xiu, untuk menjadi istri yang sah. Zhiruo dan Minmin masih belum mendengar hal ini."
+
+Ah Xiu berlutut sambil menundukkan kepala tanpa bicara, dan merasa bahwa orang tua itu sedang mengamatinya dengan penuh perhatian. Ia merasa tangannya 
+berkeringat dingin. Tetapi kemudian Zhang Sanfeng berkata, "Pamanmu Liting memang sudah menceritakan kedatangan gadis ini, dan aku merasa sebentar lagi 
+hal semacam ini akan terjadi. Ah Xiu, aku hanya ingin tahu, bagaimana kau akan mengatakan hal ini kepada kedua wanita itu?"
+
+Dengan hati-hati, Ah Xiu menjawab, "Zhang Zhenren, mereka adalah adik-adik Ah Xiu. Jika mereka ternyata marah, Ah Xiu akan membiarkan sampai kemarahan 
+mereka reda, baru kemudian Ah Xiu akan menceritakan terus terang apa yang terjadi."
+
+"Bagaimana jika mereka tidak mau mengerti?" tanya Zhang Sanfeng lagi.
+
+"Maka Ah Xiu terpaksa akan pergi, demi kebaikan semua orang," jawab Ah Xiu.
+
+Zhang Sanfeng menggelengkan kepalanya sebagai tanda tidak setuju. Ia berkata, "Kau justru tidak boleh pergi. Aku bisa melihat alasan Huang Shang menempatkanmu 
+di situ. Dalam hal ini memang kau orang yang tepat, karena para pejabat Dinasti Yuan juga tidak akan berani mempertanyakan langkah-langkah kalian jika 
+kau yang bersuara. Selain itu, aku juga melihat bahwa kau ternyata panjang sabar. Kedua wanita itu tidak bisa melakukan apa yang kau lakukan jika 
+mereka ditempatkan di posisi yang sama. Aku tidak bisa mengajarkan bagaimana kau harus menghadapi mereka, karena pada saatnya nanti barulah kau akan 
+melakukannya sendiri dengan tepat. Jangan menganggap mereka sebagai sainganmu, termasuk jika mereka yang beranggapan begitu. Dari jaman kuno sikap 
+semacam itu sudah menyengsarakan banyak orang. Kau mungkin akan menghadapi banyak urusan yang tidak menyenangkan bagimu, tapi cobalah belajar dari 
+Wei Zifu dari Dinasti Han. Sikapnya patut dicontoh oleh banyak orang sepanjang masa."
+
+Muka Ah Xiu memerah ketika berkata, "Ah Xiu tidak berani membandingkan diri dengan Wei Sihou. Mungkin Zhang Zhenren bisa memberi sedikit petunjuk, 
+supaya Ah Xiu bisa merenungkannya sepanjang hari."
+
+Zhang Sanfeng menulis sebuah karakter 'Xiao' (孝) dengan huruf sangat besar di atas kertas kosong, lalu memberikannya kepada Ah Xiu. Ia berkata, 
+"Renungkan baik-baik apa makna dari karakter ini, maka kau akan selalu tahu bagaimana harus menghadapi mereka semua."
+
+[^jin-xiao]: Jin Xiao (尽孝) adalah sebuah istilah, yang sebenarnya ingin menekankan Xiao (孝), yang secara literal bermakna 'berbakti', dalam arti kepada orang tua. Karakter Jin (尽) itu bermakna 'melakukan sesuatu sampai batas maksimum'.
+
+Ah Xiu segera melihat, bahwa karakter itu terdiri dari karakter 'Lao' (老) di atasnya, yang bermakna 'Tua', dan dua karakter 'er zhi' (儿子) di bagian 
+bawah, yang berarti 'anak'. Secara umum orang menerima makna bahwa generasi yang lebih muda harus mendukung generasi yang lebih tua. Tetapi apa yang 
+terjadi pada dirinya dengan Zhou Zhiruo dan Zhao Min sama sekali terbalik. Bahkan jika ia memasukkan Xiao Zhao ke dalam lingkaran itu, maknanya masih 
+tetap terbalik. Baginya, ia akan mencoba untuk mengalah, meskipun ia lebih tua ketimbang mereka semua. Satu-satunya cara lain yang terpikir olehnya saat itu 
+adalah ketika menambahkan sebuah karakter lain, sehingga menjadi 'Jin Xiao'[^jin-xiao], yang bermakna sama, dan bisa diartikan 'berbakti sekuat tenaga'. Karena belum 
+melihat makna lain lagi di balik apa yang dikatakan oleh Zhang Sanfeng, ia lalu menyimpan semuanya dalam hati, lalu berkata sambil bersujud dengan penuh 
+hormat, "Ah Xiu akan merenungkan pelajaran ini setiap hari, sampai Ah Xiu bisa memahaminya. Ajaran Zhang Zhenren tidak akan Ah Xiu lupakan seumur hidup."
+
+"Kau sudah menikah dengan cucuku, kenapa masih memanggilku Zhang Zhenren?" tanya Zhang Sanfeng sambil tertawa dan mengelus jenggotnya. "Ah Xiu, aku 
+pernah melihat jurus-jurus ajaran Yang Dingtian diperagakan oleh Huanghou. Itu semuanya adalah teknik yang sangat cepat dan mengagumkan. Kau pasti sudah 
+mempelajari semuanya dengan baik. Nanti Wuji harus mengajarkan prinsip-prinsip Taiji kepadamu, supaya membantumu menjadi lebih lembut dan sabar jika 
+menghadapi tekanan, dan tidak terburu-buru menyerah dengan mengatakan hal-hal seperti 'terpaksa pergi, demi kebaikan semua orang', yang belum tentu 
+akan menghasilkan sesuatu yang baik."
+
 
 
 
