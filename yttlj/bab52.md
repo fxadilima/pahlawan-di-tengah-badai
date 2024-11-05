@@ -614,10 +614,6 @@ Begitu menyelesaikan dua urusan ini, Ah Xiu pasti akan menemukan caranya."
 "Baiklah, aku masih ingin mendengar kabar baik berikutnya dari kalian," kata Zhang Sanfeng sambil tersenyum. "Di usiaku yang sekarang, masih bisa 
 mendengar berita ini saja aku sudah cukup puas. Apalagi jika kalian berhasil mewujudkannya."
 
-1360
-1323
-  37
-
 [^wangyousha]: Wang You Sha (网油砂), secara literal berarti 'Pasir Minyak'. makanan ini terbuat dari kacang merah dicampur telur, lalu ditaburi gula dan dogoreng dan ditambah berbagai bumbu. Hasilnya tampak mirip dengan bunga Saussurea.
 
 Setelah itu Zhang Wuji dan Ah Xiu berpamitan untuk segera melanjutkan perjalanan mereka. Tetapi setelah keluar dari perguruan Wudang, ternyata Zhang Wuji 
