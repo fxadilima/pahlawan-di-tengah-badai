@@ -1497,9 +1497,3 @@ kejam di masa yang akan datang membuatnya ngeri.
 
 
 
-
-
-
-
- 
-

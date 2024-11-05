@@ -102,7 +102,7 @@ Zhao Min tertawa terbahak-bahak. "Ternyata Daren masih ingat peristiwa itu," kat
 Setelah melambaikan tangan kepada para penduduk kota, Kasim He kembali menaiki keretanya bersama kedua pembantunya. Zhao Min menyuruh Xu Da mengatur 
 pasukan baru itu di luar pintu gerbang kota, dan hanya mengajak seratus orang dari mereka untuk mengawal kereta yang ditumpangi Kasim He ke istana.
 
-Setibanya di situ, Zhou Zhiruo segera mengajak Kasim He dan dua orang pembantunya masuk ke perpustakaanm dan mereka bicara di situ. Sementara itu, 
+Setibanya di situ, Zhou Zhiruo segera mengajak Kasim He dan dua orang pembantunya masuk ke perpustakaan, dan mereka bicara di situ. Sementara itu, 
 Zhao Min langsung pergi ke dapur untuk menyuruh Lingshan menyiapkan makanan bagi mereka. Ia tahu persis ketiga kasim itu belum sarapan. Karena itu 
 makanan yang disiapkan adalah sekaligus untuk makan siang.
 
