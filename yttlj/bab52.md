@@ -732,15 +732,660 @@ yang sangat anggun. Nyaris tak terdengar suara apa pun ketika ia sedang bergerak
 
 Ia berkata, "Zhang Jiaozhu, tampaknya setiap kali melihatmu, wanita yang menemanimu selalu berbeda."
 
-"Nona Yang, apa kabar?" sapa Zhang Wuji sambil tersenyum ramah. "Terima kasih atas semua bantuan yang kau kirimkan kepada kami."
+"Yang Jiejie, apa kabar?" sapa Zhang Wuji sambil tersenyum ramah. "Terima kasih atas semua bantuan yang kau kirimkan kepada kami."
 
 "Bantuan apa?" tanya Nona Yang. "Kau membantu Kai Pang. Aku hanya mengalihkan orang-orang yang ingin menemuiku ke rumahmu."
 
+Zhang Wuji sekarang tahu bahwa dugaan mereka memang tidak terlalu jauh meleset. Ia berkata, "Zhang Wuji tetap harus tahu apa yang mereka inginkan dari kami, 
+sedangkan saat ini aku sama sekali tidak bisa menelusuri jejak mereka. Jika kau bisa memberiku sedikit petunjuk, maka aku akan melakukannya sendiri, 
+dan aku tidak akan merepotkanmu."
 
+Nona Yang tersenyum tipis dan berkata, "Zhang Jiaozhu, jika kau ingin menelusuri jejak mereka satu persatu, maka pekerjaan itu tidak akan bisa kau selesaikan 
+seumur hidupmu. Masih ada kemungkinan beberapa orang di antara mereka sekarang ini sudah mati karena usia tua, dan ada yang mati karena perang. Aku pun 
+tidak mengenal mereka secara pribadi. Tapi aku bisa mengatakan bahwa kalian bisa menggunakan semua dana itu menurut keperluan, dan tidak perlu merasa 
+wajib melakukan apa pun sesuai keinginan mereka. Mungkin saja orang-orang itu punya kepentingan pribadi, tetapi mereka tidak akan pernah mengatakannya."
 
+Kaisar Toghon Temur adalah salah seorang pengagum berat Pendekar Yang Guo dan istrinya, Xiao Longnu, yang kisahnya diceritakan orang dari kedai ke kedai 
+sebagai cerita rakyat sejak dulu. Sejak kecil Ah Xiu dan kedua saudaranya yang lain sering mendengar cerita tentang Yang Guo dari orang tua mereka, 
+yang diceritakan sebagai dongeng untuk anak-anak menjelang tidur. Ketika Zhang Sanfeng dan Zhang Wuji saling bercerita tentang Yang Guo, dongeng itu 
+tiba-tiba menjadi agak nyata baginya. Sekarang setelah ia melihat sendiri seorang Nona Yang sedang berdiri dan berbicara di hadapan mereka, dongeng itu 
+menjadi lebih nyata lagi. Ia mengamati penampilan Nona Yang dengan penuh perhatian, dan merasa bahwa wanita itu lebih tua ketimbang dirinya, meskipun penampilan 
+dan wajahnya tidak menunjukkan usia yang sebenarnya. Gambaran yang didapat Ah Xiu mengenai Xiao Longnu adalah kulitnya sangat putih, atau bahkan pucat, karena 
+jarang melihat matahari. Kecantikannya cenderung dilebih-lebihkan dari cerita ke cerita. Kungfunya pasti sangat tinggi, tetapi cerita mengenai kungfu itu 
+pastilah juga dilebih-lebihkan. Kulit Nona Yang ini juga sangat putih, tetapi sama sekali tidak pucat. Kulit mukanya sehat dan pipinya berseri kemerahan. 
+Kecantikannya sangat nyata dan bagi Ah Xiu hanya cukup digambarkan dengan sepatah kata, yaitu 'cantik'. Xiao Longnu digambarkan sangat dingin, dan pikirannya 
+seolah tidak mengikuti segala aturan umum yang berlaku di jaman itu. Ternyata Nona Yang ini juga sama, hal itu dirasakan Ah Xiu ketika Nona Yang mengatakan 
+tentang 'mati' tanpa emosi atau empati sedikit pun kepada orang-orang yang bersangkutan. Sejauh ini ia hanya menunjukkan emosi dan reaksi yang wajar dan normal ketika 
+sedang menyapa dan berbicara tentang Zhang Wuji sendiri. Tampaknya ia membantu Kai Pang dan selalu memelihara hubungan baik dengan Kai Pang adalah karena leluhurnya 
+mewariskan pesan yang sama dari generasi ke generasi.
 
+Zhang Wuji berkata, "Kalau begitu mulai sekarang aku akan memanfaatkan dana bantuan mereka untuk menolong kaum pengungsi, yang saat ini berserakan 
+di sepanjang jalan dari Xiangyang menuju ke Kaifeng. Aku ingin membawa mereka semua ke Gansu dan mencari tempat untuk menetap di situ. Kemungkinan kami 
+akan menetap di dekat Kongtong Pai."
 
+"Jadi kau akan pergi ke Gansu begitu saja, dan meninggalkan urusan di sini?" tanya Nona Yang.
 
+"Semua paman guruku sudah tahu bagaimana harus menangani urusan di selatan, mereka secara bergantian datang ke Xiangyang untuk membantu," kata Zhang Wuji. 
+"Paman guruku Yu Daiyan sangat menguasai situasi di situ. Emei Pai, Kongtong Pai, Kunlun Pai dan Ming Jiao saat ini bekerja sama dengan baik. Tetapi 
+setelah ini pihak-pihak yang berkuasa di selatan tidak akan mendengarkan kami lagi. Mereka akan berlomba-lomba memenangkan posisi sebagai kaisar di negeri 
+ini. Di utara, situasinya sama saja, bedanya hanya mereka selalu memakai nama Dinasti Yuan untuk membenarkan segala tindakan mereka, padahal mereka juga 
+menentang keputusan Kaisar Toghon Temur. Di antara para pengungsi itu ada beberapa kelompok etnis yang menganut agama Kristen, Yahudi dan Islam. Sampai saat 
+ini mereka masih tetap hidup berdampingan dalam damai, tetapi aku tidak tahu sampai kapan kami bisa mempertahankannya. Sekarang di Fujian ada sekelompok 
+orang yang menamakan diri Pemberontak Ispah Persia, yang sedang berperang di antara mereka sendiri, hanya gara-gara perbedaan pandangan. Sedangkan dari 
+wilayah barat, aku mendengar kabar tentang tentara Islam sedang berperang melawan tentara Kristen dari Gereja Latin, aku kuatir urusan itu cepat atau lambat 
+akan mempengaruhi para pengungsi itu, karena permusuhan antar kelompok di sini sangat sulit diduga perkembangannya. Para anggota Hongjin Qiyi di Liaodong tiba-tiba 
+menyerang Goryeo tanpa alasan yang jelas, sampai sekarang mereka masih menduduki Pyongyang dan sekarang sudah menduduki Kaesong. Di Gansu, tanahnya mungkin 
+tidak sesubur di sini, tetapi setidaknya mereka akan jauh dari semuanya itu. Aku akan mengajak semua orang hidup dengan damai, apa pun kepercayaan yang mereka anut, 
+dan dari suku apa pun mereka berasal. Aku tidak akan mengurus masalah politik lagi."
+
+Tak terasa Ah Xiu menarik nafas lega mendengar ucapannya. Ia bertanya, "Berarti dari sini kita akan langsung menjemput semua orang itu, lalu berangkat 
+ke Ganzhou?"
+
+"Tentu saja tidak," kata Zhang Wuji. "Bukankah kita masih harus pergi ke Sichuan untuk menyaksikan penobatan Ming Yuzhen? Dan setelah itu kita tetap harus 
+pergi ke Yunnan untuk menemui Basalawarmi, aku pasti akan melaksanakan apa yang sudah kukatakan. Kau juga masih harus mengurus Xiangyang, aku yang akan mengantar 
+semua orang itu ke Gansu sendirian. Setelah itu aku akan menjemputmu, dan membereskan sisa pekerjaan di situ."
+
+"Bagaimana kau akan membereskannya?" tanya Ah Xiu. "Zhu Yuanzhang dan Chen Youliang pasti akan terus berperang, kau tidak bisa mencegahnya. Mereka tidak akan 
+mendengarkanmu. Ming Yuzhen sudah memisahkan diri, dan dia juga pasti akan memperluas wilayahnya. Zhang Shicheng sudah puas menjadi raja di wilayahnya, dan tidak 
+ingin membantumu untuk melawan siapa pun. Itu semua belum termasuk masalah di utara."
+
+"Pada saatnya nanti aku akan tahu," kata Zhang Wuji singkat.
+
+Ia merangkapkan tangannya, dan berpamitan kepada Nona Yang, lalu mengajak Ah Xiu untuk beranjak dari situ. Tetapi di luar dugaannya Nona Yang berkata, 
+"Tunggu dulu, jika kau hanya menguatirkan para pengungsi itu, aku akan membantumu. Setelah kalian kembali ke Xiangnyang, arahkan mereka ke sebelah utara 
+Xianyang. Aku akan meneruskan semuanya dari situ ke Gansu, dan kalian tidak perlu memusingkan masalah ini lagi. Kau juga tidak perlu memusingkan tentang 
+keselamatan keluargamu yang pergi ke Ganzhou, mereka sudah menemukan tempat yang aman untuk menetap. Sebentar lagi kau akan mendapat kabar mengenai hal ini."
+
+Zhang Wuji terkejut. Ia bertanya, "Jiejie mengantarkan mereka sampai ke Ganzhou?"
+
+[xiaomotou]: Xiao Mo Tou (小魔头) bisa diterjemahkan menjadi 'Iblis Cilik'.
+[xiaoyinzei]: Yin Zei (小淫贼) bisa diterjemahkan menjadi 'Cabul Cilik'.
+
+"Aku melihat mereka melintas di Chang'an," jawab Nona Yang sambil tersenyum samar. "Aku hanya menyuruh beberapa orangku memberi petunjuk di sepanjang 
+jalan. Mereka semua kembali membawa laporan bahwa keluargamu sudah tiba di Ganzhou dan menemukan tempat untuk menetap." Ia menghela nafas panjang, 
+sebelum melanjutkan, "Zhang Jiaozhu, mula-mula aku mendengar banyak orang mengatakan bahwa kau adalah Xiao Motou[^xiaomotou], lalu aku juga mendengar banyak 
+Miejue Shitai menjulukimu Xiao Yinzei[^xiaoyinzei]. Kau sekarang bukan anak kecil lagi, tapi kulihat semuanya itu benar. Kau menyuruh kedua istrimu pergi ke 
+Ganzhou, lalu kau menikahi wanita lain. Setelah itu kau ingin meninggalkannya di Xiangyang, apakah kau ingin mencari yang baru?"
+
+Zhang Wuji memang sudah lama merasa bersalah tentang hal ini. Tadinya ia sudah berjanji untuk menikahi Zhou Zhiruo, tetapi kemudian Zhou Zhiruo membunuh 
+Yin Li, dan memfitnah Zhao Min. Lalu ia mengalihkan perhatiannya kepada Zhao Min, tetapi kemudian Yin Li terbukti masih hidup, dan Zhou Zhiruo menyadari 
+kesalahannya. Ketika ia dalam kebimbangan, kakek gurunya membereskan urusan itu dengan jalan menikahkan mereka bertiga. Di Pulau Ular, ia sempat menyadari 
+bahwa sejak awal ternyata wanita yang paling dekat dengan dirinya adalah Xiao Zhao. Tetapi sayangnya saat itu Xiao Zhao terpaksa pergi ke Persia bersama 
+Tajkis untuk menyelamatkan mereka semua, dan tindakannya memang benar. Terakhir, Kaisar Toghon Temur menyodorkan Ah Xiu begitu saja, yang tak mungkin ditolaknya. 
+Sekarang setelah Nona Yang menyebutkannya, ia merasa sangat tidak nyaman dan tak tahu apa yang harus dikatakannya.
+
+Ah Xiu berkata untuk membantunya, "Jiejie, itu semua bukan salahnya. Keadaan memang membuat kami semua menjadi seperti sekarang."
+
+Nona Yang ternyata mengabaikan komentarnya dan berkata, "Leluhurku sebenarnya bisa membunuh Kubilai Khan sebelum memasuki Xiangyang, seperti dia telah 
+membunuh Mongke Khan, tetapi ternyata tidak melakukannya. Itu bukan tanpa alasan. Guo Xiang tidak bisa menemukan mereka, karena mereka memang tidak ingin 
+ditemukan. Leluhurku juga bisa membantu keluarga Guo Jing mempertahankan Xiangyang sampai titik darah penghabisan, dan jika mereka melakukannya, maka 
+mereka tidak akan berhenti di tengah jalan. Tetapi mereka memilih untuk tidak turun tangan. Leluhurku hanya mengirimkan pedangnya, yang kemudian 
+diolah menjadi Yitian Jian dan Tulong Dao itu. Zhang Jiaozhu, seorang pria sejati harus menyelesaikan apa yang dimulainya sendiri. Kau berani menggerakkan 
+para anggota Ming Jiao untuk mendukung para pemberontak, dan sekarang kau ingin lepas tangan pada saat kerusakan yang kalian timbulkan sudah mencapai puncaknya? 
+Yuanzhen Dashi dan Chen Youliang merusakkan Shaolin dan Kai Pang, dan kau membantu memulihkannya, dalam hal ini aku harus berterima kasih. Tapi aku tidak 
+bisa membiarkanmu pergi begitu saja dari Zhongyuan, dan meninggalkan kerusakan yang kau timbulkan bersama para anggotamu."
+
+"Kalau begitu aku sekali lagi berterima kasih atas bantuan Jiejie," kata Zhang Wuji. "Setelah membereskan urusan di Sichuan dan Yunnan, kami pasti akan 
+kembali ke Xiangyang, dan aku tidak akan pergi dari situ sebelum keadaan sungguh-sungguh tenang."
+
+Nona Yang berbalik, lalu melompat dengan ringan ke atas pohon Liu di dekat tempatnya berdiri, dari kejauhan mereka mendengarnya berkata, "Aku akan 
+menepati janjiku untuk mengantar mereka sampai ke Gansu dengan selamat. Kau bereskan semua urusanmu."
+
+Ternyata dari atas pohon itu ia melompat ke pohon lain, dan mereka tidak bisa menemukan jejaknya lagi. Zhang Wuji dan Ah Xiu berjalan keluar dari areal 
+pemakaman yang luas itu sambil berpikir-pikir. Melihat keseriusan di wajah Zhang Wuji, Ah Xiu menggenggam tangannya sambil bertanya dengan lembut, 
+"Kau merasa bersalah karena menikahiku?"
+
+Zhang Wuji menggelengkan kepalanya, lalu mencium tangan Ah Xiu sambil berkata, "Waktu itu Zhiruo marah hanya karena aku mencari informasi tentang Yang Jiejie tadi. 
+Aku tidak tahu apa yang akan dipikirkannya jika benar-benar melihat Yang Jiejie muncul di Gansu."
+
+"Oh, ternyata itu yang mengganggumu," kata Ah Xiu. "Jangan kuatir, karena kali ini Yang Jiejie tidak akan muncul di situ."
+
+"Dari mana kau tahu?" tanya Zhang Wuji.
+
+"Kau tidak akan mengerti," jawab Ah Xiu. "Pokoknya aku tahu. Sekarang saatnya kita pergi ke Sichuan. Aku bukan Lihua, jadi aku tidak tahu arah. Dari sini 
+kita harus menuju ke mana?"
+
+Ia menaiki kudanya yang ditambatkan di bawah sebuah pohon. Zhang Wuji berpikir sejenak, lalu berkata, "Aku ingin tetap pergi ke Xianyang. Dari situ kita 
+bisa meneruskan sampai ke Chang'an, langsung menuju ke Guangyuan, kita bisa beristirahat sebentar di Hanzhong, karena kuda-kuda ini tetap harus makan dan minum. 
+Lalu kita menginap semalam di Guangyuan."
+
+"Baik, aku juga ingin menginap di tempat kelahiran Wu Zetian," kata Ah Xiu sambil tersenyum.
+
+Mereka mampir di Xianyang hanya sekedar mengitari kota itu sampai ke bagian utaranya, yang disebutkan sebagai tempat pertemuan dengan Nona Yang untuk 
+membawa para pengungsi itu, lalu segera menuju ke Chang'an, dan dari situ mereka langsung menuju ke Hanzhong. 
+
+Hanzhong adalah kota yang sempat diberikan kepada Liu Bang, setelah ia menumbangkan Dinasti Qin di Xianyang. Saat itu Liu Bang menggunakan gelar Raja Han, 
+dan mengabaikan karakter 'zhong', yang berarti 'tengah'. Nama Hanzhong itu sendiri melambangkan letaknya yang kira-kira di bagian tengah Sungai Han 
+yang panjang. Setelah menjadi kaisar, Liu Bang kemudian menggunakan nama yang sama sebagai nama dinasti yang didirikannya. Akhirnya masyarakat yang terbentuk 
+untuk selanjutnya menggunakan nama yang sama untuk melambangkan kelompok etnis mereka. Karena itulah hingga saat ini mereka disebut sebagai 'suku Han'. 
+
+Di sebelah selatan Hanzhong, pegunungan Daba, atau Daba Shan, membelah empat wilayah, Sichuan, Chongqing, Shaanxi dan Hubei. Kota ini juga berbatasan 
+dengan Gansu, di bagian baratnya, tetapi untuk mencapai Ganzhou, yang terletak di sebelah barat laut, tentu saja sangat jauh.
+
+Zhang Wuji membiarkan Ah Xiu menanyakan menu-menu makanan sepuasnya kepada pelayan yang datang menanyakan apa yang ingin mereka pesan untuk makan malam. 
+Saat itu matahari sudah condong ke ufuk barat, tetapi langit masih belum gelap, dan warna merah keemasan di langit tampak menakjubkan dari jendela kedai 
+itu. Mereka sama sekali tidak terburu-buru.
+
+Makanan yang menjadi ciri khas di kota itu pada dasarnya adalah kombinasi dari masakan Shaanxi dan Sichuan, hampir semuanya berbumbu berat dan pedas. 
+Diolah dengan mengandalkan banyak bawang dan bawang putih, dan rata-rata asin, karena mereka jarang menggunakan gula. 
+
+[^youpo-chemian]: You Po Che Mian (油泼扯面), atau Mi Biangbiang, adalah hidangan mi khas Shaanxi, yang bentuknya tebal dan panjang.
+[^hanzhong-remipi]: Hanzhong Re Mi Pi (汉中热米皮) adalah mi beras (dikenal sebagai kweetiaw di Indonesia) yang berbentuk lebar dan agak tebal. 
+[^hulu-tou]: Hulu Tou (葫芦头) adalah makanan yang terbuat dari usus babi, dan sejak era Dinasti Song Utara sudah biasa dijual di pinggir jalan. Nama itu sendiri secara literal berarti 'Kepala Labu'.
+[^yangrou-paomo]:Yang Rou Pao Mo (羊肉泡馍) adalah sup daging kambing, yang ketika disajikan ditaburi irisan roti di atasnya.
+
+Akhirnya Ah Xiu memesan Hanzhong Remipi[^hanzhong-remipi] dan arak Shaoxing, sedangkan Zhang Wuji memilih Mi Biangbiang, yang adalah mi khas Shaanxi, 
+dan memesan Hulu Tou[^hulu-tou] dan Yangrou Pao Mo[^yangrou-paomo].
+
+Ketika semua hidangan itu tiba di meja mereka, Ah Xiu merasa heran, lalu bertanya, "Mengapa semua mi ini begitu lebar dan tebal? Dan kenapa yang disebut Hulu Tou itu 
+ternyata adalah usus babi?"
+
+Pelayan itu tersenyum dan berkata, "Furen mungkin berasal dari Jiangnan dan belum pernah datang ke sini. Semua mi di Shaanxi lebar dan tebal. Usus babi itu 
+sejak jaman Dinasti Song memang dijual di pinggir jalan dengan nama Hulu Tou."
+
+"Baiklah," kata Ah Xiu agak malu. "Kurasa aku akan menyukainya."
+
+Setelah mencicipi makanan pilihannya, ternyata Ah Xiu memang sangat menyukainya. Ia pada dasarnya akan menyukai semua makanan pedas dan berbumbu. 
+Zhang Wuji mengambil sepotong Hulu Tou dengan sumpitnya, dan berkata sambil tersenyum, "Kau harus mencicipi ini. Dulu Yu Erbo membelikan makanan ini 
+ketika aku tiba di Zhongyuan, dan aku langsung menyukainya."
+
+"Hm, kau benar!" kata Ah Xiu sambil tertawa. Ia segera memanggil pelayan, lalu memesan semangkuk Hulu Tou lagi untuk dirinya sendiri.
+
+"Mungkin dulunya Liu Bang sangat menyukai mi beras dengan kuah seperti yang kau makan itu," kata Zhang Wuji sambil tertawa.
+
+Kuah mi yang sedang dimakan Ah Xiu berwarna coklat gelap, dan tampaknya sangat pedas. Setelah menghabiskan makanan itu, Ah Xiu berkata, "Berikan 
+sedikit daging kambing itu bersama rotinya. Aku ingin mencicipinya." Tetapi setelah mencicipinya, ia agak kecewa, dan berkata, "Anak-anak di Kaifeng 
+dan juga Bibi Xie bisa membuat yang lebih enak dari ini."
+
+Setelah menghabiskan semua hidangan itu, mereka segera melanjutkan perjalanan, dan tiba di kota Guangyuan menjelang tengah malam. 
+
+[^wuzhou] Wu Zhou (武周) adalah nama dinasti yang didirikan oleh Kaisar Wanita, Wu Zetian, yang sebelumnya adalah selir dari Li Shimin, dan kemudian menjadi permaisuri dari Li Zhe.
+
+Sebelum Kubilai Khan berkuasa, kota itu dikenal sebagai Lizhou, yang adalah pusat pengelolaan wilayah besar. Dinasti Yuan mengembalikan namanya menjadi 
+Guangyuan. Kota ini dikenal sebagai kota kelahiran Kaisar Wanita Wu Zetian dari Dinasti Tang, yang akhirnya sempat memproklamirkan nama dinastinya sendiri, 
+yaitu Dinasti Wu Zhou[^wuzhou]. Kota ini bisa dikatakan sebagai pintu gerbang utara Sichuan.
+
+[^huajiao]: Hua Jiao (花椒) adalah merica atau lada khas Sichuan.
+[^mapo-tofu]: Mapo Tofu (麻婆豆腐) adalah masakan khas Sichuan yang terbuat dari tahu dan daging sapi, sausnya berwarna merah kental dan agak berminyak.
+
+Meskipun saat itu sudah larut malam, tetapi begitu memasuki kota itu penciuman mereka segera tergoda oleh aroma masakan khas Sichuan, yang berbumbu 
+pedas. Ah Xiu segera mengajak Zhang Wuji mampir di sebuah kedai terdekat di pinggir jalan, dan tanpa pikir panjang memesan dua jenis hidangan yang terdiri 
+dari daging babi dan ayam, semuanya berbumbu dan pedas. Ia juga memesan Mapo Tofu[^mapo-tofu] yang sudah lama didengarnya dari Lihua, dan mereka hanya sempat mencicipi 
+hasil masakan koki istana, yang menurut Lihua kurang enak. 
+
+Masakan Sichuan dikenal selalu memakai lada khas dari wilayah itu, yang disebut huajiao[^huajiao]. Kubilai Khan yang sempat mengirimkan utusan ke berbagai 
+wilayah di Asia Tenggara membuat beberapa daerah di Zhongyuan sudah mengenal dan menanam berbagai jenis cabe dari wilayah itu, dan para penduduk Sichuan menggunakannya 
+secara liberal sebagai bumbu masakan mereka. Sejak dulu Sichuan memang dikenal sebagai surga makanan, terutama sekali bagi para penggemar makanan pedas dan 
+berbumbu.
+
+[^yuxiang]: Yu Xiang (鱼香) secara literal berarti 'aroma ikan'. Tetapi ini adalah nama saus atau sambal khas Sichuan, yang sama sekali tidak mengandung ikan, dan biasanya juga tidak dimakan bersama seafood.
+
+Ternyata tiga jenis hidangan itu hanya dimakan sepertiganya oleh Ah Xiu, lalu menyuruh Zhang Wuji menghabiskan semuanya. "Hm, daging babi dan ayam ini sangat enak," 
+kata Ah Xiu setelah menelan sisa makanan di mulutnya. "Mereka bilang bumbu yang dipakai itu bernama Yuxiang[^yuxiang], tetapi anehnya sama sekali tidak mengandung ikan."
+
+Zhang Wuji menghabiskan semua makanan itu dengan ditemani dua mangkuk nasi. Ia segera melihat perbedaan besar antara Ah Xiu dan Zhao Min, yang sama-sama menyukai 
+makanan pedas. Jika yang ada di hadapannya sekarang adalah Zhao Min, maka semua makanan itu sekarang pastilah sudah habis, dan Zhao Min masih akan memesan 
+lagi makanan lainnya. "Barangkali karena postur tubuh Minmei memang membutuhkan lebih banyak makanan," pikirnya sambil tertawa dalam hati. "Kota ini 
+tampaknya masih tetap ramai di tengah malam," katanya. "Kurasa kebanyakan orang yang makan di sekitar sini adalah pendatang dari Shaanxi, seperti kita."
+
+Tetapi Ah Xiu tersenyum sambil berkata, "Itu belum tentu, ada juga yang berasal dari Xiangyang."
+
+Ia memberi isyarat dengan gerakan kepala ke arah pintu masuk kedai, dan di situ Zhang Wuji melihat Xiao Zhao sedang berjalan masuk bersama lima orang pemuda 
+berusia sekitar lima belas tahun, yang adalah pasukan rahasia mereka. Setelah mendekat, Xiao Zhao berkata, "Gongzi, kami sudah kembali dari Quanzhou, dan 
+mendengar kalian sudah berangkat ke Sichuan, jadi kami langsung menuju ke Mianyang, tapi ternyata kami tidak bertemu dengan kalian di sana, jadi aku mengutus 
+beberapa orang untuk mencari kalian, dan ada yang melihat kalian datang dari arah utara."
+
+[^dandanmian]: Dandan Mian (担担面) adalah hidangan mi khas Sichuan, yang juga berbumbu pedas, dan mengandung daging babi.
+
+Sebelum menjawab, Zhang Wuji memanggil pelayan untuk memesan semangkuk Dandan Mian[^dandanmian]. Kemudian ia berkata, "Xiao Zhao, seharusnya kalian 
+beristirahat di Xianyang. Mengapa buru-buru datang ke Sichuan?"
+
+Xiao Zhao melihat bahwa meja itu agak terlalu kecil bagi mereka semua, lalu menyuruh kelima orang pemuda yang datang bersamanya duduk di meja lain, 
+dan memesan makanan mereka sendiri. Setelah itu ia baru menjawab, "Kami gagal berbuat sesuatu, mereka tidak mau mendengar nasihat. Sebelumnya aku sudah tahu, 
+aliran Sunni dan Syiah memang sulit didamaikan di Persia atau tempat lain. Meskipun saat ini mereka punya tujuan yang sama, tapi begitu berkumpul pasti timbul 
+masalah yang sulit dihindarkan."
+
+Ah Xiu berkata, "Saat ini di Quanzhou setidaknya aku tahu ada warga dari kelompok Arab, Persia, Eropa, Yahudi, India dan juga Armenia. Kurasa yang 
+paling banyak adalah warga suku Han, Arab dan Persia dari semua itu, tanpa memandang agama dan kepercayaan yang mereka anut. Ada sekitar seratus bahasa 
+yang digunakan dalam percakapan sehari-hari di situ. Dari sisi itu saja, saat ini masalah yang bisa timbul pasti sangat banyak, apalagi jika memperhitungkan 
+masalah agama. Orang-orang selatan saat ini cenderung berontak dan mendirikan negara mereka sendiri, jadi tujuan kelompok Pemberontak Ispah Persia itu pasti 
+juga sama. Aku yakin tak lama lagi orang dari suku lain akan menjadi pimpinan mereka."
+
+"Kulihat kelompok Sunni itu memang bukan orang-orang Persia, sebagian besar adalah orang Arab, dan ada beberapa orang India," kata Xiao Zhao. "Kebanyakan 
+warga dari suku Han di situ yang beragama Islam juga penganut aliran Sunni. Jadi meskipun namanya adalah Pemberontak Ispah Persia, tapi anggotanya bukan 
+semuanya orang Persia."
+
+Dandan Mian yang dipesan Zhang Wuji sudah datang. Tetapi ia segera mendorong mangkuk itu ke arah Xiao Zhao sambil berkata, "Xiao Zhao, kau sangat kurus 
+sekarang ini. Makanlah, kita dulu sering makan mi seperti ini."
+
+Melihat mi itu, Xiao Zhao segera teringat bahwa dulu ia sering membuat sendiri masakan yang sama, jika mereka sedang menetap di salah satu tempat untuk 
+beberapa waktu. Dan ternyata Zhang Wuji sangat menyukainya. Ketika mereka berangkat dari Guangming Ding, dan kemudian menuju ke Henan, di salah satu 
+kedai yang menjual makanan ini mereka hanya bisa membayar harga semangkuk mi seperti ini karena kehabisan uang. Zhang Wuji membaginya menjadi dua, dan 
+memilih bagian yang lebih sedikit untuk dirinya sendiri. Di Persia ia selalu tersenyum sendiri setiap kali teringat akan peristiwa itu. Sekarang ia terkejut 
+karena Zhang Wuji masih ingat makanan kesukaan mereka berdua. Mendengar kalimat itu, ia tersipu karena di situ ada Ah Xiu yang sedang memandang mereka 
+dengan penuh perhatian. 
+
+Melihat Xiao Zhao tidak segera makan, Zhang Wuji lalu berkata sambil tertawa, "Apa aku harus menyuapimu seperti dulu?" Sambil mengatakannya ia mengambil 
+sumpit, lalu hendak melakukan apa yang dikatakannya tadi.
+
+Xiao Zhao buru-buru meraih sumpit itu sambil berkata, "Gongzi, jangan bercanda. Aku bisa makan sendiri."
+
+"Kau tidak perlu memikirkan hasil pekerjaan kalian di Fujian itu," kata Zhang Wuji setelah melihat Xiao Zhao mulai makan. "Aku sudah memperhitungkan 
+semua itu. Pada dasarnya orang-orang di pantai timur memang tidak mau mendengarkan kita. Mereka sudah punya rencana sendiri. Zhu Yuanzhang pun saat ini 
+mulai menarik pajak dari arak, cuka dan garam, padahal dia tidak menguasai produksi garam di situ. Sebentar lagi dia pasti akan mencetak mata uangnya 
+sendiri, lalu mengumumkan diri sebagai raja, seperti yang lain. Sekarang ini aku sudah tidak terkejut lagi jika mendengar hal semacam ini."
+
+[^fanfang]: Fan Fang (蕃坊) atau Fan Ren Xiang (蕃人巷) adalah istilah untuk menggambarkan daerah yang terdiri dari banyak etnis.
+[^ban-nan-fan]: Ban Nan Fan (半南蕃) adalah istilah yang dikenakan bagi anak-anak dari keluarga campuran di wilayah selatan di era itu. Istilah Ban Nan itu sendiri arti literalnya adalah 'Setengah Selatan'.
+
+Tiba-tiba Xiao Zhao berhenti makan, lalu berkata, "Gongzi, ada beberapa hal penting yang sempat kami dengar di situ." Ia mengeluarkan selembar catatan 
+dari dalam saku bajunya, sebelum melanjutkan, "Sebaiknya Gongzi membacanya sendiri, kita jangan membicarakannya di sini."
+
+[^leng-chi-tu]: Leng Chi Tu (冷吃兔) adalah daging kelinci yang diasinkan dengan cara khas Sichuan.
+
+Nada bicaranya membangkitkan rasa ingin tahu Ah Xiu. Ia ikut membaca catatan itu bersama Zhang Wuji dengan kening berkerut. Tampaknya Xiao Zhao menulis 
+catatan itu secara terburu-buru, dan belum sempat diuraikan secara terperinci. Dari tulisan itu mereka mendapat gambaran bahwa Xiao Zhao dan pasukan yang 
+dipimpinnya mendengar tentang rencana kedatangan seseorang yang bernama Chen Youding untuk menangani masalah Pemberontak Ispah Persia. Berikutnya ada catatan 
+yang dicoret beberapa kali, tetapi kemudian ditulis ulang dengan makna yang sama, yaitu bahwa ada kemungkinan pemerintah akan mengeluarkan larangan bagi 
+perkawinan campuran dengan para warga asing, terutama sekali yang berbeda agama.
+
+Dengan kening semakin berkerut, Ah Xiu memesan beberapa bakpao, Lengchi Tu[^lengchi-tu] dan arak, lalu berkata, "Sebaiknya kita segera mencari penginapan, 
+ini sudah terlalu malam. Besok pagi-pagi kita harus meneruskan perjalanan ke Longshu."
+
+Semua makanan dan minuman itu siap dalam waktu singkat, dan mereka segera membayar semua harga makanan dan minuman yang mereka makan di situ, lalu 
+bergegas pergi ke penginapan terdekat. Zhang Wuji memesan kamar bagi para pemuda yang datang bersama Xiao Zhao, sebuah kamar besar dengan dua tempat tidur 
+bagi Xiao Zhao dan Ah Xiu, dan sebuah kamar lain bagi dirinya sendiri. Tetapi ia langsung masuk ke kamar yang lebih besar untuk merundingkan masalah 
+yang baru mereka baca dari catatan Xiao Zhao.
+
+Xiao Zhao yang sejak tadi ingin bicara segera bertanya, "Apakah Chen Youding ini salah satu keluarga Chen Youliang?"
+
+"Rasanya bukan," jawab Zhang Wuji. "Kita punya catatan tentang orang ini di Xiangyang. Tapi karena sudah lama tidak ada yang menyebutkan namanya, aku 
+tidak ingat lagi."
+
+[^fuqing]: Fuqing Xian Yujian (福清县玉涧), atau Yujian, Kabupaten Fuqing. Di Indonesia lebih dikenal sebagai Hokchia, adalah kelompok etnis dari Fujian yang agak berbeda.
+
+Ah Xiu berkata, "Pasti _bukan_! Karena dia berasal dari Yujian — Fuqing[^fuqing]. Nama aslinya memang Chen Youding, tetapi dia juga biasa dipanggil An Guo atau Yongqing. 
+Chen Youliang memang mengambil alih Fujian, tetapi dia pasti akan berurusan dengan orang ini, karena orang ini bekerja untuk Dinasti Yuan, dan meskipun dia terang-terangan 
+berasal dari suku Han, tapi dia memerintah dengan tangan besi. Banyak bawahannya kabur, dan membelot ke kaum pemberontak."
+
+"Ah, aku baru ingat sekarang!" kata Zhang Wuji. "Kau tahu lebih banyak detil. Kurasa itu sebabnya Chen Youliang bisa menguasai Fujian, pasti karena para 
+pembelot itu."
+
+"Dari mana kau mendengar bahwa pemerintah akan melarang perkawinan campuran?" tanya Ah Xiu. Sejak tadi hal inilah yang membuat keningnya berkerut.
+
+"Berita ini beredar di banyak Fanfang[^fanfang] yang ada di Quanzhou," kata Xiao Zhao. "Di Fujian kami melihat banyak kantong-kantong etnis dengan 
+yang menganut kepercayaan berbeda-beda. Anak-anak berdarah campuran sangat banyak di Quanzhou[^ban-nan-fan]. Mereka sedang meresahkan isu ini."
+
+Meskipun Fuzhou adalah ibukota Fujian, tetapi sebenarnya kota terbesar di Fujian saat itu adalah Quanzhou, dan jumlah penduduknya juga lebih padat 
+dari Fuzhou. Dari dokumen-dokumen ayahnya, Ah Xiu tahu bahwa jumlah penduduk Quanzhou sendiri melampaui dua juta orang saat itu. Jumlah itu beberapa kali 
+lipat lebih banyak ketimbang Kaifeng. Perdagangan barang-barang mewah dari dan ke luar negeri juga banyak yang melalui Quanzhou. Para saudagar Arab 
+menjuluki kota ini sebagai 'Cakar Harimau'. Barang impor yang paling umum di situ adalah rempah-rempah dan obat-obatan herbal.
+
+Zhang Wuji tertawa sambil berkata, "Xiao Zhao, bukankah Huang Shang baru menikahkan aku dengan Bilguun Khatun ini. Jika mengeluarkan larangan bagi 
+perkawinan campuran, bukankah Huang Shang akan melanggar perintahnya sendiri?"
+
+Ah Xiu membelalakkan matanya sambil berkata, "Kalau kau membuat perkawinan kita menjadi bahan lelucon, aku tidak akan memaafkanmu."
+
+Zhang Wuji segera berdiri, lalu membungkuk hormat secara berlebihan sambil berkata, "Niangniang, aku mana berani menentang perintahmu?"
+
+Xiao Zhao tertawa melihat aksinya, tetapi sesaat kemudian ia berkata dengan serius, "Dajie, aku merasa isu itu sangat mungkin terjadi."
+
+"Aku tahu, Chen Youding pasti tidak senang karena Chen Youliang menduduki wilayahnya," kata Ah Xiu. "Jadi kemungkinan besar dia yang menyebarkan isu 
+ini, supaya Huang Shang dan semua orang di istana mendengarnya. Bolad Temur pasti akan sengaja mengeluarkan larangan seperti itu, dan kemungkinan besar 
+Huang Shang akan terpaksa menyetujuinya, karena hampir semua anggota Majelis akan mengdukung Bolad Temur. Pemberontak Ispah Persia itu memang akan menjadi 
+berbahaya jika tidak segera dipadamkan."
+
+"Bagaimana sikap para pemberontak itu terhadap Chen Youliang?" tanya Zhang Wuji.
+
+"Sebagian besar dari mereka memang berpihak kepada Chen Youliang, karena Chen Youliang juga melawan pemerintah," kata Xiao Zhao. "Tetapi sebagian lainnya 
+tidak setuju, karena merasa Chen Youliang tidak terlalu menyukai orang asing."
+
+Ah Xiu sedang mencicipi bakpao yang dibelinya, yang ternyata berisi daging ayam berbumbu pedas khas Sichuan. Isi bakpao itu sebenarnya tidak terlalu 
+pedas, tetapi Ah Xiu memakannya dengan menambahkan sejenis saus yang dipesannya dari penginapan ini, yang berwarna merah dan kelihatannya sangat pedas. 
+Xiao Zhao meliriknya sekilas sambil berkata, "Melihatnya saja aku sudah sakit perut."
+
+Mereka masih meneruskan obrolan itu hingga beberapa saat sambil menikmati bakpao yang dibeli Ah Xiu. Lalu Zhang Wuji berkata, "Sebaiknya kita beristirahat 
+dulu, karena besok pagi-pagi sekali kita harus berangkat ke Longshu."
+
+Keesokan paginya, Zhang Wuji menyuruh para pemuda yang mengikuti Xiao Zhao mengganti pakaian mereka dengan seragam bersulam. Xiao Zhao membantu Ah Xiu berdandan 
+dengan mengenakan busana yang sangat menonjolkan statusnya sebagai putri Kaisar Toghon Temur. Sebelumnya Ah Xiu hampir tidak pernah mengenakan pakaian 
+seperti ini, kecuali jika ia diharuskan pergi bersama keluarga Kaisar lainnya untuk menghadiri sebuah acara resmi. Ah Xiu melihat bahwa Xiao Zhao membawa 
+seperangkat busana Persia dari Xiangyang, dan segera menyuruhnya mengenakan busana itu. Lalu mereka segera berangkat menuju ke Longshu, yang tidak terlalu 
+jauh dari Guangyuan. Mereka tiba di kota itu menjelang tengah hari, dan disambut oleh beberapa pejabat dari Ming Yuzhen yang segera mengenali Ah Xiu dari 
+dandanannya yang menyolok. Dandanan Xiao Zhao saat itu juga cukup menyolok dalam pandangan para pejabat Ming Yuzhen, tetapi mereka tidak tahu siap Xiao Zhao.
+
+Salah seorang pejabat yang tampil sebagai pemimpin orang-orang yang menyambut kedatangan mereka segera mengajak yang lain memberi hormat kepada Zhang Wuji, 
+lalu menyapanya, "Jiaozhu!" Setelah itu mereka beralih kepada Ah Xiu sambil menyapa, "Furen!" Mereka tidak tahu bagaimana harus menyapa Xiao Zhao, dan hanya 
+merangkapkan kedua tangan mengikuti sopan santun suku Han yang sudah umum, tanpa mengatakan apa-apa.
+
+"Hambamu bermarga Qiu, dan biasa dipanggil Yichen," kata pemimpin tim penyambutan itu. "Ming Daren sudah menunggu kedatangan Jiaozhu sejak kemarin."
+
+"Maafkan kami, karena ada sedikit urusan di Shaanxi yang menyebabkan kami agak terlambat," kata Zhang Wuji. "Kita langsung menuju ke tempat di mana 
+Ming Daren akan mengadakan acara itu, supaya tidak membuang waktu lagi."
+
+"Baik," kata Qiu Yichen.
+
+Selama ini mereka bertiga belum pernah bertemu dengan Ming Yuzhen. Dari Zhou Zhiruo maupun Zhao Min, Zhang Wuji juga tidak mendapatkan keterangan 
+yang jelas mengenai penampilannya, karena mereka memang belum pernah bertemu secara langsung dengan orang itu. Xiao Zhao yang selama ini selalu melakukan 
+perundingan dengan pihak Ming Yuzhen juga belum pernah bertemu dengan Ming Yuzhen sendiri. Zhang Wuji agak terkejut ketika menyadari bahwa orang yang 
+mereka temui ternyata masih berusia di bawah empat puluh tahun. Menurut perkiraannya, Ming Yuzhen kurang lebih hanya tiga puluh enam atau tiga puluh tujuh 
+tahun. Tubuhnya tinggi, tetapi tidak terlalu besar, suaranya nyaring dan jernih. Mata kanannya buta akibat perang, dan ia menggunakan penutup mata berwarna 
+hitam untuk menutupi bagian itu. Begitu melihat kedatangan mereka, ia segera berlutut sambil meletakkan tangan kanannya di dada untuk menghormati 
+Zhang Wuji dan Ah Xiu, sambil berkata, "Ming Yuzhen menyapa Zhang Jiaozhu dan Gongzhu!"
+
+[^gongzhu]: Gong Zhu (公主) atau _Gonji_ adalah sapaan umum bagi keluarga bangsawan perempuan dalam Dinasti Yuan.
+[^begum]: Bei Ji (别姬) adalah istilah dalam bahasa mandarin yang lebih akrab bagi lidah suku Han, untuk mewakili istilah yang berbau Turki 'Begum' atau 'Behi'. Sebutan ini ditujukan bagi seorang wanita yang menjadi pemimpin di kalangan atas, umumnya adalah putri salah satu Bey[^bey].
+[^bey]: Bey, Beg, Beigh, Bayg, dan sejumlah varian lain adalah sebutan bagi para pemimpin militer yang dihargai dalam Dinasti Yuan.
+
+Sebenarnya sapaan 'Gongzhu'[^gongzhu] itu kurang tepat bagi seorang putri Mongolia setingkat Ah Xiu, yang resminya menyandang gelar Khatun.
+Tetapi mereka sudah tahu bahwa Ming Yuzhen dilahirkan oleh keluarga petani di Suizhou, Hubei, yang tidak jauh dari Xiangyang maupun Wudang, 
+dan bukan mantan pejabat Dinasti Yuan seperti Liu Futong, karena itu Ah Xiu hanya tersenyum dalam hati mendengar kekeliruan kecil itu, lagipula 
+sapaan itu cukup umum, dan ia sendiri sejak kecil memang tidak mempedulikan bagaimana orang menyapanya. Ia tahu bahwa masih ada istilah lain, seperti 
+'Bei Ji'[^begum] untuk memanggilnya, tetapi sebutan itu juga terasa asing bagi lidah suku han. Ia tersenyum ramah sambil berkata, "Ming Yuzhen, 
+sejak tadi pejabatmu mengabaikan orang yang paling berjasa, sampai akhirnya kau bisa sampai pada posisi seperti hari ini."
+
+Setelah bingung sejenak, akhirnya Ming Yuzhen menebak dengan tepat bahwa orang yang dimaksud itu adalah Xiao Zhao, yang saat itu mengenakan dandanan 
+yang tidak umum, tetapi ia sekali lagi salah paham, dan mengira Xiao Zhao adalah Zhao Min. Ia memberi hormat sambil menyapa, "Ming Yuzhen berterima kasih 
+kepada Junzhu, dan sekaligus minta maaf yang sebesar-besarnya karena kekurangajaran kami semua."
+
+Xiao Zhao buru-buru menarik lengannya untuk bangkit berdiri sambil berkata, "Ming Daren, Xiao Zhao bukan seorang Junzhu. Aku hanya melaksanakan perintah 
+Zhang Jiaozhu, tidak perlu terlalu banyak aturan seperti ini."
+
+Zhang Wuji berkata, "Ming Daren, setelah ini kau adalah seorang raja, dan Zhang Wuji hanyalah pejabat kecil. Sikap seperti ini akan membuat semua 
+orang bertanya-tanya."
+
+"Zaixia tidak berani beranggapan seperti itu," kata Ming Yuzhen. "Zhang Jiaozhu adalah seorang pemimpin besar yang lurus dan benar. Sampai kapan pun 
+juga Zaixia akan selalu mendengarkan nasihat Jiaozhu."
+
+"Sudahlah, jangan membuang waktu lagi," kata Zhang Wuji. "Sekarang juga kita meresmikan status barumu."
+
+[^longshuwang]: Longshu Wang (隴蜀王) berarti Raja Longshu, gelar yang dipakai oleh Ming Yuzhen di awal kekuasaannya di Sichuan.
+
+Saat itu Ming Yuzhen sudah memiliki seorang putra dari perkawinannya dengan Nee Peng, seorang wanita sederhana dari suku Han. Anak itu diberi nama 
+Ming Sheng. Ia membawa keluarganya ke depan pintu gerbang tempat kediamannya di Longshu untuk mengumumkan dirinya sebagai Raja Longshu. Acara yang 
+cukup sederhana itu disaksikan oleh para penduduk kota yang memang sejak lama mendukungnya, dan di tengah acara itu Ming Yuzhen secara khusus 
+menyebutkan nama Zhang Wuji dengan penuh hormat sebagai atasannya.
+
+Rakyat Sichuan yang pada dasarnya cinta damai dengan segera mengelu-elukan nama Zhang Wuji, yang sudah lama mereka kagumi setelah mendengar sepak terjangnya 
+di dunia persilatan. Dengan gembira Ming Yuzhen lalu mempersilakan Zhang Wuji memberikan sambutan dalam acara itu. Setelah berpikir sejenak, Zhang Wuji lalu 
+tampil di depan rakyat itu dan berkata, "Saudara-saudaraku, Zhang Wuji hanya orang biasa yang telah melakukan banyak kesalahan serius, sehingga akhirnya ikut 
+mendorong wilayah selatan di Zhongyuan sampai menjadi seperti sekarang ini. Saat ini banyak orang telah menjadi raja, atau bahkan berani mengumumkan diri sebagai 
+seorang Kaisar di wilayah selatan, tetapi ternyata mereka berperang di antara sesamanya sendiri, dan tak seorang pun mau mengalah. Di Fujian sekarang ini 
+juga ada sekelompok kaum pemberontak yang menamakan diri Pemberontak Ispah Persia juga mengalami masalah di kubu mereka sendiri, dan seperti diketahui, 
+kelompok dari mana Raja Longshu kalian berasal, yaitu Kekaisaran Tianwan, juga berperang melawan Kekaisaran lain yang memakai nama Kekaisaran Song, padahal 
+mereka juga berasal dari anggota Hongjin Qiyi, dan mengaku percaya kepada Buddha Maitreya. Inilah yang menyebabkan Raja Longshu memisahkan diri, yaitu setelah 
+Chen Youliang menangkap Xu Shouhui, dan sekarang ini Xu Shouhui sendiri telah meninggal, tanpa diketahui dengan jelas apa yang menyebabkan kematiannya. 
+Aku hanya bisa berharap negeri kalian yang damai ini tidak mengalami nasib yang sama, dan kita semua akan bekerja sama untuk memastikannya. Mulai sekarang 
+kalian harus belajar dengan serius mengenai apa yang dimaksud dengan 'Buddha Maitreya' yang akan datang itu sebenarnya. Sang Buddha tentu saja tidak menyuruh 
+orang untuk berperang, dan bahkan melarang kita untuk saling membunuh. Para biksu di mana-mana pantang makan daging atau membunuh seekor semut kecil sekali pun. 
+Bagaimanakah Buddha Maitreya bisa menyuruh orang membunuh atau menguliti sesama penganut ajaran Buddha atau sesama manusia lainnya? Mulai sekarang berhati-hatilah 
+jika mendengar hasutan semua orang yang mengajak kalian berperang dengan mengatasnamakan agama Buddha atau agama lain. Raja kalian tidak pernah menyebut dirinya 
+sebagai 'Titisan Sang Buddha' atau hal-hal lain seperti ini. Kita akan menjaga hal yang baik ini bersama-sama."
+
+Pidatonya yang singkat itu melekat di hati rakyat Sichuan dan juga Ming Yuzhen yang berdiri dengan sikap hormat di sebelahnya. Ming Yuzhen dengan hati-hati 
+mulai menyiapkan sistem perpajakan, ujian negara dan juga secara resmi menjadikan agama Buddha sebagai agama resmi di wilayah itu. Ia dengan serius menangani 
+ajaran agama ini, dan memanggil biksu-biksu yang dipandangnya bisa dipercaya untuk mulai mengajarkan ajaran Buddha yang benar di wilayahnya. Ia akan selalu 
+waspada jika mendengar orang mengutip ajaran Buddha seperti yang disebarkan oleh Peng Yingyu di masa lalu. Zhang Wuji sendiri tidak pernah mengatakan bahwa 
+ajaran Peng Yingyu keliru, tetapi pidatonya yang singkat saat itu menyebabkan Ming Yuzhen mengambil sikap ini.
+
+Sebelum meninggalkan Sichuan, Ah Xiu berkata, "Wangye, setelah ini pasti banyak pihak mulai memandang kalian sebagai musuh. Tetapi dari sini kami akan 
+menuju ke Yunnan untuk menghubungi Basalawarmi, dan kami harap selanjutnya Wangye bisa menjaga hubungan baik dengan Yunnan, karena orang itu pasti akan 
+mendengarkan aku dengan memandang ayahku. Dia seorang yang setia kepada Dinasti Yuan, dan pasti tidak akan membiarkan Chen Youliang mengganggu Sichuan 
+begitu saja. Selama Wangye sendiri tidak mengganggu wilayah kekuasaannya, kami yakin dia juga tidak akan mengusik Wangye."
+
+Dalam hati sebenarnya Ming Yuzhen kurang menyukai Basalawarmi, yang memusuhi keluarga Kerajaan Dali dan terus menekan mereka. Tetapi karena menghormati 
+Zhang Wuji dan Ah Xiu, ia tidak mengatakan hal ini. Bagaimana pun juga kekuatan militer Basalawarmi pasti akan membuat Chen Youliang berpikir ribuan kali 
+sebelum menyerang Sichuan.
+
+Dari Longshu, Zhang Wuji ingin mengunjungi Chongqing, dan mereka mampir di Nanchong yang letaknya sekitar dua ratus _li_ dari situ. Kota itu sebelumnya 
+adalah bagian dari Negeri Ba di jaman kuno, sebelum ditaklukkan oleh Kerajaan Qin, sekitar tahun 316 SM, ketika Qin secara resmi mengumumkan wilayah mereka 
+menjadi sebuah kerajaan, dengan Ying Si sebagai Raja Huiwen. Saat itu Ying Si mengeksekusi seorang legalis terkenal, yang juga seorang reformator 
+bagi bangsa Qin, Shang Yang. 
+
+[^weiyang]: Wei Yang (衞鞅) adalah nama lain Shang Yang, karena ia memang berasal dari keluarga Wei, tetapi jika mengikuti garis keturunan ayahnya, ia seharusnya bermarga Gongsun.
+
+Xiao Zhao dan Ah Xiu tahu mengenai cuplikan sejarah ini dari buku sejarah yang ditulis oleh ibu mereka, sementara Zhang Wuji mendengarnya dari cerita 
+ayahnya, Zhang Cuishan, yang adalah seorang pengagum Shang Yang. Ia menghela nafas panjang dengan sedih ketika mengomentari tindakan Ying Si, "Raja Huiwen 
+memang membuat bangsa Qin menjadi sangat kuat, dan dengan berani mengumumkan Qin sebagai kerajaan, tetapi juga mengeksekusi Wei Yang[^weiyang] 
+hanya karena alasan dendam pribadi, padahal jasa Shang Yang bagi bangsa Qi tidak kecil."
+
+[^duke-xiao]: Xiao Gong yang dimaksud Ah Xiu adalah Xiao Gong dari Qin (秦孝公), yang bernama Ying Quliang (嬴渠梁), ayah Ying Si, yang berkuasa sebelum Qin menjadi sebuah kerajaan.
+
+Ah Xiu berkata, "Shang Yang tidak disukai oleh semua bangsawan Qin, dan satu-satunya orang yang melindunginya hanya Xiao Gong[^duke-xiao] sendiri, karena itu 
+begitu Xiao Gong meninggal, dia langsung dijebak beramai-ramai."
+
+"Ying Si tidak menyukai Wei Yang adalah karena Wei Yang menghukumnya dengan berat ketika dia masih sangat muda," kata Xiao Zhao sambil tersenyum. 
+"Sebenarnya orang-orang itu tidak mungkin berani bertindak jika Ying Si tidak mendukung mereka."
+
+"Tindakan Ying Si saat itu memang keterlaluan, meskipun dia juga belum mengerti," kata Zhang Wuji. "Wei Yang saat itu baru mengeluarkan peraturan yang 
+akan mengubah Qin secara mendasar, dan itu didukung oleh Xiao Gong sendiri. Jika Wei Yang atau Xiao Gong membiarkan tindakan Ying Si hanya karena Ying Si 
+adalah anak Xiao Gong, maka siapa yang akan menaati peraturan itu nantinya?"
+
+"Kurasa kau hanya kuatir nantinya Alexandra atau Zijian membunuh orang sembarangan, tepat ketika kau ingin mengeluarkan larangan untuk melakukannya," kata 
+Ah Xiu dengan nada datar. "Kurasa mereka juga belum tentu akan melakukan hal semacam itu, karena kita semua pasti akan mendidik mereka dengan benar."
+
+Zhang Wuji tidak menjawab. Ibu mertuanya memang diam-diam sudah memperingatkannya mengenai hal itu sebelum meninggalkan Kaifeng, dan saat ini pikirannya 
+dipenuhi oleh kekuatiran mengenai persengketaan antar kelompok di Fujian, dan juga apa yang dilakukan oleh para pengikut Hongjin Qiyi di Goryeo. Mau tak 
+mau ia lalu memikirkan tentang nama kedua anaknya, yang masing-masing berarti 'ilmu perang' dan juga 'pedang', sedangkan Zhao Min memberi nama Alexandra 
+kepada Ziying, yang diambil dari nama Alexander Agung dari Makedonia. Ia merasa kekuatiran ibu mertuanya sungguh sangat beralasan, erutama sekali jika ia 
+mengingat betapa cepatnya Ziwu dan Zijian bereaksi untuk meraih pisau dari tangan kakek mereka.
+
+Xiao Zhao berkata sambil tertawa, "Gongzi, mereka semuanya masih sangat kecil, kurasa kekuatiran Gongzi agak berlebihan."
+
+"Lalu mengapa Minmin memberi nama Alexandra kepada Ziying?" tanya Zhang Wuji.
+
+"Kurasa hanya karena nama itu enak didengar, dan memang terasa manis untuk anak perempuan," kata Ah Xiu. "Minmin juga tidak akan sembarangan mengajar mereka, 
+apalagi sekarang ibunya sendiri ada di situ untuk mengawasinya. Kau sungguh tidak perlu kuatir."
+
+[^guozhou]: Guo Zhou (果州) secara literal memang bermakna 'Wilayah Buah-buahan'.
+
+Xiao Zhao memberi isyarat supaya Ah Xiu tidak membantah pendapat Zhang Wuji lagi, lalu ia berkata, "Gongzi, Ying Si memang menaklukkan kota ini dari negeri Ba, 
+tetapi rasanya itu juga belum tentu hal yang buruk. Buktinya Liu Bang kemudian mengembangkannya dengan baik dan memberi nama Anhan, yang berarti 'aman' bagi 
+wilayah ini. Bahkan Dinasti Tang mengubah namanya menjadi 'Daerah Buah-buahan'[^guozhou]. Tempat ini sangat subur, dipenuhi perbukitan dan juga dilalui banyak anak sungai."
+
+Zhang Wuji tertawa pahit sambil berkata, "Tapi Wang Man kemudian memberontak, dan mendirikan Dinasti Xin, meskipun umurnya hanya sekitar tiga tahun. Berikutnya 
+Dinasti Han terpecah menjadi Han Barat dan Han Timur akibat ulahnya."
+
+"Wang Man memang bisa saja kau pandang buruk," kara Ah Xiu. "Tapi ternyata dia menghapuskan perbudakan yang sejak lama ada, dan mulai membagi-bagikan 
+tanah kepada rakyat. Hal itu tidak pernah dilakukan orang sebelumnya. Kau mungkin mengagumi Kaisar Wu, dan dia memang kaisar yang baik, buktinya dia 
+berkuasa sangat lama, dan Dinasti Han menjadi sangat besar di tangannya. Kaisar Wu sendiri memang memakai hukum seperti yang diterapkan oleh Shang Yang, 
+tetapi apa yang diterapkan Wang Man ternyata berhasil menciptakan masyarakat baru yang lebih harmonis. Jadi Wang Man juga bukan sungguh-sungguh jahat."
+
+Saat itu mereka berkuda dengan sangat santai sambil bicara. Zhang Wuji tersenyum, lalu berkata, "Kau lebih bijaksana. Mungkin aku memang terlalu kuatir, 
+karena saat ini begitu banyak pertentangan muncul di sekitar kita. Sebaiknya kita cepat-cepat sampai di Kunming. Aku ingin segera pulang ke Xiangyang 
+untuk merundingkan apa tindakan kita selanjutnya dengan semua orang di sana."
+
+[^baidicheng]: Bai Di Cheng (白帝城) secara literal berarti 'Kota Kaisar Putih'.
+
+Tetapi perjalanan dari Hanchong sampai ke Chongqing ternyata tidak semudah yang mereka bayangkan semula, karena mereka harus menyeberangi sungai dan melalui 
+pegunungan Daba, sebelum akhirnya tiba di kota itu. Karena terlalu banyak menghabiskan waktu untuk mengagumi keindahan pemandangan di sepanjang perjalanan, 
+mereka akhirnya tiba di Chongqing setelah matahari terbenam, dan kembali terpaku ketika tiba di sebuah tempat yang sebelumnya digunakan sebagai benteng pertahanan 
+yang bernama Baidi Cheng[^baidicheng]. Tempat ini juga dikenal sebagai 'Kota Puisi', karena berbagai penyair terkenal menulis sajak mengenai tempat itu.
+Salah satunya adalah Li Bai, yang dikenal sebagai salah seorang sastrawan terbesar Dinasti Tang.
+
+Ditemani oleh dua orang wanita cantik di sepanjang jalan memang membuat Zhang Wuji terlena, dan kadang-kadang melupakan urusan besar yang sedang dikerjakannya, 
+apalagi yang selalu mereka temui adalah makanan-makanan enak dan juga membayangkan syair yang indah-indah dari jaman kuno. Ia baru mengeluh setelah sampai 
+di Chongqing dan tenyata hari mulai gelap. "Kelihatannya kita harus menginap di sini," katanya sambil mengajak semua orang turun dari kuda mereka 
+di depan sebuah kedai.
+
+Meskipun di situ ada Ah Xiu dan beberapa orang pasukan rahasia mereka, tetapi sebenarnya Xiao Zhao sangat menikmati perjalanan santai bersama dengan 
+Zhang Wuji, yang sudah sangat lama dirindukannya. Ia tidak ingin terburu-buru menghadapi situasi serius di Yunnan atau tempat lain, karena itu ia hanya 
+tersenyum mendengar keluhan Zhang Wuji, dan berkata, "Menginap semalam di tempat yang indah ini juga tidak ada salahnya."
+
+Sayangnya Zhang Wuji kemudian tidak ingin membuang waktu lagi, dan keesokan harinya, sebelum matahari terbit, ia mengajak semua orang segera meneruskan 
+perjalanan ke arah Kunming. Mereka memacu kuda secepat mungkin, dan hanya berhenti di beberapa tenpat untuk memberi minum kuda-kuda mereka dan beristirahat 
+sebentar di tepi anak sungai atau mata air yang mereka lalui, sambil mencari makanan di kedai terdekat untuk sekedar mengganjal perut. 
+
+Menjelang sore, mereka tiba di lingkar luar Kunming. Ketika Zhang Wuji memperlambat kudanya untuk memberi kesempatan kepada kuda-kuda mereka untuk beristirahat 
+sejenak, Ah Xiu berkata, "Ketika masih kecil, ayahku pernah diasingkan ke daerah ini. Sebetulnya saat itu Mama, Bibi Mei dan juga Bibi Qi yang menemaninya. 
+Ternyata tempat ini tidak seburuk yang diceritakan ayahku. Tapi ayahku diasingkan ke Guangxi, yang tak terlalu jauh dari sini, mungkin di situ keadaannya memang 
+lebih buruk."
+
+Sebenarnya apa yang dilihat oleh Zhang Wuji dan semua orang lain, Kunming sama sekali tidak dapat dikatakan buruk, seperti apa yang dikatakan Ah Xiu. 
+Nama Kunming itu sendiri diambil dari nama suku kuno, yaitu Kunming Yi, yang artinya adalah 'Orang Barbar Kunming', yang adalah ranting dari kelompok 
+etnis Di-Qiang. Di era Dinasti Han Barat, Kunming Yi berdiam di wilayah Danau Erhai. Dinasti Han mengambil wilayah dari Kerajaan Dian, dan mendirikan sebuah 
+Komando Militer yang mereka namakan Yizhou. Tak lama setelah itu Dinasti Han juga mengikutsertakan Kunming Yi ke dalam pasukan mereka di Yizhou. 
+
+Nama Kunming mulai dipakai di era Tiga Kerajaan, dengan alasan yang tidak jelas. Setelah Dinasti Yuan berdiri, nama itu masih terus dipakai.
+Dinasti Han berusaha mengendalikan Jalur Sutra hingga ke Burma dan India, dan mengikutsertakan sebagian wilayah Yunnan. Di era Dinasti Sui, mereka mengirimkan 
+dua ekspedisi militer ke wilayah ini, dan nama itu diubah menjadi Kunzhou.
+
+Bagi masyarakat Tionghoa di sekitar situ, Kunming dikenal sebagai kota Tuodong di dalam Kerajaan Nanzhao, yang akhirnya berubah menjadi Kerajaan Dali. 
+Di era Dinasti Yuan, kepemilikan atas Tuodong berpindah tangan. Ketika Sayyid Ajjal berkuasa di situ sebagai Gubernur Yunnan yang pertama, sebuah kota 
+bergaya masyarakat Zhongyuan didirikan di areal yang sekarang dikenal sebagai Kunming, dan kota itu diberi nama Zhongjing.
+
+Sayyid Ajjal membangun sebuah kuil agama Buddha, sebuah kuil tradisional masyarakat Tionghoa yang menganut ajaran Khonghucu, dan dua buah mesjid di kota itu. 
+Kuil bagi para penganut ajaran Konfusius itu adalah yang pertama di Yunnan, dan segera menarik minat kelompok minoritas di propinsi itu. Bersama dengan 
+propagandanya bagi tradisi dan ritual para penganut ajaran Konfusius, Sayyid Ajjal juga teramat sangat dihargai atas jasanya mengembangkan wilayah itu menjadi 
+teramat sangat 'Tionghoa', alias didominasi oleh ciri-ciri suku Han. Kota itu kemudian berkembang menjadi pusat perdagangan antara wilayah barat daya dengan 
+segala tempat lain di Zhongyuan, semuanya adalah berkat jasa Sayyid Ajjal. Padahal sebelumnya Marco Polo sempat menggambarkan kota itu sebagai kota 
+terbelakang, yang menggunakan cara barter untuk berdagang, dan orang-orangnya makan daging mentah.
+
+Inilah sebabnya baik Zhang Wuji maupun Xiao Zhao, dan para pemuda tanggung yang mengikuti mereka, tidak melihat kota Kunming sebagai sesuatu yang buruk, 
+dan bahkan berbagai bangunan yang melambangkan keberadaan Islam, Buddha dan penganut Konfusianisme terlihat dengan jelas dan indah dari kejauhan, dan mereka 
+juga melihat keramaian kota dari jarak yang masih cukup jauh, karena banyaknya orang yang datang dari arah pintu gerbang kota ke lingkar luar kota tersebut.
+
+Di sebuah kedai yang cukup besar, mereka melihat Lihua dan Shangguan Wu sedang makan bersama para pengawal garam dari Xiangyang ke kota itu. Ah Xiu melambaikan 
+tangannya ke arah Lihua sambil berjalan mendatangi meja mereka, lalu bertanya, "Semuanya sudah beres?"
+
+Lihua tertawa sambil melambai-lambaikan roti bundar yang dipegangnya ke arah Ah Xiu, dan menjawab, "Sudah beres sejak dua hari yang lalu. Kalian melancong 
+ke mana?"
+
+Zhang Wuji memesan makanan dan minuman bagi rombongannya, lalu menggabungkan diri di meja Lihua dan Shangguan Wu. Hanya mereka berlima yang duduk 
+mengelilingi meja itu. Ia berkata, "Mengapa hanya kalian berdua bersama para pengawal itu di sini, mana yang lain?"
+
+"Shen Feiling dan teman-temannya sedang berkeliling kota sambil mencari oleh-oleh untuk semua teman yang ada di Xiangyang," kata Shangguan Wu. "Kami sengaja 
+menunggu Jiaozhu di sini karena ada sesuatu yang kami dengar tadi pagi, barangkali cukup penting, tapi sebenarnya bukan berita baru."
+
+Lihua mengeluarkan catatannya, lalu memberikannya kepada Zhang Wuji, yang segera membacanya bersama dengan Ah Xiu dan Xiao Zhao. Di situ mereka hanya 
+melihat sebaris kalimat pendek. 'Basalawarmi ingin menyerang Fujian'.
+
+Ah Xiu segera barkata dengan nada rendah, "Habiskan dulu semua makanan itu, kita bicara di tempat lain."
+
+Lihua dan Shangguan Wu tampaknya sangat menikmati teh Pu'er yang menjadi ciri khas Yunnan. Teh itu berwarna gelap, dan mereka menyebutnya 'heicha' atau teh hitam. 
+Tetapi tidak sama dengan teh hitam seperti yang dikenal oleh masyarakat modern, yang di wilayah itu disebut hongcha, atau teh merah. Teh ini setelah daun-daunnya 
+dikeringkan tidak langsung dikonsumsi, tetapi difermentasi terlebih dahulu, dan seperti arak berkualitas tinggi, yang makin lama disimpan akan dianggap makin 
+baik, dan otomatis harganya akan makin mahal.
+
+Kecuali Lihua dan Shangguan Wu, semua orang lain makan dengan cepat tanpa bicara setelah mendengar apa yang dikatakan Ah Xiu. Setelah itu Ah Xiu menyuruh 
+para pengawal dan para anggota pasukan rahasia Zhang Wuji lainnya menunggu di salah satu tempat di luar kedai itu, sementara mereka bertiga mencari tempat 
+yang agak sepi bersama Lihua dan Shangguan Wu untuk berbicara.
+
+"Dari mana kalian mendengar berita seperti itu?" tanya Ah Xiu.
+
+"Sebenarnya semua orang di sini sudah mendengar apa yang terjadi di Fujian, dan mereka semua membicarakannya," kata Shangguan Wu. "Tapi tadi pagi kami secara 
+kebetulan mendengar beberapa pengawal kota sedang lewat sambil berbisik-bisik, dan salah satunya mengatakan hal ini."
+
+Bagi Ah Xiu semua pengawal kota di Kunming pastilah berhubungan erat dengan Basalawarmi, tetapi ada kemungkinan berita itu memang sengaja disebarkan oleh 
+Basalawarmi sendiri, meskipun ia belum bisa menduga apa maksudnya. Ia bertanya lagi, "Apa yang dikatakan oleh Basalawarmi setelah menerima kiriman kalian?"
+
+Lihua mencibir dan berkata, "Kelihatannya orang itu tak tahu diri. Aku sudah memberikan suratmu, tapi dia sama sekali tidak mengucapkan terima kasih, 
+dan hanya bilang 'Aku akan menunggu di sini', lalu menyuruh kami pergi."
+
+Ah Xiu tertawa sambil berkata, "Tentu saja, kalau dihitung-hitung, orang itu kemungkinan harus dianggap setingkat dengan ayah, atau mungkin juga harus 
+dianggap kakekmu. Aku sendiri juga tidak tahu pasti. Kau pasti tidak menunjukkan tanda pengenalmu sebagai anak ayah."
+
+"Untuk apa?" tanya Lihua. "Bukankah kalian yang akan menemuinya sendiri?"
+
+"Sebentar lagi kalian tunjukkan jalan ke sana, dan kalian ikut bersama kami masuk," kata Ah Xiu lagi. Ia lalu menoleh kepada Xiao Zhao sambil berkata, 
+"Xiao Zhao, kau harus membantuku berdandan sebentar."
+
+"Dajie, sekarang kau ingin menyamar sebagai apa? Aku bisa membuatmu menjadi nenek-nenek tua," jawab Xiao Zhao sambil tertawa. "Mula-mula Gongzi juga 
+tertipu, dan mengira aku bongkok."
+
+"Hah?" kata Ah Xiu. "Untuk apa aku menjadi nenek tua? Aku sekarang justru ingin terlihat sebagai anak ayah yang sejati!"
+
+Mereka berlima berkuda untuk memasuki kota. Di pintu gerbang, Ah Xiu menunjukkan tanda pengenal yang diberikan oleh Kaisar Toghon Temur, dan segera 
+dikenali oleh pengagwal yang menjaga di situ. Mereka mempersilakan Ah Xiu dan keempat orang lain itu masuk dengan sikap penuh hormat. Di dalam kota, 
+Ah Xiu membeli seperangkat busana Mongolia yang baru, dan harganya cukup mahal. Ia juga membeli segala aksesori yang biasa dipakai para wanita Mongolia 
+tradisional, lalu mencari sebuah penginapan sederhana, sekedar untuk mengajak Xiao Zhao berdandan di situ. Semua orang lain disuruhnya menunggu di luar.
+
+Xiao Zhao memerlukan waktu tidak sampai setengah jam untuk mendandani Ah Xiu sesuai keinginannya. Dan ketika mereka keluar dari kamar, Zhang Wuji 
+tercengang. Riasan yang dipakai Ah Xiu memang tidak banyak, tetapi teknik sederhana yang dipakai Xiao Zhao untuk menggambar sesuat di kedua ujung mata 
+Ah Xiu telah menyulapnya menjadi lebih mirip dengan Toghon Temur, dan menyingkirkan hampir semua ciri-ciri wajah ibunya. Busana yang dikenakan Ah Xiu 
+didominasi warna biru dan merah menyala, dan penuh dengan gambar-gamber kecil yang tampak rumit dan semarak. Topi bulu berwarna hitam menghias kepalanya. 
+Ia tersenyum puas menyaksikan ekspresi muka Zhang Wuji, dan berkata, "Sekarang kita siap mengunjungi kerabat jauhku itu."
+
+Dengan mengikuti Lihua dan Shangguan Wu yang menjadi penunjuk jalan, mereka mendatangi tempat kediaman Basalawarmi dengan berkuda. Di pintu gerbang 
+istana besar itu, Ah Xiu kembali menunjukkan tanda pengenalnya, dan ternyata para pengawal yang sedang berjaga di pintu tidak memerlukannya. Salah seorang 
+dari mereka berkata dengan ramah dalam bahasa Han, "Wangye sudah menunggu Putri."
+
+Ah Xiu tersenyum tipis, lalu mengajak semua orang mengikuti dua orang pengawal yang mengantarkan mereka ke sebuah ruangan yang besar dan tampak mewah.
+Di sebuah kursi besar yang dilapisi kulit harimau, mereka melihat seorang pria yang kira-kira sebaya dengan Chaghan Temur, tetapi ketika berdiri ternyata 
+tidak terlalu tinggi. Ia sedikit lebih pendek dari Zhang Wuji. Tubuhnya kekar berotot. Kumis, cambang dan jenggotnya lebat dan agak ikal. Mukanya 
+jelas menunjukkan ciri-ciri keturunan Tolui dan Sorghaghtani Beki, dengan tulang pipi yang agak tinggi dan bentuk mata yang di kedua ujungnya agak naik. 
+Alisnya tebal seperti kumis dan jenggotnya. Ia menyambut kedatangan mereka dengan gembira sambil tersenyum lebar, dan berkata kepada Ah Xiu dalam bahasa Han 
+yang sempurna, "Bilguun Khatun! Luar biasa, aku sudah lupa berapa tahun tidak melihatmu."
+
+Ah Xiu memberi hormat dengan cara tradisional Mongolia yang jauh lebih sederhana ketimbang adat kebiasaan suku Han, lalu menyapa, "Wangye, ayah 
+mengirimkan salam, dan sangat menyesal karena sampai hari ini masih belum sempat datang berkunjung."
+
+Basalawarmi tertawa dan mengatakan bahwa hal itu sangat wajar bagi seorang Kaisar. Ia lalu mengamati Zhang Wuji dengan penuh perhatian dari ujung kepala 
+sampai ke ujung kaki, dan kembali lagi ke atas, lalu berhenti sambil menatap mukanya dengan senyum lebar, lalu menepuk-nepuk bahunya dengan senang 
+sambil berkata, "Ayahmu punya pandangan yang luar biasa untuk memilih seorang suami bagimu. Aku tidak yakin sepuluh ekor macan tutul akan sanggup mengalahkan 
+suamimu!"
+
+Zhang Wuji tertawa sambil berkata, "Wangye berlebihan, Zhang Wuji bahkan belum pernah melihat macan tutul."
+
+Basalawarmi berpaling kembali kepada Ah Xiu, lalu berkata, "Sebaiknya aku memanggilmu Ah Xiu. Rasanya terakhir kali aku melihatmu, kau tak lebih dari 
+enam atau tujuh tahun. Dalam sekejap kau sudah menikah."
+
+Diam-diam Ah Xiu merasa lega. Basalawarmi sepertinya tak pernah mendengar rencana ayahnya untuk menikahkannya dengan salah satu keturunan Sayyid Ajjal. 
+Ia kembali berkata, "Wangye, sebelumnya salah seorang adikku — Badamlyanhua — mengantarkan kiriman dari ayah untuk Wangye..."
+
+"Ah, itu tentu anak ini," sela Basalawarmi dengan senang sambil menggerakkan kepalanya ke arah Lihua dan Shangguan Wu. "Aku tidak tahu dia adalah 
+adikmu, jadi aku hanya mengatakan bahwa aku akan menunggumu di sini. Garam itu sangat banyak, dan memang berguna karena garam sangat mahal di sini. 
+Mengapa ayahmu tiba-tiba mengirimnya, apa yang bisa kulakukan untuk ayahmu?"
+
+"Wangye, sebenarnya garam itu adalah hasil produksi ibuku bersama saudara-saudara seperguruannya," kata Ah Xiu. "Jadi Huang Shang memang membebaskan kami 
+untuk menggunakannya. Yang terpikir bagi kami adalah mengirimnya ke sini dari Xiangyang. Jika Wangye mau, untuk selanjutnya kami akan mengirimnya secara 
+rutin, sejumlah yang Wangye perlukan. Jika kiriman kami yang sekarang ini masih kurang, Wangye bisa mengatakannya."
+
+"Jumlah itu cukup untuk tiga bulan," kata Basalawarmi. "Kalian mengirimnya terlalu banyak. Kurasa kalian pasti memerlukannya juga untuk wilayah lain. 
+Bukankah Zhang Shicheng sampai sekarang masih merajai produksi garam di situ?" Ia tertawa, lalu menggerak-gerakkan kedua tangannya dan menambahkan, 
+"Aku tentu tidak akan menolaknya. Tapi kau tidak perlu terlalu banyak berbasa-basi. Katakan saja, apa yang bisa kulakukan untuk kalian?"
+
+Ah Xiu berdehem, lalu berkata, "Wangye, sekarang ini Chen Youliang merajalela di selatan. Dia menangkap Xu Shouhui, dan akhirnya orang itu meninggal, 
+lalu semua orang menyalahkannya. Akhirnya salah satu pejabatnya yang bernama Ming Yuzhen ingin membelot, dan kami mendukungnya untuk menjadi Raja Longshu, 
+dengan perjanjian bahwa selanjutnya dia akan mematuhi kami. Jika Chen Youliang mengalihkan serangannya dari pihak Zhu Yuanzhang untuk merebut kembali 
+Sichuan dan Chongqing dari tangannya, maka dengan bantuan kami pun dia masih akan kalah. Bagaimana jika Wangye mendukungnya secara diam-diam, dan kami 
+akan menggerakkan Zhu Yuanzhang dan Chen Youding jika hal seperti itu sampai terjadi?"
+
+Basalawarmi tidak segera menjawab. Ia mendekati peta besar yang terletak di sebelah kiri belakang kursi besarnya, lalu menelusuri jalan-jalan dari arah 
+Kunming sampai ke Chongqing, lalu pelan-pelan bergerak ke arah timur, dan ia segera melihat posisi Xiangyang dan Hanyang. Ia berkata, "Gagasanmu itu 
+tidak jelek. Kalian memang bisa mencegatnya dari arah Xiangyang, dan sekaligus mengirim pasukan ke arah timur untuk bergabung dengan serbuan dari 
+arah Nanjing. Jika melihat ini, dia pasti tidak akan berani sembarangan bergerak ke barat dari Jiangzhou atau Poyang. Kurasa dia sekarang di sekitar 
+situ, kan?"
+
+"Wangye benar," kata Zhang Wuji. "Dia memang menguasai sebagian Fujian, tapi belum bisa berbuat banyak dengan adanya masalah cukup serius yang terjadi 
+dari arah Quanzhou sampai ke Fuzhou. Zhu Yuanzhang memang mendesaknya, tetapi karena Zhu Yuanzhang selalu punya masalah dengan Zhang Shicheng, kami 
+kuatir dia akan sengaja membakar amarah para pemberontak Persia itu untuk saling berkelahi di antara mereka sendiri, sampai akhirnya timbul masalah 
+lebih besar di Fujian, yang tidak bisa lagi ditangani oleh Chen Youding. Jadi dia bisa bergerak ke arah barat atau mendadak memanfaatkan peluang untuk 
+semakin ke timur. Jika kita bekerja sama dengan baik, maka dia hanya akan bisa ke arah timur, atau tetap diam menunggu kesempatan di tempatnya sekarang."
+
+"Tetapi masalah di Fujian itu tetap harus kalian atasi," kata Basalawarmi. "Jika kalian biarkan, maka dia pasti akan memancing di air keruh, seperti yang 
+dilakukannya bersama gurunya di Shaolin. Jika Chen youding dan orang-orang asing itu berhasil diadu domba, apalagi jika pada saat yang sama Zhu Yuanzhang 
+sedang bertempur mati-matian dengan Zhang Shicheng, maka dia pasti akan memenangkan Fujian. Aku heran, mengapa sampai sekarang Chaghan Temur belum bergerak 
+untuk mengatasi hal ini?"
+
+"Memang tidak bisa," jawab Ah Xiu. "Saat ini di Shandong sedang timbul masalah karena Tian Feng dan Wang Shicheng membelot, dan menduduki wilayah itu. 
+Karena itu Chaghan Temur tidak bisa bergerak ke selatan. Dalam hal ini memang kita yang harus mengatasinya."
+
+"Baik, aku akan membantu kalian," kata Basalawarmi. "Sebelum ini aku memang sudah ingin bergerak ke timur, tapi aku sedang memperhitungkan jaraknya 
+yang sangat jauh. Tapi karena sekarang kalian sudah mengatakannya, maka aku akan siaga di sebelah barat, dan aku pasti akan mendukung Sichuan, jika memang 
+mereka mengalami masalah dari arah timur."
+
+Terjawab sudah apa yang menjadi pertanyaan Ah Xiu sejak tadi mengenai rencana Basalawarmi menyerang Fujian. Ia segera berkata, "Kalau begitu kami akan 
+langsung berangkat dari sini untuk melihat apa yang bisa kami lakukan di Fujian. Jika terjadi sesuatu di Sichuan, orang kami pasti akan menghubungi 
+Wangye dari Xiangyang. Wangye, Ah Xiu mengucapkan terima kasih atas segala kerja sama yang baik. Semoga Wangye tidak bosan melihat kami, karena setelah 
+ini kami pasti akan lebih sering mengunjungi Wangye."
+
+Ketika Toghon Temur diasingkan ke Guangxi, ia sempat bertemu dengan Basalawarmi di Kunming bersama Ki Seung Nyang, Mei Jian dan ibu Ah Xiu. Meskipun 
+hubungan antara Basalawarmi dan keluarga Toghon Temur tidak terlalu dekat, tetapi mereka saling menghormati. Ia berkata, "Kalian baru datang, dan 
+langsung pergi begitu saja? Aku akan menyiapkan tempat bagi kalian untuk beristirahat. Kalian bisa berangkat besok pagi."
+
+Tetapi Zhang Wuji segera berkata, "Wangye, kami sungguh berterima kasih. Tetapi perjalanan kami ke sini sempat tertunda karena harus mengurus masalah 
+lain di Shaanxi, karena itu kami memang harus segera berangkat. Masalah di Fujian itu sungguh sangat mendesak."
 
 
 
