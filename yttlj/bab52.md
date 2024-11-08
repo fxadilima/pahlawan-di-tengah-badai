@@ -260,12 +260,12 @@ seorang permaisuri, tetapi baik Ah Luo maupun Mei Jian bukan permaisuri Kaisar T
 Melihat tak seorang pun maju untuk menerima titah, Kasim he kembali berkata, "Zhang Wuji harap maju ke hadapan titah ini sambil mendengarnya baik-baik!"
 
 Zhang Wuji maju beberapa langkah ke arah Kasim He, lalu kembali berlutut sambil mendengarkan. Kasim He berkata, "Ketua Ming Jiao, Zhang Wuji, telah berjasa 
-mengamankan Xiangyang, yang sekarang adalah benteng terakhir kita untuk menghadapi kaum pemberontak di wilayah selatan. Kaisar secara resmi mengangkat Zhang Wuji 
-sebagai Kepala Daerah di Xiangyang, dengan tugas untuk menegakkan hukum dan mengelola Xiangyang dan wilayah selatan Hubei. Kaisar juga secara memberikan 
+mengamankan Xiangyang, yang sekarang adalah benteng terakhir kita untuk menghadapi kaum pemberontak di wilayah selatan. Kaisar secara resmi memberikan 
 putri kesayangannya, yaitu Bilguun Khatun, sebagai istri Zhang Wuji yang sah." Kasim He berdehem, lalu menambahkan, "Putri harap maju ke hadapan titah ini."
 
 Jantung Zhang Wuji berdegup kencang ketika melihat Ah Xiu berlutut di sisi kirinya. Lalu Kasim He kembali melanjutkan, "Setelah ini Zhang Wuji dan Bilguun Khatun 
-secara resmi berkedudukan di Xiangyang. Semua nama pejabat yang berada di bawah komando Zhang Wuji akan disertakan oleh pembawa titah ini. Demikianlah titah Kaisar."
+secara resmi akan berkedudukan di Xiangyang. Kaisar dengan ini memberikan Xiangyang kepada Bilguun Khatun sebagai wilayahnya sendiri. Semua nama pejabat yang berada 
+di bawah komando Bilguun Khatun dan Zhang Wuji akan disertakan oleh pembawa titah ini. Demikianlah titah Kaisar."
 
 Zhang Wuji mengulurkan kedua tangannya untuk menerima titah yang diserahkan Kasim He. Selama beberapa saat ia masih tetap berlutut di tempatnya, 
 lalu melirik ke sebelah kirinya. Dilihatnya Ah Xiu juga masih berlutut sambil menundukkan kepalanya tanpa berani bergerak. lalu mereka mendengar 
@@ -1002,7 +1002,7 @@ Xiao Zhao yang sejak tadi ingin bicara segera bertanya, "Apakah Chen Youding ini
 "Rasanya bukan," jawab Zhang Wuji. "Kita punya catatan tentang orang ini di Xiangyang. Tapi karena sudah lama tidak ada yang menyebutkan namanya, aku 
 tidak ingat lagi."
 
-[^fuqing]: Fuqing Xian Yujian (福清县玉涧), atau Yujian, Kabupaten Fuqing. Di Indonesia lebih dikenal sebagai Hokchia, adalah kelompok etnis dari Fujian yang agak berbeda.
+[^fuqing]: Fuqing Xian Yujian (福清县玉涧), atau Yujian, Kabupaten Fuqing. Di Indonesia lebih dikenal sebagai Hokchia, adalah daerah asal kelompok etnis dari Fujian yang agak berbeda.
 
 Ah Xiu berkata, "Pasti _bukan_! Karena dia berasal dari Yujian — Fuqing[^fuqing]. Nama aslinya memang Chen Youding, tetapi dia juga biasa dipanggil An Guo atau Yongqing. 
 Chen Youliang memang mengambil alih Fujian, tetapi dia pasti akan berurusan dengan orang ini, karena orang ini bekerja untuk Dinasti Yuan, dan meskipun dia terang-terangan 
