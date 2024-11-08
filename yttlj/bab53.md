@@ -16,7 +16,7 @@ Semua orang mula-mula merasa takjub ketika mendengar pertemuan Zhang Wuji dengan
 dan jika digabungkan dengan wilayah Ming Yuzhen di Sichuan, maka berarti mereka telah berhasil membangun wilayah baru yang sangat luas. Tetapi Zhang Wuji berkata, 
 "Kuharap kita semua menyadari bahwa baik Ming Yuzhen maupun Basalawarmi ini setiap saat bisa saja lepas dari kelompok kita. Mereka masing-masing punya tujuan sendiri. 
 Aku menilai Basalawarmi masih lebih bisa diajak bekerja sama, karena pada dasarnya dia hanya ingin mempertahankan wilayahnya sendiri, yang sudah luas, dan hingga saat 
-ini  hamoir tidak ada orang ingin mengusiknya. Masalah yang dihadapi orang itu hanya dengan keluarga Kerajaan Dali, dan aku tidak berminat mencampurinya."
+ini  hampir tidak ada orang ingin mengusiknya. Masalah yang dihadapi orang itu hanya dengan keluarga Kerajaan Dali, dan aku tidak berminat mencampurinya."
 
 Ia lalu menggambar sebuah peta kasar dengan menandai beberapa kota yang dianggapnya penting, lalu menghubungkan semua titik itu, sehingga mereka melihat 
 dua wilayah yang sangat luas, terbagi menjadi utara dan selatan, yang dipisahkan oleh garis yang menghubungkan antara Xining dan Xianyang.
