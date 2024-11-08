@@ -51,9 +51,15 @@ Zhang Wuji sangat gembira. Ia segera bertanya, "Bagaimana kita bisa mengirimkan 
 "Untuk sementara kita bisa menggunakan lima ekor burung merpati yang kubawa dari Ganzhou, mereka pasti akan kembali ke tempat itu jika kita melepasnya 
 dari sini," jawab Ah San. "Delapan Panah Dewa akan selalu diutus ka Zhongyuan jika mereka ingin mengirim pesan yang berbau darurat atau sangat penting."
 
+Zhang Wuji membaca sekilas surat dari Zhou Zhiruo dan Zhao Min yang diberikan oleh Ah San, tetapi ia membaca lebih teliti surat khusus dari ibu mertuanya.
+Lalu ia melipat ketiga surat itu, dan berkata dengan singkat, "Pomu ternyata sudah bertemu dengan dua orang frater dari Venesia lainnya yang baru tiba di sekitar 
+tempat itu, namanya Edoardo dan Luigi. Jadi sekarang aku bisa tenang, banyak orang yang siap membantu segala keperluan mereka, dan frater-frater itu juga menemukan tempat untuk 
+mulai pekerjaan mereka di Zhongyuan."
+
 Tang Wenliang berkata, "Kami juga siap mendukung pos kita di Ganzhou dari Kongtong Pai."
 
-Tetapi Zhang Wuji berkata, "Sayangnya tidak bisa. Ibu mertuaku sangat anti membicarakan atau mengikuti kegiatan politik. Selain itu kita perlu membiarkan 
+Tetapi Zhang Wuji berkata, "Sayangnya tidak bisa. Ibu mertuaku sangat anti membicarakan atau mengikuti kegiatan politik. Aku bisa mengatakan, jika Pomu menemukan 
+bahwa kedua frater itu ternyata memiliki kepentingan politik, pasti Pomu tidak akan membiarkan mereka mendekati cucu-cucunya. Selain itu kita perlu membiarkan 
 salah satu tempat yang ditempati oleh orang-orang kita berdiri bebas, mengikuti contoh keluarga Kerajaan Dali, yang sejak dulu sebenarnya adalah daerah 
 pusat kegiatan agama Buddha, dan hanya sibuk dengan urusan spiritual mereka sendiri. Meskipun di Kunming ada seorang Basalawarmi, tetapi pada dasarnya 
 dia hanya berfungsi untuk melindungi Dali dari serbuan pihak lain, dan tidak mengganggu Kerajaan Dali sendiri."
@@ -109,9 +115,17 @@ dianggap tidak penting, meskipun sebelumnya itu adalah wilayah Kerajaan Xi Xia, 
 Kau sendiri tidak memiliki kekuasaan di situ, jadi penguasa setempat pasti akan mempersulit kalian jika tidak ada dukungan yang memadai. Bawa lebih banyak 
 pasukan rahasiamu untuk mendidik mereka yang masih baru, dengan begitu wilayah baru kita juga akan lebih cepat menjadi kuat."
 
-"Kurasa tidak perlu terlalu banyak," kata Zhang Wuji. "Aku hanya akan membawa Shangguan Wu, Shangguan Yinuo dan Ah Zhu. Selebihnya biarkan tetap di 
+Lihua berkata sambil mengerutkan keningnya, "Bibi Luo, aku tidak mau tinggal di situ."
+
+Mei Jian segera berkata, "Dengarkan apa kata Bibi Luo! Ini sudah saatnya kau melakukan sesuatu yang berguna, bukankah kau sebelumnya juga suka pergi 
+ke tempat-tempat baru?"
+
+"Kurasa tidak perlu terlalu banyak orang," kata Zhang Wuji. "Aku hanya akan membawa Shangguan Wu, Shangguan Yinuo dan Ah Zhu. Selebihnya biarkan tetap di 
 Xiangyang. Ketiga anak ini pasti akan bisa mengajarkan semua yang mereka ketahui dengan cepat kepada anak-anak yang baru bergabung. Aku sendiri yang akan 
 mengajarkan kungfu kepada mereka semua."
+
+Di luar dugaan, Lihua segera berkata setelah mendengar penjelasannya, "Kalau begitu aku juga ikut pergi. Memang sudah saatnya aku melakukan sesuatu 
+yang berguna."
 
 "Bukankah Shangguan Yinuo itu adik perempuan Shangguan Wu, yang masih di bawah lima belas tahun?" tanya Ah Xiu. "Kau yakin dia bisa bekerja dengan baik?"
 
@@ -154,7 +168,7 @@ berada di Hanyang."
 
 "Aku akan membawa sepuluh anak-anak muda yang sebelumnya pergi bersama Xiao Zhao ke Fujian," kata Fan Yao. "Mereka semuanya Muslim, kan?"
 
-Xiao Zhao tersenyum sambil berkata, "Bukan semuanya. Darlush dan Arash adalah orang Persia, tetapi mereka bisa berbahasa Arab dengan baik, dan memahami 
+Xiao Zhao tersenyum sambil berkata, "Bukan semuanya. Darius dan Arash adalah orang Persia, tetapi mereka bisa berbahasa Arab dengan baik, dan memahami 
 beberapa kutipan Alquran dengan cukup baik. Mereka berdua adalah penganut Ming Jiao turun temurun. Ada seorang yang berasal dari suku Han, keluarganya 
 menganut Islam Sunni, tetapi dia memahami dengan baik perbedaannya dengan Syiah, dan dia sama sekali tidak mempermasalahkan hal itu."
 
@@ -201,17 +215,69 @@ menyalahkan keputusanku tadi."
 
 "Huh," dengus Mei Jian. "Aku memang sudah lama ingin meninggalkan istana. Sekarang ini anak-anak kita semuanya sudah besar. Kurasa Huang Shang hanya membutuhkan 
 Bayan dan Qi Shimei di situ. Bayan jelas tidak mungkin pergi, bukan hanya karena Xue Shan masih kecil, tapi karena ayahnya pasti tidak akan mengizinkannya. 
-Qi Shimei tetap arus membantu Huang Shang mengatasi segala kesulitannya, karena kita berdua sudah pergi dari situ. Jika Wuji berhasil mengembangkan sisa-sisa 
+Qi Shimei tetap harus membantu Huang Shang mengatasi segala kesulitannya, karena kita berdua sudah pergi dari situ. Jika Wuji berhasil mengembangkan sisa-sisa 
 wilayah Xi Xia itu, kurasa Huang Shang pasti akan mau diajak tinggal di situ."
 
 Ah Luo sangat meragukannya, karena tempat yang telah mereka rencanakan sejauh ini adalah Shangdu, yang sebelumnya adalah istana musim panas Dinasti Yuan. 
 Hingga saat ini mereka masih belum berhasil mengajak Toghon Temur untuk segera pergi ke Dadu, karena meskipun sudah melihat bahwa Dinasti Yuan tidak bisa 
-dipertahankan lagi, Toghon Temur tetap merasa bahwa saat ini masih belum saatnya bagi mereka untuk mundur. Ia masih belum melihat Zhang Wuji tampil sebagai 
+dipertahankan lagi, Toghon Temur tetap merasa bahwa saat ini masih belum saatnya bagi mereka untuk mundur. Ia belum melihat Zhang Wuji tampil sebagai 
 orang yang siap mengambil tahta sebagai kaisar, karena itu ia tidak bisa melepaskan tahtanya begitu saja. Setelah sekian lama tinggal bersama Zhang Wuji 
 di Kaifeng maupun Xiangyang, Ah Luo bahkan merasa Zhang Wuji sama sekali tidak bermaksud mengambil tahta. Ia sendiri tidak bisa meraba apa yang sesungguhnya 
-sedang dipikirkan oleh keponakannya, yang sekarang bahkan sudah menjadi menantunya itu.
+sedang dipikirkan oleh keponakannya, yang sekarang bahkan sudah menjadi menantunya itu. Dan saat ini Ah Xiu bahkan telah melepaskan suaminya begitu saja 
+untuk pergi bersama Xiao Zhao ke wilayah yang sebelumnya adalah ibukota Xi Xia, sebelum dibantai oleh Genghis Khan akibat pengkhianatan mereka. Ia juga tidak 
+bisa memahami dengan baik apa yang sedang dipikirkan oleh anaknya.
 
+Zhang Wuji beralih kepada para pendekar Kongtong Pai, lalu berkata kepada Zong Weixia sambil tertawa gembira, "Zong Qianbei, kuharap Qianbei tidak keberatan 
+menemani kami pergi ke daerah miskin seperti Zhongxing. Dari situ tidak terlalu jauh dari Kongtong Pai. Tang dan Chang Qianbei bisa kembali ke Kongtong Pai 
+untuk menjaga wilayah di sekitar situ, jadi kita tetap akan bisa menghubungi mereka setiap saat. Dengan begini kita akan tetap bisa menjaga Ganzhou dari 
+jauh bersama-sama, meskipun kita hanya akan membicarakan politik di sekitar Zhongxing dan Kongtong Pai."
 
+Semua orang sudah tahu bahwa saat ini orang yang paling akrab dengan Zhang Wuji di antara semua pendekar yang bukan anggota Ming Jiao adalah Zong Weixia, 
+yang pernah ditolongnya di Guangming Ding. Mendengar tawaran itu, Zong Weixia tanpa berpikir lagi segera menyambut dengan gembira, "Orang tua ini sungguh beruntung. 
+Di usiaku yang sekarang aku ternyata masih bisa melakukan hal yang berguna bagi banyak orang. Bagaimana aku bisa keberatan? Aku juga akan ikut mengajari 
+anak-anak muda itu ilmu silat Kongtong Pai kami setiap hari."
+
+Tang Wenliang berkata, "Kenapa kami tidak diajak tinggal di situ?"
+
+"Aku akan mengirimkan beberapa orang dari anak muda itu untuk menyibukkan kalian berdua di Kongtong Pai," kata Zhang Wuji. "Yifu juga mempelajari kungfu 
+Kongtong Pai, meskipun hanya mencurinya. Tapi sekarang ini Yifu sudah menjadi murid Shaolin, dan sama sekali tidak ingin mempelajari kungfu apa pun. Jadi 
+hanya ini yang bisa kulakukan untuk tetap mengenang dan memperbaiki hubungan antara Yifu dengan Kongtong Pai kalian."
+
+Sekarang mereka semua baru memahami mengapa Zhang Wuji selalu merasa lebih dekat dengan Kongtong Pai ketimbang yang lain. Zong Weixia berkata, "Zhang Jiaozhu, 
+masalah yang lama itu sudah kulupakan. Pendekar Xie terburu nafsu karena ingin membalas dendam kepada Cheng Kun, aku bisa memahaminya dengan baik sekarang. Kau 
+tidak perlu merasa bersalah karena hal kecil semacam ini."
+
+"Oh, bukan," kata Zhang Wuji. "Aku sendiri memang beranggapan bahwa kungfu kalian lebih sesuai bagi anak-anak muda itu. Soal Yifu, itu hanya urusan 
+pribadi. Dan aku sungguh ingin menolong kalian mengatasi kesulitan akibat melatih Qi Shang Quan itu sampai tuntas, jadi aku memang harus lebih dekat dengan kalian 
+untuk bisa melakukannya. Qianbei bisa menganggap hal ini sebagai caraku berterima kasih atas bantuan kalian selama ini bagi kami semua."
+
+Zong Weixia sebenarnya adalah orang yang paling banyak kehilangan jari akibat ulah Zhao Min. Selain merasa bersalah, Zhang Wuji sangat mengagumi 
+kebesaran hatinya untuk memaafkan apa yang telah dilakukan Zhao Min di masa lalu, dan saat ini tampaknya Zong Weixia merasa sangat gembira hanya 
+karena bisa lebih akrab dengannya. Sikap semacam ini membuat Zhang Wuji merasa terharu.
+
+Mereka memerlukan waktu lebih dari dua minggu untuk menyiapkan segala keperluan yang akan dibawa oleh rombongan besar Zhang Wuji dan Xiao Zhao menuju 
+ke tempat yang baru, yang sama sekali belum pernah mereka ketahui bagaimana keadaannya. Para anggota Kai Pang di sekitar Chang'an dikerahkan oleh Sima Han 
+untuk menyelidiki lokasi di sekitar Zhongxing. Ah Luo segera mengirimkan sebuah surat rahasia yang diacak-acak begitu rupa oleh Shangguan Wu dan 
+kawan-kawannya sampai tak mungkin lagi bisa dimengerti oleh orang lain, tanpa memahami tiga potongan kecil yang mereka selipkan di antara surat itu. 
+Di istana, Ki Seung Nyang harus memeras otaknya selama tiga hari sebelum berhasil menerjemahkan isi surat itu supaya bisa dibacanya dengan baik. 
+
+Pastor Tommaso, yang ternyata masih berada di tengah-tengah umat kesayangannya yang tersebar di sepanjang jalan dari Xiangyang sampai ke Kaifeng, 
+mengirimkan dua orang pastor lain yang masih berusia sekitar tiga puluh lima tahun, yang bernama Gabriele dan Niccolo. Tiga orang frater yang juga 
+masih muda dikirimkannya bersama kedua pastor itu untuk membantu segala keperluan Zhang Wuji dan Xiao Zhao, terutama yang berkaitan dengan kesehatan 
+dan pengetahuan mengenai obat-obatan dari barat, mereka masing-masing bernama Dante, Aurelio dan Enzo. Sikap bersahabat dari kelima orang Venesia itu 
+membuat para pengungsi merasa sangat nyaman dengan kehadiran mereka, dan tak seorang pun merasa keberatan meskipun kebanyakan dari mereka berlainan 
+suku dan agama. Kelima orang biarawan itu bisa berbahasa Han dengan baik, dan mereka bahkan bisa menulis dalam bahasa Han, meskipun logat mereka terdengar 
+aneh bagi telinga mereka.
+
+Zhang Wuji berangkan bersama sekitar tiga ratus orang yang berkemah di luar pintu gerbang Xiangyang. Frater Aurelio telah mengikuti rombongannya sejak 
+berangkat dari Xiangyang, meskipun di sekitar situ tak satu pun penganut Kristen ada di antara mereka. Zhang Wuji mengajak rombongannya berjalan dengan 
+santai, meskipun mereka membawa banyak kuda. Kuda-kuda yang mereka bawa dari Xiangyang jumlahnya tidak mencukupi bagi semua orang yang akan mengikuti mereka 
+sampai ke Zhongxing, jadi ia sengaja sengaja ikut berjalan bersama semua orang lain. Hanya para orang tua dan anak-anak yang kelelahan akan menaiki kereta 
+atau berkuda. Di sepanjang jalan ia menghabiskan waktu untuk bertukar pengalaman mengenai pengobatan dengan Frater Aurelio. Beberapa orang yang berangkat 
+bersama mereka saat itu memang sedang menderita sakit, tetapi Zhang Wuji sudah menyiapkan kereta khusus bagi mereka semua, sehingga para penderita itu 
+merasa sangat nyaman dan tetap erawat dengan baik. Saat ini wabah penyakit masih menjangkiti beberapa wilayah yang padat penduduk, seperti Kaifeng. Untungnya, 
+Xiangyang tidak terlalu padat, dan kepadatan para pengungsi itu sudah jauh berkurang setelah mereka berkemah dengan jarak renggang di sepanjang jalan menuju 
+ke Kaifeng, karenanya jumlah orang yang tertular wabah dari wilayah lain juga tidak terlalu banyak.
 
 
 

@@ -83,7 +83,7 @@ Chaghan berkata dengan santai sambil membuka helmnya, "Hm, kita memasuki tahun b
 Saat itu Zihan sudah bisa mengucapkan kata 'Mama', 'Papa', dan bahkan beberapa panggilan yang lain seperti 'Yeye', yang baru diajarkan kepadanya, tetapi ia 
 baru bisa merangkak, dan belum bisa berdiri dengan baik. Sedangkan Ziying yang hanya bisa mengucapkan deretan kata tanpa arti sudah bisa berjalan 
 dengan bantuan orang lain. Ia memegang tangan Zhao Min kuat-kuat sambil mencoba berlari ke arah Chaghan, yang sedang merentangkan kedua tangannya 
-sambil tersenyum lebar dan memanggilnya, "Alexandra!"
+sambil tersenyum lebar dan memanggilnya, "Alessandra!"
 
 Chaghan mengangkat anak itu tinggi-tinggi sambil tertawa. Anak itu sama sekali tidak takut. Ia bahkan mencoba menarik jenggot Chaghan sambil tertawa 
 riang, dan mencubit pipi kakeknya dengan gemas. "Anak ini pemberani!" kata Chaghan Temur dengan gembira. 
@@ -1172,7 +1172,7 @@ mengingat betapa cepatnya Ziwu dan Zijian bereaksi untuk meraih pisau dari tanga
 
 Xiao Zhao berkata sambil tertawa, "Gongzi, mereka semuanya masih sangat kecil, kurasa kekuatiran Gongzi agak berlebihan."
 
-"Lalu mengapa Minmin memberi nama Alexandra kepada Ziying?" tanya Zhang Wuji.
+"Lalu mengapa Minmin memberi nama Alessandra kepada Ziying?" tanya Zhang Wuji.
 
 "Kurasa hanya karena nama itu enak didengar, dan memang terasa manis untuk anak perempuan," kata Ah Xiu. "Minmin juga tidak akan sembarangan mengajar mereka, 
 apalagi sekarang ibunya sendiri ada di situ untuk mengawasinya. Kau sungguh tidak perlu kuatir."

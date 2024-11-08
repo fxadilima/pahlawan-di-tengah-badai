@@ -920,7 +920,7 @@ dan bertanya, "Dasao, kau tahu mengenai hal ini?"
 akhirnya menjadi seperti sekarang ini. Minmin baru datang setelah mendengar Liu Futong akan menyerang Kaifeng."
 
 Li Furen melihat bahwa saat itu Ziying sudah kenyang, dan sedang memandang ke arahnya dari pelukan Zhou Zhiruo. Ia segera mengangkat bayi perempuan itu 
-dan mulai mengajaknya tertawa. Lalu ia berkata, "Minmin menamai anak ini 'Alexandra'. Nama itu diambil dari nama Alexander dari Makedonia, yang menaklukkan 
+dan mulai mengajaknya tertawa. Lalu ia berkata, "Minmin menamai anak ini 'Alessandra'. Nama itu diambil dari nama Alexander dari Makedonia, yang menaklukkan 
 banyak wilayah di jaman kuno, sampai ke India. Aku tidak tahu apa yang dipikirkan Minmin, tapi aku sendiri tidak berharap anak ini akan menjadi seorang 
 penakluk, kecuali menaklukkan dirinya sendiri. Coba lihat apa yang dilakukan oleh para wanita 'penakluk' sejak jaman dulu. Lu Zhi membunuh selir-selir yang 
 dianggapnya saingan dengan cara yang sangat sadis. Lalu Ibu Suri Dou itu, yang tadinya ditindas Lu Zhi, akhirnya juga membunuh banyak orang dengan kejam, 
@@ -1034,8 +1034,8 @@ diundang ke sini. Dia berasal dari ordo Fransiskan."
 "Baiklah," kata Zhao Min. "Biar Mama yang memilih nama untuk mereka, dan kalian semua ikut memikirkan nama suku Han bagi mereka. Mungkin Wuji Gege 
 juga sudah menyiapkan nama yang baik."
 
-Li Furen tampak sedang memberikan tanda salib dengan jarinya di dahi ketiga cucunya. Ia tersenyum sambil berkata, "Aku memberikan nama Marco, Francesco, 
-dan Giovanni bagi mereka. Kuharap kalian tidak mengajar mereka untuk berperang, menjadi pejabat atau bermain-main dengan politik. Aku sendiri hanya 
+Li Furen tampak sedang memberikan tanda salib dengan jarinya di dahi ketiga cucunya. Ia tersenyum sambil berkata, "Aku memberikan nama Matteo, Francesco, 
+dan Lorenzo bagi mereka. Kuharap kalian tidak mengajar mereka untuk berperang, menjadi pejabat atau bermain-main dengan politik. Aku sendiri hanya 
 berharap supaya mereka menjadi anak-anak yang baik dan suka menolong orang lain."
 
 "Kami akan mengingat baik-baik nasihat Mama," kata Zhou Zhiruo dengan serius.
@@ -1126,7 +1126,7 @@ jadi ia tidak diberitahu mengenai rencana ini.
 
 Pastor yang memimpin acara itu berasal dari Venesia. Ordonya sudah cerita mendengar dari Marco Polo mengenai apa yang terjadi di jaman Kubilai Khan, 
 dan kemudian mereka merasa prihatin setelah mendengar kabar bahwa Dinasti Yuan selalu mengalami krisis pewarisan tahta, lalu melakukan berbagai hal yang 
-mereka anggap buruk bagi rakyat jelata, setelah Kubilai Khan sendiri meninggal. Pastor Thomas yang sudah berusia di atas enam puluh tahun itu tiba di 
+mereka anggap buruk bagi rakyat jelata, setelah Kubilai Khan sendiri meninggal. Pastor Tommaso yang sudah berusia di atas enam puluh tahun itu tiba di 
 Kaifeng sekitar dua puluh tahun yang lalu. Ia bisa berbahasa Han, meskipun terdengar agak aneh bagi telinga semua orang yang hadir di situ. 
 
 Tidak terlalu banyak rakyat Kaifeng yang menganut agama Kristen, jadi kebanyakan dari rakyat yang ikut hadir untuk menyaksikan jalannya upacara itu 
@@ -1418,7 +1418,7 @@ mencintai dengan benar."
 
 Tanpa terasa air mata mengalir turun dari pelupuk mata Zhang Wuji. Saat itu mereka semua sedang berlutut di depan pohon cemara yang telah dihias 
 oleh banyak orang di sekitar perkemahan itu selama berhari-hari. Ratusan lilin dinyalakan mengelilinginya, dan banyak warga yang beragama Kristen 
-ikut berdoa bersama mereka di tengah malam itu. Pastor Thomas tidak punya tempat yang bisa dianggap gedung gereja di situ, dan ia berkeliling untuk 
+ikut berdoa bersama mereka di tengah malam itu. Pastor Tommaso tidak punya tempat yang bisa dianggap gedung gereja di situ, dan ia berkeliling untuk 
 melayani para pengikut Kristen yang telah berkumpul di beberapa titik sambil berkotbah menjelang Natal. Setelah memberkati salah seorang anak mereka 
 yang sedang digendong oleh Zhang Wuji dengan memberikan tanda salib di dahinya, ia berkata, "Gongzi tidak jauh dari Allah. Semoga Allah Yang Mahakuasa 
 menunjukkan jalan kepada Gongzi untuk mengakhiri semua pertikaian di Zhongyuan ini."

@@ -122,6 +122,39 @@ Females
 11. Enkhjargal (Peaceful Happiness).
 12. Erdene (jewel).
 
+
+Persia
+
+Females
+
+1. Ariana atau Aryana, yang berarti pure atau noble.
+2. Leila, Daughter of the night. 
+3. Mahnaz, Glory or beauty of the moon.
+4. Maryam, dengan mudah kita bisa mengasumsikan ini diambil dari nama Maria.
+5. Delnaz, yang berarti beloved atau sweetheart.
+6. Shiva, 'charming' and 'eloquent'
+7. Shirin, nama tradisional Persia yang berarti sweet.
+8. Darya adalah nama perempuan untuk Darius, artinya "one who is good".
+9. Anahita was an ancient Persian deity of water, fertility, and healing. She is often associated with the Greek goddesses Artemis, Aphrodite, and Athena 
+10. Farahnoush. This beautiful name has a Persian and Arabic origin, and it means “happy or joyous”. It is made up of the Arabic word “Farah”, meaning happiness.
+
+Males
+
+1. Arash. From the Persian mythology, the name means “bright arrow.” Arash was a legendary archer from Iran.
+2. Darius
+3. Kourosh. First King of Iran; The Sun; Historically translated into English and Latin as "Cyrus", First King of Iran 
+4. Hassan, Handsome or good.
+5. Aahil. The name in the Persian language means someone who is considered God's gift.
+6. Kamran.
+7. Shayan.
+8. Soroush
+9. Aria.
+10. Alborz.
+11. Rameen, Joyful.
+12. Abtin, melambangkan heroisme dan kekuatan.
+
+
+
 ## Lokasi
 
 - Lembah Kupu-kupu terletak di Huaibei, masih termasuk wilayah utara, tetapi sedikit di selatan Kaifeng.
