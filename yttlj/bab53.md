@@ -147,7 +147,7 @@ untuk membantu Situ Peng dan Wu Shiniang. Sebagian besar anak-anak di Xiangyang 
 Yu Daiyan berkata, "Itu memang benar, dan aku sudah melihat sendiri kecerdasan Shangguan Wu dan adiknya. Dengan pengalaman Ah Zhu aku yakin mereka bertiga 
 sudah cukup untuk menangani semua anak yang baru bergabung di Zhongxing."
 
-Bei Jinyi menambahkan, "Selain itu, Xiangyang sendiri memang punya lebih banya pekerjaan dibandingkan tempat baru itu, karena Xiangyang adalah pusat 
+Bei Jinyi menambahkan, "Selain itu, Xiangyang sendiri memang punya lebih banyak pekerjaan dibandingkan tempat baru itu, karena Xiangyang adalah pusat 
 kegiatan kita."
 
 Ding Minjun menyela, "Aku dan murid-murid Emei yang lain bisa ikut ke Zhongxing untuk membantu kalian di sana."
@@ -670,17 +670,196 @@ ia tak pernah menyukai keduanya, apalagi kemudian perbuatan itu masih terulang k
 
 Ia berkata dengan nada mengejek, "He Xiansheng, kau takut melihat mereka semua ya?"
 
-He Biweng tidak menjawab, karena Lu Zhangke mendahuluinya. Ia mendengus sambil berkata, "Huh! Wangye hanya menanyakan kalian mau apa di sini, siapa yang 
+He Biweng tidak menjawab, karena Lu Zhangke mendahuluinya. Lu Zhangke mendengus sambil berkata, "Huh! Wangye hanya menanyakan kalian mau apa di sini, siapa yang 
 bicara tentang takut atau tidak?"
 
 "Hei, Lu Xiansheng, bukankah Wangye adalah ayah mertua Gongzi?" kata Xiao Zhao. "Masa Wangye menyuruh kalian menanyakan masalah remeh seperti ini? 
 Kalian tentu tidak tahu bahwa kami sudah bertemu dengan Xiao Wangye di Kaifeng sebelum ini. Wangye tahu kami mau pergi ke mana."
 
+Kedua orang itu saling pandang, tetapi tidak menanggapi kata-kata Xiao Zhao. Mei Jian dan Lihua belum pernah bertemu dengan Xuanming Er Lao sebelumnya, 
+tetapi para pendekar dari Kongtong Pai tentu saja sudah mengenal mereka. Saat itu Ah Da yang sedang berkumpul bersama mereka mendekat sanbil berkata, 
+"Gongzi, sekarang ini Xuanming Er Lao tidak lagi bekerja untuk Wangye, mereka beralih ke kubu Li Siqi."
+
+Mendengar hal itu, Mei Jian segera berkata, "Katakan kepada Wangye, Huang Shang memerintahkan kami untuk membawa mereka semua sampai ke Zhongxing. 
+Jadi kami hanya sekedar lewat di sini, setelah keluar dari Xianyang, kami tidak akan kembali. Kuharap Wangye bisa bekerja sama."
+
+Baik Lu Zhangke maupun He Biweng sebelumnya tidak pernah bertemu dengan Mei Jian, dan dandanan Mei Jian saat itu sama sekali tidak menunjukkan bahwa 
+dirinya adalah salah satu selir Kaisar Toghon Temur. He Biweng segera bertanya dengan nada merendahkan, "Kau siapa?"
+
+Zong Weixia sejak tadi menahan diri, tetapi ia sudah siap mengatakan sesuatu yang bernada tajam, ketika Mei Jian mengarahkan pedangnya ke arah He Biweng, 
+dengan gagang pedang menghadap ke depan, tanpa mengatakan apa-apa. Begitu melihat karakter 'Mei' yang terukir disitu, dan melihat ukuran tubuh 
+Mei Jian, He Biweng seketika teringat akan cerita tentang salah seorang selir Kaisar Toghon Temur, yang adalah seorang pendekar pedang yang bermarga Mei. 
+Ia segera membungkuk hormat sambil berkata, "Niangniang, kalau begitu ini hanya salah paham. Kami mohon maaf karena mengganggu perjalanan Niangniang."
+
+Tanpa banyak bicara lagi, ia segera menarik lengan Lu Zhangke yang masih terheran-heran, sambil berkata, "Shixiong, kita segera kembali untuk melapor 
+kepada Wangye."
+
+Lihua dan Xiao Zhao tertawa terbahak-bahak ketika bayangan Xuanming Er Lao menghilang di kejauhan bersama kuda mereka. Tetapi Mei Jian berkata dengan 
+serius, "Lihua, lain kali jika kau bertemu dengan kedua orang itu, sebisa mungkin hindari perkelahian. Kalaupun sampai berkelahi, hindari mengadu 
+tenaga dalam dengan mereka, atau kau akan terluka parah."
+
+Sejak semula Mei Jian berusaha mengukur ilmu silat Xuanming Er Lao, meskipun ia tidak ingin berkelahi. Ia segera melihat bahwa qinggong kedua orang itu 
+lemah, tetapi tenaga dalam mereka sangat kuat. Tongkat yang dipegang Lu Zhangke dan He Biweng sangat berat, tetapi mereka memegangnya seperti sedang 
+memegang potongan bambu pendek. 
+
+"He Biweng pernah memukul Xianggong di masa kecil, sampai terluka sangat parah," kata Xiao Zhao.
+
+Zong Weixia dan kedua saudara seperguruannya agak heran mendengar perubahan panggilan Xiao Zhao kepada Zhang Wuji, dari 'Gongzi' menjadi 'Xianggong'. 
+Meskipun kedua panggilan itu bisa digunakan untuk memanggil seorang majikan muda pria, tetapi sebutan 'Xianggong' lebih umum digunakan oleh para istri 
+untuk memanggil suami mereka. Tetapi mereka tidak ingin mengomentari hal ini.
+
+Saat itu Shangguan Wu dan adik perempuannya muncul di situ bersama Ah Xiu sambil berkata, "Jiaozhu, makan malam kita sudah siap, dan tadi kami bertemu 
+dengan Wu Zhanglao yang datang dari Chang'an, dia ingin menemui Jiaozhu."
+
+"Ah, kebetulan dia datang!" kata Zhang Wuji dengan gembira. "Aku ingin bicara sebentar."
+
+Ia segera menyingkir dari situ bersama Xiao Zhao untuk menemui Wu Zhanglao. Setelah mereka pergi, Lihua segera berkata kepada Ah Zhu, "Di Yunnan 
+kami mengunjungi tempat-tempat yang pernah diceritakan ayahku tentang Duan Yu. Dia punya adik perempuan yang juga bernama Ah Zhu. Bayangkan, sebelumnya 
+dia sudah berjanji untuk menikah dengan ketua Kai Pang yang hebat saat itu — Xiao Feng — sayangnya perkawinan itu gagal!"
+
+Ah Zhu sebelumnya mendengar cerita Lihua mengenai hubungan antara keluarga Kerajaan Dali, Kai Pang dan juga Xi Xia, yang akan menjadi tempat tinggal mereka 
+selanjutnya. Bukan seperti Ah Xiu, yang lebih tertarik membaca buku-buku sejarah, Lihua lebih banyak mendengar cerita Toghon Temur tentang pendekar-pendekar 
+di jaman kuno, yang tentu saja sengaja dilebih-lebihkan untuk menarik minat para pendengarnya. Salah satu kisah yang paling sering diceritakan ayahnya adalah 
+tentang Duan Yu, Xuzhu dan Qiao Feng, dan hubungan mereka dengan Kerajaan Dali, Xi Xia dan Kai Pang. Begitu mendengar bahwa ayahnya akan memberinya sebuah 
+wilayah di Zhongxing, yang sudah diketahui sebagai wilayah Kerajaan Xi Xia di era sebelumnya, Lihua segera teringat akan cerita itu, dan menceritakannya 
+dengan penuh semangat kepada teman-temannya yang kurang lebih sebaya, di antaranya adalah Shangguan Wu dan adiknya, dan kemudian Ah Zhu, yang dianggapnya 
+paling istimewa, karena namanya sama dengan salah satu tokoh wanita di masa itu.
+
+Mendengar ceritanya Ah Zhu tertawa sambil berkata, "Ah Zhu mana punya hubungan dengan Raja Dali?"
+
+"Tapi sekarang ini kita juga punya hubungan dengan Kai Pang," kata Shangguan Yinuo sambil tertawa cekikikan. "Siapa tahu ada seseorang yang bernama Qiao Feng di sana?"
+
+"Yang ada hanya teman kita, Qiao Jinglan di Kaifeng, dan dia juga seorang anak perempuan," kata Shangguan Wu. 
+
+"Hm, sayangnya aku belum pernah mendengar ada pendekar dari jaman kuno yang bernama Shangguan," kata Lihua lagi. "Yang ada hanya Shangguan Yi dan cucu 
+perempuannya — Shangguan Wan'er."
+
+Shangguan Wu tertawa terbahak-bahak, lalu berkata, "Keluarga kami pasti tidak ada kaitannya dengan keluarga Shangguan Yi. Khatun terlalu sering berkhayal. 
+Kami hanya keluarga miskin dari Gansu, yang akhirnya pindah ke Henan untuk mengadu nasib di sana."
+
+Mereka menikmati makan malam bersama sambil terus bercanda dan bercerita tentang Kerajaan Xi Xia, yang didengar Lihua dari ayahnya. Kecuali sedikit 
+gangguan dari Lu Zhangke dan He Biweng tadi, sepanjang malam itu tidak ada lagi yang mendatangi mereka lagi. Mereka meninggalkan tempat itu pagi-pagi sekali, 
+dan sampai di Xianyang menjelang tengah malam hari berikutnya.
+
+Dari sebelah luar perbatasan kota Xianyang, Zhang Wuji memutuskan untuk menginap semalam di situ. Ia juga mulai memisahkan semua orang yang akan berangkat 
+ke Ganzhou dari sini dengan orang-orang yang akan mengikutinya sampai ke Zhongxing.
+
+Keesokan harinya Shangguan Wu membangunkan Zhang Wuji, yang tidur di tenda kecil yang sama dengan para pendekar Kongtong Pai, dan mengobrol sampai jauh malam. 
+"Jiaozhu, ada beberapa orang berpakaian aneh ingin menemui Jiaozhu, mereka menunggu di luar tenda," kata Shangguan Wu. 
+
+Zhang Wuji buru-buru bangkit, dan bergegas menemui orang-orang yang dimaksud. Sebelumnya ia telah bertemu dengan orang-orang yang diutus oleh Nona Yang, 
+dan dandanan mereka memang sangat aneh. 
+
+Pemimpin dari lima orang yang dimaksud itu ternyata seorang pria sekitar lima puluh lima tahunan, yang bertubuh pendek dan gemuk, tetapi jenggotnya 
+yang lebat itu sangat panjang. Ia mengenakan jubah hijau gelap, tetapi mengenakan topi kecil berwarna merah menyala yang terlihat lucu baginya. 
+Sebuah gunting raksasa yang dipegangnya di tangan kanan melengkapi segala keanehannya. Tampaknya ia sedang gembira, dan menyapa Zhang Wuji dengan muka 
+berseri-seri, "Zhang Jiaozhu, Xiaojie mengutus kami untuk menemani perjalananmu ke Ganzhou. Apakah kalian masih ingin sarapan sebelum berangkat? 
+Xiaojie sudah menyiapkan sarapan bagi kalian semua di luar kota ini, tak terlalu jauh dari sini."
+
+"Qianbei, kita mengambil jalan ke mana dari kota ini?" tanya Zhang Wuji sambil menahan senyum.
+
+[^mao]: Mao (猫) berarti 'kucing'.
+[^hou]: Hou (猴) berarti 'monyet'.
+[^zhu]: Zhu (猪) berarti 'babi'.
+
+Pria itu menggerak-gerakkan tangannya sambil tertawa dan berkata, Wah, wah, wah, kau jangan memanggilmu Qianbei. Xiaojie hanya menyuruhku menggertak 
+beberapa orang dan mengirimkan harta mereka ke rumahmu. Julukan Qianbei itu untuk orang-orang terhormat. Kau bisa memanggilku Xue Hou[^hou]." Ia lalu menoleh 
+kepada dua orang pria bertubuh besar yang mengikutinya bersama dua orang gadis yang tak lebih dari lima belas tahun, sambil berkata untuk memperkenalkan 
+mereka, "Ini anak-anakku, yang laki-laki adalah Xue Mao[^mao] dan Xue Zhu[^zhu]. Yang perempuan memang agak kecil, Xue Li dan Xue Hua."
+
+Lihua yang baru bergabung di situ bersama dengan Xiao Zhao dan kedua temannya tertawa sambil berkata, "Qianbei, nama anak-anakmu yang laki-laki itu 
+agak lucu. Yang satu tidak mirip seekor kucing, dan yang lain seperti nama anak perempuan."
+
+Kedua pria dua puluh tahunan yang bertubuh tambun itu menyeringai lebar tanpa mengatakan apa-apa. Xue Hou berkata, "Nona, anakku ini kuberi nama 'Mao' bukan 
+karena dia mirip kucing, tetapi karena pada saat dia lahir, seekor kucing besar masuk ke dalam kamar dan melompat ke pembaringan istriku. Yang satu lagi 
+juga bukan nama anak perempuan. 'Zhu' itu berarti babi, karena sejak lahir dia memang gemuk seperti aku." Ia tertawa gembira setelah puas membanggakan 
+anak-anaknya.
+
+Lihua dan teman-temannya tertawa terbahak-bahak mendengar cara Xue Hou bicara. Tetapi diam-diam Zhang Wuji terkejut setelah mendengar cara Nona Yang 
+memperoleh uang untuk disumbangkan ke pihak mereka. Xue Hou mengatakan semua itu dengan nada seolah-olah sedang menceritakan sebuah pekerjaan terhormat yang 
+patut dibanggakannya di hadapan para penduduk kota. Tetapi ia kemudian teringat akan cerita rakyat yang mengatakan tentang cara Yang Guo menggertak para 
+pejabat yang dianggapnya korup di masa itu. "Kelihatannya Yang Jiejie ini menirukan cara kerja leluhurnya," pikir Zhang Wuji.
+
+Saat ini Xue Hou sedang mengamat-amati deretan panjang perkemahan darurat yang didirikan oleh para pengungsi itu untuk bermalam sambil menggaruk kepalanya, 
+lalu bertanya, "Kalian sungguh ingin membawa orang sebanyak ini pergi ke Ganzhou?"
+
+Zhang Wuji meggelengkan kepalanya. "Tentu saja tidak. Sebagian besar akan mengikutiku ke Zhongxing. Qianbei bisa membawa anak-anak yang masih di bawah 
+lima belas tahun dan semua orang tua pergi ke Ganzhou. Jumlah mereka menurut perkiraanku tak lebih dari sepuluh ribu orang."
+
+[^dayuan]: Xihaigu (西海固) atau Dayuan (大原) adalah nama bagi kota Guyuan di masa itu.
+
+Jumlah itu pun tetap mengejutkan bagi Xue Hou dan keempat anaknya. Tetapi ia berkata, "Baiklah, kalau begitu kita akan tetap bersama-sama sampai ke 
+Pingliang. Setelah itu kami akan terus menuju ke Dingxi, dan kau bisa langsung ke utara sampai ke Dayuan[^dayuan]. Genghis Khan meninggal di Gunung Liupan, setelah 
+berperang dua puluh tahun melawan Xixia. Tapi sebelum berangkat sebaiknya kita sarapan dulu. Xiaojie sedang menyiapkan semuanya, sementara itu biarkan semua 
+orang berkemas."
+
+Dibutuhkan waktu sekitar satu jam untuk mengemasi semua tenda darurat sebelum mereka berangkat ke tempat Nona Yang menyiapkan sarapan bagi mereka semua.
+Tetapi ternyata mereka tidak melihat Nona Yang di tempat itu. 
+
+Zhang Wuji berkata, "Qianbei, sampaikan terima kasih kami kepada Yang Xiaojie atas segala kebaikannya. Kami tidak sepatutnya pergi begitu saja setelah 
+menikmati sarapan pagi yang lezat ini."
+
+"Zhang Jiaozhu, Xiaojie memang menyuruh kami segera berangkat setelah makan," kata Xue Hou sambil tertawa dan mengigit bakpaonya. Ia terus bicara dengan 
+mulut penuh, "Sebetulnya kami juga tidak menyangka kalian akan datang dengan orang sebanyak ini. Seharusnya kami mengajak lebih banyak kawan-kawan, tapi 
+Xiaojie bilang tidak perlu menunggu apa pun, dan kami tidak berani membantah perintahnya."
+
+Zhang Wuji berkata kepada Guan Neng, Tang Wenliang dan Chang Jingzhi yang sedang duduk di sebelah kanannya, di sebuah batu besar, lalu berkata, "Qianbei, kalian 
+bisa langsung kembali ke Kongtong Pai setelah tiba di Pingliang. Kurasa setelah ini kalian bisa mulai memilih anak-anak muda yang akan pergi bersama 
+kalian dalam perjalanan ke situ. Berapa jumlah orang yang bisa kalian bawa?"
+
+"Kami hanya sanggup mendidik tak lebih dari tiga ratus orang," jawab Tang Wenliang. "Tetapi setelah itu bisa saja kalian tambahkan, karena setelah agak 
+lama pastilah anak-anak muda itu lebih mudah diajar. Mereka juga bisa belajar mengurus diri mereka sendiri, dan berkemah di sekitar Kongtong Pai, 
+meskipun kami yang akan mengajarkan kungfu kepada mereka."
+
+"Baiklah, kita lihat keadaan. Dari Zhongxing ke Kongtong Pai juga tidak sejauh ke Ganzhou, jadi kita semua pasti akan terus berhubungan di wilayah 
+barat ini," kata Zhang Wuji. "Kuminta kalian juga harus sering menghubungi Yang Zuoshi di Guangming Ding, dan juga Kunlun Pai."
+
+Guan Neng yang jarang bicara berkata, "Kuharap semua orang bisa bekerja sama kali ini. Aku merasa sebentar lagi kekacauan yang lebih besar akan tiba. 
+
+Kecuali Zong Weixia, para pendekar Kongtong Pai yang lain sebenarnya sedang menanti saat di mana Zhang Wuji sungguh-sungguh mengambil alih tahta 
+dari Dinasti Yuan, dan mengakhiri kekacauan yang sekarang ini sedang dibicarakan oleh Guan Neng. Zong Weixia sudah tahu bagaimana pendirian Zhang Wuji, 
+karena itu ia tidak mengomentari ucapan saudaranya. Pilihan Zhang Wuji saat ini adalah sebuah daerah yang kurang subur, dan rela meninggalkan wilayah 
+yang diberikan kepadanya di Xiangyang, demi ratusan ribu orang pengungsi yang ingin diselamatkannya. Jika yang dipilihnya adalah wilayah subur, maka 
+kemungkinan besar hal itu akan menimbulkan konflik lebih jauh lagi, seperti yang sedang terjadi di Fujian saat ini. Keberanian Zhang Wuji memilih 
+sesuatu yang tidak umum ini sangat dihargainya.
+
+Yen Shao datang mendekati mereka sambil berkata kepada Zhang Wuji, "Zhang jiaozhu, tak lama lagi kita akan berpisah, dan belum tahu kapan bisa bertemu lagi. 
+Aku dan istriku akan pergi ke Ganzhou bersama orang-orang tua lainnya. Semua orang yang punya anak di bawah lima belas tahun akan pergi bersama kami 
+untuk mengurus anak-anak mereka sampai cukup dewasa. Jika Allah menghendaki, maka mereka semua akan siap untuk pergi ke Zhongxing, dan bergabung dengan 
+Jiaozhu membangun wilayah itu, tetapi orang tua mereka akan tetap tinggal di Ganzhou. Anak-anak semakin besar, berarti kami semakin tua."
+
+"Yen Xiansheng, kita masih punya waktu sekitar tujuh hari untuk mengobrol sambil berjalan ke Pingliang," kata Zong Weixia. "Tulang tua ini juga mulai 
+malas jika harus berjalan jauh agak cepat. Kurasa saudara-saudara seperguruanku ini masih akan menjadi teman seperjalanan kalian. Jika ada yang bisa 
+kami bantu, jangan segan-segan mengirim kabar ke Kongtong Pai."
+
+"Aku juga akan menulis surat kepada keluargaku di Ganzhou," kata Zhang Wuji. "Jika Yen Xiansheng tidak keberatan, barangkali kalian bisa sekalian menyampaikannya."
+
+"Oh, Jiaozhu sudah mendapat kabar di mana mereka tinggal?" tanya Yen Shao.
+
+"Memang ada kabar mereka sudah tiba di Ganzhou, dan menemukan tempat menetap di situ," jawab Zhang Wuji. "Aku sendiri belum sempat pergi ke sana, 
+mengingat harus segera membawa semua orang sampai mereka tiba dan menetap di Zhongxing, yang jauh lebih dekat. Seharusnya mereka tinggal tidak jauh 
+dari salah satu gereja di Ganzhou, yaitu tempat ibu kandung Kubilai Khan — Sorghaghtani Beki — dikenang banyak orang di situ. Ibu mertuaku selalu 
+dipanggil Li Furen oleh semua orang."
+
+Yen Shao tertawa senang sambil berkata, "Kalau begitu kami pasti akan menemukan mereka dengan cepat."
+
+Ternyata dengan pengawalan dari Xue Hou dan teman-temannya yang lain, bersama dua orang anaknya, mereka tiba sehari lebih cepat dari perkiraan 
+Zong Weixia. Dua kelompok itu saling berpisah, dan tiga orang pendekar Kongtong Pai mengikuti rombongan yang dipimpin oleh Xue Hou bersama Yen Shao 
+sampai mereka tiba di wilayah mereka sendiri. Hanya Zong Weixia yang mengikuti rombongan besar Zhang Wuji.
+
+Sejak tiba di Pingliang, Xiao Zhao mulai terkenang perjalanan panjang mereka dari Guangming Ding menuju ke Henan bertahun-tahun yang lalu. Tanpa terasa 
+ia sering memeluk lengan Zhang Wuji sambil tersenyum ketika teringat berbagai peristiwa itu. 
+
+![Ilustrasi Bab 53 A](/assets/images/liupanshan-1.jpg "Melewati pegunungan Liupan")
 
 
 
 
 
+Pingliang - Guyuan - Wuzhong
+
+Xianyang - Baoji - Tianshui - Lanzhou - Haidong - Haibei - Zhangye - Jiuquan (35 hari, berjalan 12 sehari).
+Xianyang - Pingliang - Dingxi - Baiyin - Wuwei - Zhangye - Jiuquan (sekitar 31 hari)
 
 
 
