@@ -279,12 +279,418 @@ merasa sangat nyaman dan tetap erawat dengan baik. Saat ini wabah penyakit masih
 Xiangyang tidak terlalu padat, dan kepadatan para pengungsi itu sudah jauh berkurang setelah mereka berkemah dengan jarak renggang di sepanjang jalan menuju 
 ke Kaifeng, karenanya jumlah orang yang tertular wabah dari wilayah lain juga tidak terlalu banyak.
 
+Xiao Zhao segera mengenali seorang pria berjenggot panjang yang mengenakan topi hitam, lalu berbisik ke telinga Zhang Wuji, "Gongzi, orang yang 
+memakai topi hitam itu adalah orang Persia, sangat bisa jadi Muslim atau Kristen. Tapi kelihatannya dia sama seperti aku, dilahirkan di sini dan 
+salah satu orang tuanya bukan orang Persia."
+
+"Dari mana kau tahu?" tanya Zhang Wuji heran.
+
+"Kebanyakan suku Hui akan memakai topi putih, orang Persia topi hitam, dan orang Yahudi memakai topi biru," jawab Xiao Zhao sambil tersenyum. "Tadinya 
+aku sendiri juga tidak memperhatikan hal ini, karena di Persia tidak ada peraturan semacam ini. Tapi di Fujian kami melihat hampir semuanya mengikuti 
+aturan semacam itu."
+
+"Oh, rupanya begitu," kata Zhang Wuji sambil tersenyum samar. Ia merasa Xiao Zhao saat ini sedang memberikan semacam gagasan mengenai apa yang sedang 
+terjadi di Fujian, yang tak dapat dikatakannya di depan banyak orang karena ia tidak memiliki cukup bukti. Dinasti Yuan memang membagi masyarakat menjadi 
+setidaknya empat kelompok berdasarkan etnis, dan golongan kedua adalah 'Semu'. Orang-orang Persia, Arab dan Yahudi sebenarnya termasuk kelompok kedua ini. 
+Kubilai Khan merancang hukum seperti itu adalah karena sebelumya ada seorang Han yang bernama Li Tai memberontak melawannya, sebelum ia sendiri menjadi 
+Kaisar Dinasti Yuan yang pertama, dan juga sebelum ia menjabat Khan Agung Mongolia. Li Tai dan keluarganya adalah orang-orang yang paling dipercayainya, 
+jadi pemberontakan itu sangat melukai perasaan Kubilai Khan. Akibatnya sejak itu ia cenderung mencurigai orang berdasarkan kelompok etnis atau golongan 
+tertentu yang dianggapnya punya potensi untuk berontak. Ini juga berlaku bagi kelompok etnis yang dinilainya berjasa. Pu Shougeng adalah salah satu contoh 
+yang sangat jelas. Karena Pu Shougeng adalah seorang penganut Islam dari aliran Sunni, maka selanjutnya para penganut Islam Sunni mendapat kedudukan tersendiri 
+dalam pemerintahan Kubilai Khan setelah Dinasti Yuan berdiri. Sebaliknya, orang-orang Muslim Persia cenderung menganut aliran Syiah, jadi supaya lebih mudah 
+membedakan kelompok mereka, pasti akan ada peraturan yang mengharuskan mereka berpakaian dengan cara tertentu.
+
+Ketika mereka semakin mendekati Nanyang, di depan salah satu perkemahan mereka bertemu dengan Pastor Gabriele dan Frater Enzo yang sedang bercakap-cakap 
+dengan tiga orang pria, dan salah seorang di antaranya mengenakan topi biru seperti yang diceritakan oleh Xiao Zhao. Zhang Wuji melihat bahwa penampilan 
+orang itu ternyata seperti suku Han biasa, dan sama sekali tidak nampak bahwa ia adalah seorang Yahudi atau berasal dari wilayah barat. Ia sangat heran, 
+dan bertanya, "Xiao Zhao, mengapa orang bertopi biru itu bukan orang Yahudi?"
+
+Xiao Zhao tertawa sambil berkata, "Gongzi, orang itu pastilah Yahudi Kaifeng, atau datang dari wilayah lain di Henan. Leluhurnya sudah sangat lama 
+berada di sini, kemungkinan sejak era Dinasti Song. Selain wajahnya seperti kebanyakan pria lain di Zhongyuan, jangan heran kalau ternyata dia juga tidak 
+menaati ajaran leluhurnya, dan makan daging babi atau daging lainnya yang dilarang oleh agama mereka. Di Fujian kami juga bertemu dengan beberapa orang yang 
+seperti dia, dan mereka menceritakan semuanya. Selain itu, mereka bisa jadi ternyata menganut agama Kristen atau Islam, dan bahkan mungkin ada yang menjadi 
+murid Ming Jiao."
+
+[^yen]: Marga Yen (俺) sudah cukup umum dipakai oleh keluarga Yahudi di Zhongyuan, dan kemudian diganti menjadi Zhao, yang lebih umum. Tetapi beberapa keluarga masih terus mempertahankan marga Yen ini.
+
+Frater Aurelio yang mendengar pembicaraan mereka tertawa. Ia berkata sambil melambaikan tangannya untuk menyapa semua orang itu dari kejauhan, "Jiaozhu, 
+yang dikatakan Xiao Zhao itu benar. Orang itu juga punya nama suku Han — Yen Shao[*yen]." Ia berbisik, "Mereka sedang mendekat."
+
+Kedua pria lain yang sebelumnya ikut bercakap-cakap dengan dua biarawan Kristen itu segera memisahkan diri setelah mereka berkenalan dengan Zhang Wuji 
+dan Xiao Zhao. Mereka ternyata adalah umat dari Pastor Tommaso, yang tentunya sekarang dilayani oleh Pastor Gabriele. Pastor itu berkata, "Zhang Jiaozhu, 
+Yen Qianbei ini mengatakan bahwa mereka telah mendapatkan salinan dari Torah mereka yang rusak akibat banjir besar lebih dari dua puluh tahun 
+yang lalu. Kita semua sangat gembira mendengarnya."
+
+"Yen Qianbei, aku mengucapkan selamat," kata Zhang Wuji sambil menyodorkan tangannya untuk berjabat tangan, mengikuti cara yang diajarkan oleh Xiao Zhao. 
+"Kita akan mengusahakan sampai kalian juga bisa mendirikan sinagoga di tempat yang baru."
+
+"Untuk saat ini, sepertinya hal itu terlalu mewah," kata Yen Shao sambil tertawa. "Keluarga Yahudi di dalam rombongan kita bisa dihitung dengan jari. 
+Ketika masih tinggal di Kaifeng, kami memang sering berkumpul, karena jumlahnya cukup banyak. Tetapi keluargaku sendiri tinggal di wilayah lain, yang 
+sayangnya terkena banjir. Setelah mengikuti Frater Andre, kami tidak sempat mengunjungi Henan atau Fujian lagi. Tapi keluarga kami memang sudah memutuskan 
+untuk terus bersama dengan saudara-saudara yang senasib seperjuangan. Allah pasti akan membuka jalan di tempat yang baru bagi kita semua."
+
+Ucapan itu sangat melegakan bagi telinga Zhang Wuji. Ia segera mengatakan 'Amin', seperti yang diajarkan oleh ibu mertuanya. Ia merasa bahwa ibu mertuanya 
+pasti akan menyambut kedatangan keluarga Yen Shao dengan sangat gembira. Yen Shao sendiri tampaknya baru berusia sekitar empat puluh tahunan, dan mebgatakan 
+bahwa dirinya memiliki dua orang anak perempuan dan tiga orang anak laki-laki. "Dua orang anak laki-lakiku sudah bergabung dengan Zhang Jiaozhu, sekarang 
+mereka tetap tinggal di Xiangyang. Nama mereka Yen Hao dan Yen Guang, sebenarnya mereka sudah mulai belajar dari Zhou Xiangzhang sejak kami tinggal di Hanyang, 
+tapi tak lama kemudian Jiaozhu memutuskan supaya kami mengungsi dari situ, jadi mereka kutinggalkan di situ. Aku tidak tinggal di sekitar Xiangyang, karena di situ 
+sudah agak ramai. Kita sebisanya harus mencegah penularan wabah."
+
+"Benar, benar," kata Zhang Wuji. "Yen Qianbei sangat bijaksana."
+
+Xiao Zhao bertanya, "Pastor Gabriele, apakah kalian mengenal dua orang frater — Adoardo dan Luigi — kami mendapat kabar mengenai meeka dari keluarga kami 
+yang saat ini ada di Ganzhou?"
+
+"Ahm itu pasti saudara-saudara kami yang baru tiba dari Xinjiang," kata Pastor Gabriele dengan gembira. "Seharusnya mereka sepuluh orang, mengapa hanya 
+ada dua yang mengirim kabar?"
+
+"Ibu mertuaku yang mengirim kabar," kata Zhang Wuji. "Yang disebutkan memang hanya dua orang itu. Menurutnya yang lain mengambil jalan lain ke arah 
+Kaifeng, dan mereka berdua kehilangan jejak, jadi mereka terpaksa tinggal di Ganzhou. Tapi mereka sangat membantu keluarga kami di situ. Jika Pastor 
+bermaksud mengirim mereka ke Kaifeng, aku akan mengirim kabar kepada ibuku secepatnya."
+
+"Oh, tidak, tidak," kata Pastor Gabriele. "Jika memang bertemu dengan keluarga kalian di situ, maka aku sangat lega. Biarkan saja mereka tetap di Ganzhou, 
+aku akan memberitahu komunitas kami di Xinjiang supaya mereka tidak merisaukan Luigi dan Edoardo. Semoga yang lain juga selamat sampai di kaifeng, karena 
+mereka semua dikirim untuk membantu kita."
+
+"Rupanya begitu," kata Xiao Zhao. "Setahu kami, setelah kedatangan Marco Polo di Zhongyuan ini, kelompok kalian cenderung dianggap tidak berbahaya bagi 
+Dinasti Yuan, jadi Pastor boleh tenang. Tidak ada yang akan mempersulit mereka di jalan, kecuali jika mereka bertemu dengan kelompok-kelompok bandit atau 
+orang-orang Jianghu di Zhangyuan yang mencurigai orang-orang asing dari barat."
+
+"Itulah yang kami kuatirkan," kata Frater Enzo. "Kami sendiri sempat beberapa kali dihadang oleh anggota Kai Pang beberapa tahun yang lalu, ketika Pastor 
+Tommaso menyuruh kami pergi ke Fujian. Untungnya dua orang pendeta Tao menolong kami. Kungfu mereka cukup tinggi, dan para anggota Kai Pang 
+itu bukan tandingan mereka."
+
+Zhang Wuji tidak bisa memperkirakan siapa sebenarnya dua orang pendeta Tao itu, tetapi karena mereka menganggap para anggota Kai Pang itu sebagai lawan, 
+maka ia menarik kesimpulan bahwa para anggota Kai Pang itu pastilah kelompok Chen Youliang, yang masih sering berpakaiaan seperti para anggota Kai Pang. 
+Ia berkata, "Jika sampai kita tiba di Chang'an mereka masih juga belum ditemukan, aku akan menyuruh anggota Kai Pang yang berasal dari kelompok kami untuk 
+mencari mereka. Tolong tuliskan nama-nama mereka — maksudku, yang bisa dipahami dengan cukup baik oleh orang-orang Han — berikut ciri-ciri mereka, supaya 
+kami punya petunjuk mengenai mereka semua."
+
+Sementara menunggu keluarga para pengungsi di sekitar situ selesai berkemas, Pastor Gabriele dan kedua frater yang saat itu bersamanya menuliskan nama 
+dan ciri-ciri para frater yang dikirim oleh ordo mereka ke Kaifeng dalam bahasa Han. Nama-nama asing itu berusaha diterjemahkan begitu saja menurut bunyi 
+yang terdengar cukup mewakili. Xiao Zhao dan Zhang Wuji segera menyalin catatan itu sebanyak mungkin dengan dibantu oleh Yen Shao, lalu menyimpan baik-baik 
+semua catatan itu. Mereka menyerahkan salinan catatan itu kepada setiap anggota Kai Pang yang mereka temui di sepanjang jalan, tanpa menunggu sampai 
+mereka tiba di Kaifeng, apalagi Xianyang, karena perjalanan mereka sangat lambat, dan Zhang Wuji mencemaskan kedelapan orang frater yang diutus dari 
+Xinjiang itu di sepanjang jalan. Zhang Wuji akhirnya mengutus Lihua untuk mengirimkan suratnya, beserta salinan daftar nama itu, ke Kaifeng, supaya 
+Yin Li dan Wang Baobao bisa ikut membantu mencari jejak kedelapan frater yang datang dari arah Gansu.
+
+Mereka membutuhkan waktu lebih dari seminggu untuk mencapai Kaifeng. Mei Jian dan ketiga pendekar Kongtong Pai telah menjadi akrab dengan Yen Shao dan 
+para biarawan Kristen dari Venesia yang saat itu telah berkumpul bersama mereka. Frater Andre ternyata berada di antara para pengungsi di dekat pintu gerbang selatan Kaifeng. 
+Dari mereka berenam, Frater Dante adalah yang paling jangkung. Menurut perkiraan Lihua, tingginya hampir melampaui dua meter, meskipun tubuhnya agak kurus. Baik Lihua maupun 
+Mei Jian baru saat itu bertemu dengan seseorang yang tingginya melebihi satu kepala di atas mereka. Shangguan Wu yang juga bertubuh jangkung hanya satu atau dua sentimeter 
+lebih tinggi dari Lihua.Mereka berdua saling membandingkan tinggi masing-masing dengan Frater Dante sambil tertawa-tawa. Frater Andre yang paling tua dibandingkan dengan 
+semua biarawan Kristen lain segera terlibat pembicaraan yang seru dengan Zhang Wuji tentang pengobatan. 
+
+Mereka beristirahat selama tiga hari di luar tembok barat kota Kaifeng, dan mendirikan kemah di situ. Sementara itu semua orang yang sakit ketika berangkat 
+dari Xiangyang telah sembuh. Zhang Wuji melihat bahwa perkemahan di bagian barat tembok kota itu sekarang agak renggang. Kemungkinan karena Yin Li telah 
+memindahkan mereka ke arah utara, yang dianggapnya agak lebih aman. Bibi Xie dan teman-teman Ki Seung Nyang lainnya mengirimkan banyak bahan-bahan makanan 
+untuk para pengungsi itu.
+
+Zhang Wuji mengambil kesempatan itu untuk menemui Yin Li dan Wang Baobao bersama kelima biarawan Kristen yang datang bersama mereka, supaya mereka bisa menceritakan 
+sendiri mengenai ciri-ciri kedelapan rekan mereka yang sampai saat itu belum ditemukan jejaknya. Setelah itu kelima biarawan itu kembali ke perkemahan, 
+dan Wang Baobao menyuruh orang untuk memanggil Mei Jian dan Lihua ke ruangannya. Ia berkata setelah kedua ibu dan anak itu tiba, "Bibi Mei, ini adalah 
+surat dari Bibi Qi untuk kalian. Kami juga tidak tahu apa isinya." Ia menyerahkan sebuah kantong kulit berisi surat kepada Mei Jian. Lalu ia beralih kepada 
+Zhang Wuji sambil berkata, "Karena kalian mengirim Ah Da datang, maka aku sekaligus juga menitipkan surat Bibi Qi untuk Zhou Zhiruo dan Minmin kepadanya. 
+Hanya Ah Da dan Ah Er yang akan pergi bersama kalian. Ah San sudah berangkat sendirian ke Ganzhou untuk mengantarkan surat itu."
+
+"Jadi kalian sempat bertemu dengan Bibi Qi?" tanya Zhang Wuji.
+
+Yin Li menggelengkan kepalanya dengan sedih, lalu berkata, "Tidak. Surat itu dititipkan kepada Park Bul-hwa, yang menerima kiriman kami di Tianjin. 
+Huang Shang sendiri yang melarang kami datang untuk selanjutnya, sampai ada pemberitahuan dari Huang Shang sendiri nanti. Park Bul-hwa sama sekali tidak 
+mengatakan apa alasannya. Jadi aku juga sama sekali tidak bisa menemui Muhou, dan aku sangat cemas. Liu Yifang juga tidak lagi dikirimkan ke sini."
+
+Mei Jian dan Lihua sudah membaca surat itu dengan teliti sampai berkali-kali. Isinya ditulis dalam bahasa Mongolia, dan mereka bisa memastikan bahwa 
+itu memang adalah tulisan tangan Ki Seung Nyang. Surat yang sedang dipegang oleh Mei Jian itu adalah surat yang utama, sedangkan dua lembar lainnya 
+ditulis dalam bahasa Han. Mei Jian menyodorkan surat yang berbahasa Mongolia itu kepada Wang Baobao smabil berkata sementara Wang Baobao sedang 
+membacanya dengan muka serius, "Setidaknya Qi Shimei berhasil mengirimkan surat ini, dan juga surat kepada Zhou Zhiruo itu. Ini jelas sekali ditandatangani 
+oleh Hang Shang sendiri, dan juga diberi stempel resmi kekaisaran. Isinya adalah surat pengangkatan Lihua sebagai seorang Khatun, untuk menduduki wilayah 
+yang tadinya adalah milik Kerajaan Xi Xia. Surat itu juga menunjuk aku sendiri sebagai Wali untuk Lihua di situ. Ini memang bukan titah resmi yang seharusnya 
+ditulis di atas lembaran khusus, tetapi kita tetap bisa memakainya sebagai perintah langsung dari Huang Shang. Para pejabat yang saat ini berkuasa di 
+tempat itu pasti akan tunduk. Dua surat pribadi dari Qi Shimei ini juga mewakili pemikiran Huang Shang sendiri, meskipun yang menulisnya adalah Qi Shimei. 
+Isinya adalah perintah secara terperinci mengenai apa yang harus kita lakukan di situ untuk membuat semua pejabat dan militer yang ditempatkan di situ 
+mematuhi kita. Langkah pertama, setelah kita berhasil membuat mereka mematuhi Lihua, adalah supaya Lihua mengangkat Zhang Wuji sebagai Jendral yang 
+berkuasa sebagai pemimpin militer tertinggi di seluruh wilayah itu. Sebagian kecil wilayah yang tadinya adalah wilayah Xi Xia sekarang dikuasai oleh 
+Li Siqi, dan dia harus juga mematuhi perintah ini. Nah, berikutnya, supaya perintah Lihua kepada siapa pun yang ada di situ menjadi sah, kita membutuhkan 
+stempel resmi yang melambangkan kekuasaannya. Seharusnya Park Bul-hwa menitipkannya kepadamu."
+
+Wang Baobao segera mengambil sebuah meti kayu kecil dari mejanya, lalu membukanya supaya mereka bisa melihat isinya. Ia berkata, "Tadinya kami tidak tahu 
+benda ini harus diserahkan kepada siapa, karena Park Bul-hwa tidak mengatakannya. Sekarang juga aku serahkan benda ini kepada Badamlyanhua Khatun!"
+Ia menyerahkan kotak itu kepada Lihua dengan sikap hormat dan serius.
+
+Lihua tertawa cekikikan sambil menerimanya, lalu berkata, "Wang Gege, kau tidak usah bersikap kaku begini kepada keluarga sendiri."
+
+Mei Jian menegurnya dengan nada tajam, "Mulai sekarang kau harus belajar untuk bersikap sebagai seorang atasan yang benar! Benda itu menunjukkan 
+jabatanmu secara resmi kepada semua orang lain, dan kau menerimanya dari Kaisar negeri ini, meskipun Huang Shang adalah ayahmu sendiri. Kau harus bisa 
+membedakan mana yang bisa dijadikan bahan bercanda dan mana yang masalah serius! Jika kau terus seperti ini, maka semua pejabat di Xi Xia itu juga tidak 
+akan mematuhi perintahmu, dan itu akan berbahaya bagi kita semua."
+
+Mendengar apa yang dikatakan Mei Jian, muka Lihua menjadi serius. Ia baru menyadari bahwa semua ini bukan sekedar lelucon Ki Seung Nyang, dan ia mulai 
+takut, karena tidak tahu pasti apa yang harus dilakukannya di Zhongxing.
+
+Setelah hening beberapa saat, Wang Baobao berkata kepada Zhang Wuji, masih dengan sikap serius, "Wuji, sekarang aku akan mengatakan pesan dari Bibi Qi 
+yang disampaikan secara lisan melalui Park Buk-hwa kepadaku, untuk diteruskan kepadamu. Aku harus mendengar dan mengulanginya tiga kali di hadapan Park Bul-hwa 
+sebelum dia yakin bahwa aku akan menyampaikannya setepat-tepatnya. Bahkan Ah Li tidak ikut mendengar apa yang dikatakan oleh Park Bul-hwa ini, dan aku juga 
+belum pernah mengatakannya kepada orang lain."
+
+"Baik, kau bisa mengatakannya sekarang, aku pasti akan mematuhinya," kata Zhang Wuji.
+
+Wang Baobao memandang ke arah Xiao Zhao yang sedang berdiri di sisi tempat duduk Zhang Wuji dengan pandangan ragu. Melihat hal itu, Zhang Wuji segera berkata, 
+"Xiao Zhao, aku terpaksa menyuruhmu menunggu di luar."
+
+Xiao Zhao mengangguk dengan penuh pengertian, lalu berbalik dengan maksud meninggalkan ruangan itu. Tetapi Wang Baobao ternyata mencegahnya sambil 
+berkata, "Tidak perlu, karena kau juga bisa ikut mendengarnya. Tidak ada pesan khusus supaya pesan ini harus didengar oleh Zhang Wuji sendiri."
+
+Ia menegakkan sikap duduknya sambil berkata, "Huanghou mengatakan, 'Apa yang harus terjadi tidak boleh ditunda. Zhang Wuji harus segera menikah dengan Xiao Zhao. 
+Tidak perlu mengadakan pesta, hanya perlu disaksikan keluarga sendiri'. Hanya itu."
+
+Zhang Wuji melirik Xiao Zhao dengan canggung. Ia tidak mempercayai pendengarannya sendiri, lalu bertanya, "Ini sungguh-sungguh pesan dari Bibi Qi?"
+
+Wang Baobao berkata dengan serius, "Seperti kataku tadi, pesan itu harus kudengarkan dan kuulangi sebanyak tiga kali di depan Park Bul-hwa, karena aku 
+sendiri pun heran mendengarnya. Memang hanya itu yang dikatakannya."
+
+Zhang Wuji melihat Xiao Zhao sedang menundukkan kepalanya dengan muka memerah, dan tampaknya tidak tahu apa yang harus dikatakannya. Ketika melihat 
+keraguannya, Xiao Zhao lalu berkata, "Gongzi, mungkin ini sebuah kekeliruan. Xiao Zhao hanya seorang pelayan..."
+
+Yin Li segera berkata sambil tertawa, "Kalian tidak usah berpura-pura lagi. Sebenarnya kami semua bisa melihatnya ketika kita sedang berada di Pulau Ular. 
+Orang jelek ini hanya mencintaimu seorang, tapi setelah itu kau menghilang, dan aku tak tahu apa yang terjadi."
+
+Mei Jian berkata, "Wuji, jangan membuang waktu lagi. Sekarang ini yang bisa disebut keluarga di sini hanya kita yang ada di ruangan ini. Bagaimana kalau 
+kita melaksanakannya sekarang juga dengan cara suku Han? Wang Baobao akan mewakili ayahmu, dan aku akan mewakili Shijie. Yang menjadi saksi perkawinan kalian 
+memang hanya Ah Li dan Lihua, tapi itu sudah cukup untuk membuatnya menjadi sungguh-sungguh resmi."
+
+"Ada seorang lagi," kata Wang Baobao. "Adikku, Minlie sedang berada di sini. Aku akan memanggilnya sekarang juga."
+
+Tanpa menunggu jawaban Zhang Wuji ia segera keluar, lalu kembali lagi bersama seorang gadis yang kurang lebih seusia Zhao Min, tetapi tampak jauh 
+lebih lembut dan mengenakan pakaian khas suku Naiman.
+
+Malam itu juga mereka meresmikan pernikahan Zhang Wuji dan Xiao Zhao dengan adat suku Han, yang sangat sederhana, bahkan tidak ada yang mengenakan 
+pakaian khusus sebagai pengantin. Lihua, Wang Minlie dan Yin Li menyaksikan peristiwa itu dengan senang. Bagi mereka pernikahan seperti ini 
+lebih menarik ketimbang pesta pernikahan mewah yang dihadiri oleh seluruh penduduk kota.
+
+Setelah upacara sederhana itu selesai, Zhang Wuji merasa telapak tangan Xiao Zhao yang sedang digenggamnya sangat dingin. Ia berkata, "Tanganmu 
+dingin. Ini memang sudah larut malam, mungkin kau harus memakai mantel lebih tebal."
+
+Tetapi saat itu mereka sedang dalam pertengahan musim semi, dan udara saat itu cukup hangat. Lihua tertawa sambil berkata, "Wuji Gege, kau sampai sekarang 
+belum juga memahami perasaan wanita."
+
+[^niu]: Niu (牛) dalam nama samaran Zeng Aniu yang selalu dipakai oleh Zhang Wuji itu secara literal berarti 'kerbau' atau 'sapi', yang biasa digunakan untuk mengejek orang bodoh.
+
+"Dia memang begitu," kata Yin Li. "Karena itu dia menamakan dirinya Zeng Aniu[^niu]."
+
+Mei Jian bangkit dari kursinya dan mencium kedua pipi Xiao Zhao sambil berkata, "Malam ini aku sangat senang karena bisa mewakili Shijie untuk menikahkan 
+kalian. Dan sekaligus mewakili Yin Shijie. Aku tidak punya tanda mata yang cukup istimewa untuk kalian, kecuali ini." Ia mengeluarkan sebuah buku tebal 
+dari dalam buntalan berisi pakaian yang selalu dibawanya, lalu memberikannya kepada Xiao Zhao, dan melanjutkan, "Ini adalah catatan pribadiku mengenai apa 
+yang terjadi di istana, seperti yang kulihat dengan mataku sendiri sejak kami bertiga datang bersama Huang Shang ke situ. Saat itu Huang Shang sendiri 
+tidak lebih dari anak kecil yang baru berusia tiga belas tahun. Satu-satunya cara untuk menyembunyikan identitas kami dari semua orang adalah menyuruh kami 
+menyamar menjadi pelayan istana. Mungkin bagi orang lain tulisanku ini tidak ada artinya, tapi aku sungguh berharap kau bisa belajar banyak dari pengalaman 
+kami selama ini."
+
+Xiao Zhao sangat terkejut. Ia membungkuk dengan penuh hormat sambil berkata, "Mei Furen, baik Xiao Zhao maupun Gongzi tidak berani membaca catatan 
+pribadi Furen."
+
+Mei Jian mendecakkan lidahnya dengan tidak sabar, lalu berkata, "Xiao Zhao, sampai sekarang kau memanggil suamimu dengan sebutan 'Gongzi', dan kau 
+masih juga memanggilku dengan sebutan 'Furen'? Meskipun kungfuku tidak sebagus Qi Shimei, tapi aku masih tetap kakak seperguruannya, dan kami semua adalah 
+adik seperguruan ibumu maupun ibu suamimu. Setidaknya kami masih bibimu sendiri."
+
+[^xianggong]: Xiang Gong (相公) adalah panggilan mesra seorang istri kepada suaminya.
+
+Muka Xiao Zhao memerah, lalu berkata kepada Zhang Wuji, "Xianggong[^xianggong]." Dan kembali kepada Mei Jian, "Bibi Mei, Xiao Zhao merasa kami tidak 
+pantas membaca buku ini."
+
+"Buku ini isinya tentu saja bukan kehidupan kami sebagai suami-istri," kata Mei Jian sambil tertawa. "Aku juga tidak akan memberikan tulisan semaca itu 
+kepada kalian. Ini sebagian besar berisi kehidupan politik di sekitar istana, khususnya di harem kekaisaran. Semua orang mengira bahwa kehidupan sebagai 
+selir atau  permaisuri itu nyaman dan indah. Dan mereka semua juga mendambakan kehidupan seperti kaisar, padahal Kaisar Toghon Temur sendiri tadinya sama 
+sekali tidak ingin diangkat menjadi kaisar. Dia menyaksikan ayahnya mati sebelum menjalani kehidupan nyata sebagai Kaisar Dinasti Yuan. Dia juga menyaksikan 
+ibu tirinya dihukum mati oleh Ibu Suri Budashiri. Selain itu dia juga tahu bahwa adiknya mati hanya dalam waktu sekitar enam bulan setelah dinobatkan 
+sebagai kaisar, ketika umurnya masih enam tahun. Bagaimana dia ingin menjalani kehidupan seperti itu? Dinasti Yuan ini bisa dipastikan akan ambruk, 
+dan aku hanya ingin setidaknya kalian, yang kuanggap sebagai keluargaku sendiri, tahu apa yang sebenarnya terjadi di istana. Hanya itu."
+
+Ketika Mei Jian mengatakan beberapa kalimat terakhir, mereka melihat dua titik air mata mengalir turun membasahi pipinya. Tampaknya selama ini ia telah 
+membungkus isi hatinya dengan sangat rapi, dan saat itu ia tak dapat menahan rasa haru, lalu membiarkan dirinya menangis di hadapan mereka semua yang 
+hadir di ruangan itu. 
+
+Xiao Zhao dan semua wanita yang hadir di situ segera merangkul Mei Jian untuk menghiburnya. Mereka tidak tahu apa yang harus mereka katakan, jadi 
+mereka hanya bisa memapah Mei Jian untuk duduk di kursinya. Xiao Zhao menuangkan secawan arak untuk Mei Jian, dan Lihua berkata dengan lembut, "Ma, Lihua 
+tahu apa yang sebenarnya terjadi. Mama tidak perlu memikirkan pendapat semua orang lain itu, mereka tidak tahu apa-apa."
+
+Xiao Zhao berkata, "Bibi Mei, kami pasti akan banyak belajar dari semua tulisan bibi ini. Ini adalah pemberian terbaik dari semua yang pernah Xiao Zhao 
+terima seumur hidup. Mama juga pasti punya catatan semacam ini tentang pengalaman hidupnya sendiri, tapi sampai sekarang dia tidak menceritakan terlalu 
+banyak kepada Xiao Zhao."
+
+"Hanya kami bertiga yang memahami ibumu," kata Mei Jian. "Saat itu — kecuali Shifu, Shiniang dan Xie Xun — mereka semua menentang perkawinan orang tuamu. 
+Yang Shige juga ikut menentangnya karena terpengaruh semua orang lain. Er Shige memang tidak mengatakan menentangnya, tapi dia tidak senang karena urusan 
+pribadinya sendiri. Dia sudah lama jatuh cinta kepada ibumu, tapi ibumu menolaknya. Kurasa sekarang dia sudah menyadari apa bedanya mencintai dengan 
+sekedar tergila-gila. Aku yakin sampai saat ini ibumu masih tetap sangat cantik. Usia Er Shige sudah cukup tua, jadi dia pasti jauh lebih bijaksana 
+sekarang. Kulihat Yang Shige masih tetap memegang peraturan busuknya seperti orang memegang harta karun. Dia merasa dirinya pintar, padahal aku yakin 
+dia justru yang paling bodoh di antara kami bertujuh."
+
+Cara Mei Jian bercerita membuat suasana menjadi jauh lebih akrab dan santai. Ia masih melanjutkan ceritanya mengenai kehidupan mereka di Guangming Ding 
+ketika mereka bertujuh masih sangat muda. Ketika Yin Li mendengar cara Mei Jian menceritakan tentang rasa tidak senang Tajkis kepada ayahnya secara 
+terang-terangan dan lugu, ia tertawa terbahak-bahak. Sekarang ia sama sekali tidak heran mengapa Tajkis sama sekali tidak pernah menyukai ayahnya, lalu 
+sengaja menyelamatkannya ketika ayahnya ingin membunuhnya. Setelah itu Wei Yixiao juga menyelamatkannya dari tangan ayahnya. Ia juga seringkali mendengar 
+kakeknya memarahi ayahnya di hadapannya. Ia juga sama sekali tidak heran mengapa Tajkis tidak pernah terlalu serius ketika mengajarinya kungfu. Partilah 
+hal itu karena Tajkis terpengaruh oleh rasa tidak senangnya kepada ayahnya.
+
+"Pantas saja guruku kadang-kadang tidak menyukaiku," kata Yin Li sambil tertawa.
+
+"Karena mukamu memang mirip dengan Yin Shijie dan Yin Yewang," kata Mei Jian. "Tapi kau jangan berkecil hati. Qi Shimei sudah bersamamu kira-kira setahun 
+di Kaifeng. Dia pasti menurunkan ilmu silatnya kepadamu. Itu bahkan melampaui apa yang bisa diturunkan oleh Tajkis Shijie sendiri. Semua orang saat 
+itu beranggapan bahwa Er Shige dan Qi Shimei adalah dua murid Shifu yang paling konyol. Mereka sepintas lalu tidak pernah terlihat serius, padahal 
+justru merekalah yang paling pintar di antara semua orang lain di Guangming Ding. Jika kau mengikuti semua petunjuknya baik-baik, aku yakin akhirnya 
+kungfumu juga pasti tidak kalah dibandingkan Lihua. Kau kira siapa yang paling banyak mengajarkan kungfu kepada Ah Xiu? Kungfu kami semua pada dasarnya 
+adalah sama, tetapi Shijie dan Qi Shimei menguasai kungfu Persia, yang dipelajari Qi Shimei dari Shijie, lalu dikembangkannya sendiri, digabungkan dengan 
+dengan kungfu selatan yang dipelajarinya dari gurunya sebelum bergabung dengan Ming Jiao. Meskipun senjata andalan Qi Shimei tetap adalah pedang, seperti 
+kami berdua, tetapi sebenarnya Qi Shimei bisa menggunakan senjata apa saja, termasuk tongkat kayu atau bambu, atau tombak baja milik prajurit militer 
+yang berat itu. Saat ini dengan tenaga dalamnya yang tinggi, Qi Shimei bisa memainkan golok lebar dan berat seperti Tulong Dao itu dengan sama baiknya 
+seperti memainkan pedang pendek. Dia juga bisa memainkan teknik pedang dengan menggunakan tongkat bambu, atau bahkan tanpa pedang sama sekali."
+
+Keterangan ini tak hanya membangkitkan rasa penasaran Yin Li, tetapi juga Zhang Wuji dan Xiao Zhao. Yin Li memang diajari permainan tongkat oleh Ki Seung Nyang, 
+yang diubah sedikit dari permainan tongkat Tajkis, karena untuk memainkan tongkat kayu yang sangat berat seperti Tajkis, tenaga dalam Yin Li tidak 
+mendukung. Xiao Zhao tahu ibunya bisa memainkan tongkat berat dengan baik, tetapi ia baru tahu bahwa Ki Seung Nyang juga mempelajarinya. Zhang Wuji 
+melihat sendiri cara Ah Xiu bergerak seperti Tajkis ketika bertempur dengan para anggota Kai Pang dan Kunlun Pai yang sedang mengepung Mei Jian, 
+tetapi qinggong Ah Xiu yang dilihatnya saat itu jauh melampaui Tajkis sendiri. Ia tidak dapat memperkirakan dari mana Ah Xiu mempelajari ilmu seperti itu.
+Ia juga sering melihat Ah Xiu sedang berlatih dengan menggunakan tongkat bambu dalam perjalanan mereka sejak dari Xiangyang sampai ke Longshu, dan ia 
+sedang bertanya-tanya dari mana Ah Xiu mempelajari ilmu tongkat Kai Pang, yang biasanya hanya digunakan ketika sedang mengepung lawan dalam sebuah 
+formasi? Tenaga dalam Ah Xiu bagi Zhang Wuji jelas sekali beraliran Tao, padahal Ah Xiu bukan murid Wudang. Sekarang ia baru teringat, bahwa guru Ki Seung Nyang 
+di masa kecil adalah salah satu anggota Kai Pang, di jaman Yelu Qi berkuasa sebagai ketuanya, sedangkan Yelu Qi sendiri adalah murid Zhou Botong. 
+Dengan demikian memang pantas jika Ah Xiu memiliki tenaga dalam aliran Tao, jika yang mengajarkannya adalah Ki Seung Nyang sendiri. Tenaga dalam aliran 
+Tao tidak dimiliki oleh Mei Jian dan Ah Luo.
+
+Ketika Zhang Wuji mendengar uraian Mei Jian, otaknya segera dipenuhi oleh segudang kemungkinan baru, yang semuanya berhubungan dengan ilmu silat, 
+dan ia seolah-olah tidak mendengar apa yang sedang dibicarakan oleh semua orang di sekitarnya. Ia baru tersadar ketika Xiao Zhao memanggilnya, "Xianggong."
+Lalu Mei Jian bertanya, "Wuji, apa yang sedang kau pikirkan?"
+
+"Oh, aku sedang memikirkan kungfu Bibi Qi," jawab Zhang Wuji. "Lain kali kita akan membahasnya. Maafkan aku, tadi Bibi Mei sedang membicarakan soal apa?"
+
+"Tadi aku hanya mengatakan tentang dugaanku," kata Mei Jian. "Yaitu bahwa Qi Shimei sedang mengarahkan wilayah yang tadinya ditempati oleh Kerajaan Xi Xia itu 
+untuk menjadi tempat semacam Xinjiang atau Yunnan, dengan Lihua berfungsi sebagai gubernur, sedangkan kau sendiri akan memulai keluarga kerajaan kecil 
+seperti Dali, dengan masyarakat pendatang yang kita bawa itu sebagai dasar untuk membentuk masyarakat baru di situ. Keluarga Duan sendiri sebenarnya 
+juga berasal dari suku Han. Para penduduk Zhongxing yang sekarang ini kurasa bukan berasal dari warga negara Xi Xia sendiri, yang kabarnya dibasmi sampai 
+habis oleh Genghis Khan. Kalaupun mereka masih tersisa, tentunya mengungsi ke tempat lain, yang tidak kita ketahui."
+
+"Itu memang tepat seperti yang sedang kupikirkan," kata Zhang Wuji. "Tetapi aku bukan ingin menjai raja mereka, dan sayangnya aku sendiri juga bukan seorang 
+militer yang baik. Pengalamanku dalam hal militer hanya ketika ayah bersama pasukannya mengepung Shaolin saat itu. Itu pun hanya kudapatkan dari kitab strategi 
+perang warisan Jendral Yuefei, yang sebenarnya sudah sangat kuno. Sekarang kitab itu ada di tangan Xu Da, sedangkan Xu Da sendiri saat ini berada jauh di selatan, 
+jika kita melihatnya dari Zhongxing."
+
+"Semuanya itu akan kita upayakan bersama-sama sebagai keluarga," kata Mei Jian. "Aku sendiri pun bukan seorang militer. Sedangkan Lihua masih harus banyak 
+belajar. Sayyid Ajjal pastilah punya militernya sendiri, tetapi prestasinya yang terbesar adalah menciptakan masyarakat baru, yang akhirnya menjadi wilayah 
+yang sangat mengejutkan bagi orang-orang asing. Sebelumnya Marco Polo berpendapat bahwa masyarakat Yunnan sangat terbelakang. Wilayah kita memang tidak sesubur 
+Zhongyuan, tetapi sebelumnya Xi Xia adalah negeri yang makmur dan kaya, sebelum dihancurkan oleh Genghis Khan."
+
+"Keluarga Shangguan Wu berasal dari Gansu," kata Lihua. "Hal ini pasti akan membantu."
+
+"Kau benar," kata Zhang Wuji. "Karena itu aku mengajak mereka mengikuti kita."
+
+Mereka masih mengobrol beberapa saat lagi, sebelum Zhang Wuji mengajak Xiao Zhao, Mei Jian dan Lihua untuk kembali ke perkemahan mereka di sebelah barat 
+tembok kota, dan mengajak semua orang bersiap melanjutkan perjalanan mereka keesokan harinya. 
+
+Wang Minlie ingin mengikuti mereka pergi ke Zhongxing, tetapi Wang Baobao melarangnya. "Mama menyuruhmu tinggal bersamaku sampai kau menikah, kita harus 
+mematuhi pesannya," kata Wang Baobao singkat.
+
+Zhang Wuji dan Xiao Zhao tidak ingin mengumumkan perubahan status mereka kepada semua orang di perkemahan, dan membiarkan mereka semua tahu secara alamiah. 
+Mereka sedang berbicara dengan Ah Da, Ah Er dan Zong Weixia ketika Xie Ying dan Bibi Liu datang membawa banyak makanan yang diawetkan untuk mereka bawa sebagai 
+bekal di perjalanan. Ying Furen juga menitipkan banyak bahan-bahan pakaian bagi para pengungsi itu. Xie Ying dan Bibi Liu juga membawa sebuah peti yang berisi 
+sumbangan dana dan harta benda dari para penduduk Kaifeng yang berhasil mereka kumpulkan selama dua hari belakangan ini. Pastor Niccolo dan Yen Shao mewakili 
+semua orang mengucapkan terima kasih kepada rakyat Kaifeng yang menyumbangkan semua itu melalui teman-teman Ki Seung Nyang.
+
+Keesokan harinya mereka berangkat pagi-pagi sekali dari Kaifeng ke arah barat. Dalam waktu lima hari mereka tiba di Luoyang, dan bertemu dengan beberapa 
+anggota Kai Pang di sepanjang jalan menuju ke kota itu, tetapi sayangnya tak satu pun mendengar kabar mengenai delapan orang frater yang sedang mereka cari. 
+
+Di sepanjang perjalanan dari Kaifeng, sekali lagi Zhang Wuji merasa sangat lega melihat keakraban para pendekar Kongtong Pai dengan Ah Da dan Ah Er, 
+meskipun sebelumnya mereka sempat menjadi musuh akibat ulah Zhao Min di Kuil Wan'an.
+
+[^sanmenxia]: Sanmenxia (三门峡) bisa diartikan menjadi 'Lembah Tiga Pintu Gerbang', dan terletak di sebelah barat propinsi Henan.
+
+Dari Luoyang, mereka mencapai Sanmenxia[^sanmenxia] dalam waktu dua hari, dan sore itu mereka sedang beristirahat di tepi anak Sungai Kuning 
+yang di kota itu terbagi menjadi tiga.
+
+Menurut legenda, Raja Yu dari Dinasti Xia telah menggunakan Kapak Sakti, untuk membelah pegunungan di situ sebanyak tiga kali, dan menciptakan lembah-lembah 
+di Sanmenxia, untuk mencegah banjir besar akibat meluapnya Sungai Kuning. Tiga pintu gerbang air yang ada di situ kemudian dinamakan Pintu Gerbang Manusia, 
+Pintu Gerbang Para Dewa, dan Pintu Gerbang Iblis.
+
+Sore itu suhu udara di Sanmenxia sangat nyaman, tidak panas maupun dingin bagi mereka. Mereka mengobrol dengan santai sambil menikmati ubi rebus yang 
+dimasak oleh para wanita bersama Xiao Zhao, Lihua dan Mei Jian. Zhang Wuji mengumumkan bahwa mereka akan menginap di lembah itu untuk semalam, karena 
+itu para wanita kemudian melanjutkan pekerjaan mereka untuk menyiapkan makan malam bagi semua orang. Menurut data dari Kaifeng dan Xiangyang, jumlah mereka 
+saat itu mencapai sekitar seratus ribu orang. Ketika mereka menyalakan banyak api unggun malam itu, Zhang Wuji dan Xiao Zhao menyaksikan dari sebuah 
+bukit yang cukup tinggi di kejauhan, para pengungsi itu tampak seperti para penduduk dari perkemahan Mongolia kuno yang sangat hidup di tengah lembah itu. 
+Beberapa kelompok anak-anak muda sedang menari bersama sambil mengelilingi api unggun dengan gembira. 
+
+Xiao Zhao melingkarkan tangannya untuk memeluk lengan Zhang Wuji sambil berbisik dengan suara agak gemetar, "Xianggong, aku tiba-tiba takut. Jumlah mereka 
+begitu banyak. Bagaimana jika terjadi sesuatu di tengah jalan?"
+
+Terdengar suara Mei Jian dari belakang mereka. Rupanya ia juga ingin menyaksikan pemandangan itu dari atas bukit bersama dengan tiga orang pendekar 
+Kongtong Pai. Ia berkata, "Jangan takut. Kita punya surat dari Huang Shang, dan sebentar lagi kita akan memasuki wilayah Li Siqi, tidak akan ada orang 
+yang berani mengganggu mereka."
+
+"Hanya saja, kita juga akan memasuki wilayah Huashan Pai, tidak tahu bagaimana hubungan mereka saat ini dengan pihak kita," kata Tang Wenliang sambil 
+tertawa. "Tapi kukira setelah Xianyu Tong tewas, untuk sementara tidak ada orang lain yang cukup bisa diandalkan di sana."
+
+Zong Weixia berkata, "Dua pendekar Huashan yang pendek dan jangkung itu pasti sangat kapok bertarung dengan Zhang Jiaozhu, dan mereka punya hubungan baik 
+dengan Ban Shuxian dan He Taichong, kurasa mereka pasti tidak akan mengganggu kita."
+
+"Mereka ikut bersama kita sampai ke Xiangyang saat itu," kata Zhang Wuji. "Tapi mereka tidak mau mengikuti rapat-rapat kita. Kurasa mereka hanya tidak 
+terlalu memahami apa yang terjadi. Jika kita mengajak murid-murid Huashan Pai bergabung, bukankah itu tetap sangat menguntungkan bagi semua orang?"
+
+Mei Jian berkata, "Jumlah kita sudah terlalu banyak. Jika mereka membuat masalah di tengah jalan, kita akan mengalami masalah serius. Sebaiknya kita hindari 
+pertemuan dengan para pendekar Jianghu untuk saat ini, kecuali pihak-pihak yang sudah jelas bekerja sama dengan kita, seperti Kai Pang dan Kunlun Pai."
+
+Lihua juga tiba-tiba merasa takut setelah menyaksikan betapa banyaknya orang yang mengikuti mereka saat itu. Ia berkata, "Mama, bagaimana kita bisa mengatur 
+mereka nanti, di tempat yang baru? Bukankah saat ini di situ hampir tidak ada apa-apa?"
+
+"Meskipun wilayah itu dianggap tidak terlalu penting saat ini, tetapi bukan berarti tempat itu sungguh-sungguh tidak berguna," kata ibunya sambil tertawa. 
+"Kau selalu tinggal di ibukota, kalaupun bepergian, kau selalu memilih kota-kota besar yang makmur di selatan. Sekarang kau akan menyaksikan sendiri bahwa 
+daerah yang dianggap kurang makmur pun tetap bisa dijadikan tempat tinggal yang baik, tergantung bagaimana kita akan mengelolanya."
+
+Dua hari kemudian mereka telah tiba di kaki pegunungan Huashan, dan sempat bertemu dengan beberapa orang murid Huashan Pai, tetapi mereka hanya menyapa 
+Zhang Wuji dengan penuh rasa ingin tahu setelah melihat rombongan besar yang dibawanya. Mereka cepat-cepat minta diri dengan alasan harus segera kembali 
+ke perguruan mereka, tanpa menanyakan apa-apa.
+
+Tempat itu sudah termasuk bagian dari kota Weinan, dan tak sampai sehari kemudian mereka tiba di luar pintu gerbang kota itu. Tetapi Zhang Wuji tidak ingin memasuki kota 
+dengan membawa begitu banyak pengungsi yang datang bersamanya. Karena itu sekitar dua _li_ dari pintu gerbang kota, ia mengajak rombongan yang dipimpinnya 
+untuk mengitari tembok kota itu ke arah sebelah barat, dan beristirahat sekitar lima _li_ dari situ, di sebuah hutan yang cukup sepi. 
+
+Tak kurang dari sepuluh orang kaisar dari Dinasti Tang dimakamkan di Weinan. Nama kota ini sendiri melambangkan letaknya yang di sebelah selatan Sungai Wei. 
+Sejumlah kaisar dari jaman kuno mempersembahkan korban di Kuil Xiyue, yang terletak tak jauh dari kota ini. Sejumlah nama besar selalu dikaitkan dengan 
+Weinan, entah karena tempat ini adalah kota kelahiran mereka atau karena prestasi mereka berhubungan dengan kota ini. Di antaranya adalah penulis sejarah 
+dari Dinasti Han, Sima Qian, Kaisar Wen dari Dinasti Sui, Guo Ziyi yang mengakhiri pemberontakan An Lushan di era Dinasti Tang, Bai Juyi yang adalah 
+pejabat dan penyair terkenal di era Dinasti Tang, dan juga pejabat Dinasti Song yang paling banyak dipuji, Kuo Zhun.
+
+Meskipun telah berusaha menghindari pertemuan dengan para pendekar Jianghu, tetapi ternyata sore itu Zhang Wuji melihat dua sosok yang sementara ini 
+sangat akrab baginya dari kejauhan. Kedua orang itu sedang berkuda mendatangi mereka, lalu turun dari kuda mereka tak jauh dari batu besar tempat Zhang Wuji 
+sedang duduk santai bersama dengan Xiao Zhao dan beberapa orang lain.
+
+Sambil tersenyum tipis, Zhang Wuji menyapa mereka dengan ramah, "Lu Xiansheng, He Xiansheng, lama tidak bertemu dengan kalian. Apa kabar?"
+
+"Zhang Wuji, apa yang kau lakukan bersama orang sebanyak ini?" tanya Lu Zhangke dengan nada tajam.
+
+Xiao Zhao sering bertemu dengan kedua orang ini ketika mengikuti perjalanan Zhang Wuji dari Guangming Ding sampai ke Wudang. Dan kemudian ia masih 
+bertemu dengan mereka beberapa kali lagi di Dadu. Karena ia telah mendengar bahwa He Biweng telah membuat Zhang Wuji terluka parah di masa kecil, 
+ia tak pernah menyukai keduanya, apalagi kemudian perbuatan itu masih terulang ketika mereka berdua bergebrak dengan Zhang Wuji di Wudang.
+
+Ia berkata dengan nada mengejek, "He Xiansheng, kau takut melihat mereka semua ya?"
+
+He Biweng tidak menjawab, karena Lu Zhangke mendahuluinya. Ia mendengus sambil berkata, "Huh! Wangye hanya menanyakan kalian mau apa di sini, siapa yang 
+bicara tentang takut atau tidak?"
+
+"Hei, Lu Xiansheng, bukankah Wangye adalah ayah mertua Gongzi?" kata Xiao Zhao. "Masa Wangye menyuruh kalian menanyakan masalah remeh seperti ini? 
+Kalian tentu tidak tahu bahwa kami sudah bertemu dengan Xiao Wangye di Kaifeng sebelum ini. Wangye tahu kami mau pergi ke mana."
 
 
 
 
 
- 
+
+
+
+
+
+
+
+
+
+
+
 
 
 
