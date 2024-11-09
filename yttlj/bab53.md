@@ -850,11 +850,42 @@ sampai mereka tiba di wilayah mereka sendiri. Hanya Zong Weixia yang mengikuti r
 Sejak tiba di Pingliang, Xiao Zhao mulai terkenang perjalanan panjang mereka dari Guangming Ding menuju ke Henan bertahun-tahun yang lalu. Tanpa terasa 
 ia sering memeluk lengan Zhang Wuji sambil tersenyum ketika teringat berbagai peristiwa itu. 
 
-![Ilustrasi Bab 53 A](/assets/images/liupanshan-1.jpg "Melewati pegunungan Liupan")
+Sebelum tiba di Dayuan, mereka melewati sebuah lembah yang dikelilingi oleh pegunungan. Xiao Zhao merasa tempat itu sangat indah, dan letaknya hanya 
+sedikit di sebelah barat laut Pingliang. Mereka mendirikan kemah untuk bermalam di situ, lalu Zhang Wuji mengajak Xiao Zhao bersama Mei Jian dan Lihua 
+pergi ke kota kecil terdekat untuk sekedar berjalan-jalan. 
+
+Di sebuah kedai, mereka memang mendengar bahwa Genghis Khan meninggal di pegunungan itu, setelah berperang selama dua puluh tahun melawan Xi Xia, 
+dan kemudian membantai negeri itu sampai habis. Menurut cerita mereka, orang-orang Xi Xia yang masih selamat akhirnya mengungsi ke banyak tempat yang 
+sult dilacak, tetapi banyak yang ternyata tinggal di Kaifeng sampai sekarang. Tetapi ada juga yang akhirnya pergi ke Xinjiang, dan bahkan banyak juga 
+yang melarikan diri sampai ke Tibet.
+
+Zhang Wuji menggelengkan kepalanya dengan sedih sambil bergumam, "Perang hanya menghasilkan kehancuran bagi rakyat. Genghis Khan menghabisi Xi Xia, 
+dan juga Khwarezmia, tetapi berikutnya mereka juga ingin membalas dendam kepada keturunannya. Sekarang banyak orang memusuhi Dinasti Yuan. Jika nantinya 
+kita punya kaisar baru, pastilah musuh-musuhnya yang sekarang akan mencari jalan untuk membalas kekalahan mereka. Begitu terus tanpa henti, dan yang 
+paling menderita akhirnya tetap adalah rakyat jelata yang tidak mengerti apa-apa."
+
+[^xumishan-shiku]: Xumishan Shiku (须弥山石窟) secara literal berarti 'Gua Gunung Xumi'. Tempat eksotis ini terletak di Dayuan, yang juga dikenal sebagai Xihaigu, atau di jaman modern dikenal sebagai kota Guyuan, Ningxia.
+
+Setelah tiba di Dayuan, mereka melewati sebuah pegunungan, dan di situ mereka melihat sebuah pemandangan yang sangat mencengangkan. Lebih dari seratus 
+kuil agama Buddha yang sebenarnya adalah gua-gua, tampaknya secara alamiah ada di situ. Setelah menanyakan nama tempat itu, penduduk setempat yang kebetulan lewat 
+menyebutnya Xumishan Shiku[^xumishan-shiku]. Menurut cerita rakyat setempat, kuil-kuil itu memang sudah didirikan sejak kurang lebih seribu tahun yang lalu, 
+di era Dinasti Wei Utara, yang diperintah oleh keluarga Touba dari Xianbei. Kemudian dipugar di jaman Dinasti Tang.
+
+Mendengar hal itu, Shangguan Wu dan Ah Zhu tertawa, lalu Shangguan Wu berkata kepada Lihua, "Gongzhu, sekarang kau boleh memberi kabar kepada Touba Yong 
+di Kaifeng, bahwa kita telah menemukan hasil karya nenek moyangnya seribu tahun yang lalu di sini."
+
+[^jiangjun]: Jiang Jun (将军) adalah panggilan kepada seorang jendral militer.
+
+Zhang Wuji berkata, "Lihua, bukankah ini termasuk wilayah kekuasaanmu? Wilayah ini tidak kalah dengan Yunnan, dalam beberapa tahun rakyatmu akan 
+hidup makmur di sini, dengan hanya membangun tempat ini sebagai tempat ziarah agama Buddha. Jika banyak orang datang ke sini, rakyatmu bisa menjual 
+makanan atau menjadi pemilik penginapan di seluruh kota."
+
+Lihua mencibir sambil berkata, "Kelihatannya Jiangjun[^jiangjun] ingin banyak belajar dari Sayyid Ajjal. Sayangnya aku tidak berminat menikahi cicitnya, 
+Dajie juga tidak berminat, karena itu dia pergi mencari Jiangjun di Xiangyang."
 
 
 
-
+![Ilustrasi Bab 53 A](/assets/images/xumishan-3.jpg "Pemandangan yang mencengangkan")
 
 Pingliang - Guyuan - Wuzhong
 
