@@ -1136,25 +1136,3 @@ surat ke Xinjiang, dan sudah menerima jawabannya. Ternyata delapan orang itu tid
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
