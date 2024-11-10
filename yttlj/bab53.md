@@ -964,7 +964,7 @@ Bei Jinyi segera bangkit dari kursinya sambil berkata, "Biar aku yang memeriksa 
 Sementara Bei Jinyi sedang memeriksa pekerjaan anak-anak muda yang berada di bawah pengawasannya, Ah Xiu berkata, "Jiaozhu dengan cerdik memilih wilayah 
 yang tidak diminati oleh hampir semua orang di Zhongyuan ini. Aku juga tidak bisa memastikan siapa sebenarnya yang berkuasa di Zhongxing saat ini."
 
-"Jangan-jangan itu wilayah kekuasaan Dashibadalu[^dashibadalu]," kata Wei Yixiao lagi.
+"Jangan-jangan itu wilayah kekuasaan Dashibadulu[^dashibadalu]," kata Wei Yixiao lagi.
 
 Ah Luo tersenyum simpul mendengar caranya mengucapkan nama Dash Badalugh. Nama-nama Mongolia memang agak sulit diucapkan dengan benar oleh suku Han 
 seperti Wei Yixiao. Ki Seung Nyang memakai cara yang sama supaya mereka semua lebih mudah membicarakan nama-nama itu, yaitu dengan memakai karakter yang 
