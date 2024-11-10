@@ -2,7 +2,7 @@
 
 ![Ilustrasi Bab 53](/assets/images/yinchuan.webp "Memindahkan pengungsi ke Yinchuan")
 
-[^xingqing]: Di era Dinasti Yuan, yang disebut Zhongxing adalah ibukota Xi Xia, yaitu Yinchuan, yang di jaman modern ini terletak di Ningxia, dengan nama Yinchuan. Tahun 1038, ketika Touba Yuanhao atau Li Yuanhao mendeklarasikan Kerajaan Xia, kota ini dikenal sebagai Xingqing.
+[^xingqing]: Di era Dinasti Yuan, yang disebut Zhongxing adalah ibukota Xixia, yaitu Yinchuan, yang di jaman modern ini terletak di Ningxia, dengan nama Yinchuan. Tahun 1038, ketika Touba Yuanhao atau Li Yuanhao mendeklarasikan Kerajaan Xia, kota ini dikenal sebagai Xingqing.
 [^pu-shougeng]: Di era awal Dinasti Yuan, Pu Shougeng (蒲寿庚), yang adalah seorang penganut Islam beraliran Sunni dari golongan Semu, mendapat dukungan karena ikut memberontak melawan Dinasti Song.
 
 Kesepakatan antara pihak mereka dengan Ming Yuzhen dan Basalawarmi membuat Ah Xiu dan Zhang Wuji menyadari bahwa saat ini kekuatan pihak mereka sebenarnya 
@@ -25,7 +25,7 @@ dua wilayah yang sangat luas, terbagi menjadi utara dan selatan, yang dipisahkan
 
 Zhang Wuji melanjutkan penuturannya, "Saat ini para pendekar Kunlun Pai membawa para pengungsi itu untuk menetap di sekitar Huangshui[^huangshui], dan itu menurutku 
 sangat bagus, karena air adalah sumber segala kehidupan, dan mereka bisa hidup sebagai peternak sapi, kuda dan domba di sekitar situ. Di ujung timur, 
-Xianyang akan menjadi penghubung kita menuju ke Zhongxing[^xingqing]. Sebelumnya kota itu adalah pusat dari Kerajaan Xi Xia, sebelum dibantai oleh Genghis Khan 
+Xianyang akan menjadi penghubung kita menuju ke Zhongxing[^xingqing]. Sebelumnya kota itu adalah pusat dari Kerajaan Xixia, sebelum dibantai oleh Genghis Khan 
 sampai hampir habis. Aku akan menggunakan kota ini sebagai salah satu pusat kegiatan kita yang lebih dekat dengan Kaifeng dari arah utara. Kurasa 
 Kai Pang lebih cocok untuk menguasai wilayah ini, mengingat saat ini Shi Bangzhu tinggal di Chang'an. Kai Pang tetap akan menjadi penghubung kita 
 ke arah Kaifeng dan Xiangyang dari situ, tetapi mulai sekarang mereka juga akan menjadi penghubung ke arah Zhongxing."
@@ -111,7 +111,7 @@ duga, karena itu tadinya mereka ingin mencegah Toghon Temur menjodohkan Ah Xiu d
 Ah Lu berkata dengan menggunakan wibawanya, "Wuji, kau memang harus pergi ke Zhongxing. Kepentingan rakyat harus kita tempatkan di atas urusan pribadi 
 kalian semua. Selain itu aku juga akan meminta Shimei dan Lihua pergi ke situ bersama kalian, karena kehadiran kalian dengan membawa banyak orang pasti 
 akan menimbulkan pertanyaan bagi penguasa setempat. Aku akan segera meminta Huang Shang memberikan wilayah itu kepada Lihua. Sekarang ini daerah itu memang 
-dianggap tidak penting, meskipun sebelumnya itu adalah wilayah Kerajaan Xi Xia, jadi tidak ada orang yang akan keberatan jika Huang Shang memberikannya kepada Lihua. 
+dianggap tidak penting, meskipun sebelumnya itu adalah wilayah Kerajaan Xixia, jadi tidak ada orang yang akan keberatan jika Huang Shang memberikannya kepada Lihua. 
 Kau sendiri tidak memiliki kekuasaan di situ, jadi penguasa setempat pasti akan mempersulit kalian jika tidak ada dukungan yang memadai. Bawa lebih banyak 
 pasukan rahasiamu untuk mendidik mereka yang masih baru, dengan begitu wilayah baru kita juga akan lebih cepat menjadi kuat."
 
@@ -216,7 +216,7 @@ menyalahkan keputusanku tadi."
 "Huh," dengus Mei Jian. "Aku memang sudah lama ingin meninggalkan istana. Sekarang ini anak-anak kita semuanya sudah besar. Kurasa Huang Shang hanya membutuhkan 
 Bayan dan Qi Shimei di situ. Bayan jelas tidak mungkin pergi, bukan hanya karena Xue Shan masih kecil, tapi karena ayahnya pasti tidak akan mengizinkannya. 
 Qi Shimei tetap harus membantu Huang Shang mengatasi segala kesulitannya, karena kita berdua sudah pergi dari situ. Jika Wuji berhasil mengembangkan sisa-sisa 
-wilayah Xi Xia itu, kurasa Huang Shang pasti akan mau diajak tinggal di situ."
+wilayah Xixia itu, kurasa Huang Shang pasti akan mau diajak tinggal di situ."
 
 Ah Luo sangat meragukannya, karena tempat yang telah mereka rencanakan sejauh ini adalah Shangdu, yang sebelumnya adalah istana musim panas Dinasti Yuan. 
 Hingga saat ini mereka masih belum berhasil mengajak Toghon Temur untuk segera pergi ke Dadu, karena meskipun sudah melihat bahwa Dinasti Yuan tidak bisa 
@@ -224,7 +224,7 @@ dipertahankan lagi, Toghon Temur tetap merasa bahwa saat ini masih belum saatnya
 orang yang siap mengambil tahta sebagai kaisar, karena itu ia tidak bisa melepaskan tahtanya begitu saja. Setelah sekian lama tinggal bersama Zhang Wuji 
 di Kaifeng maupun Xiangyang, Ah Luo bahkan merasa Zhang Wuji sama sekali tidak bermaksud mengambil tahta. Ia sendiri tidak bisa meraba apa yang sesungguhnya 
 sedang dipikirkan oleh keponakannya, yang sekarang bahkan sudah menjadi menantunya itu. Dan saat ini Ah Xiu bahkan telah melepaskan suaminya begitu saja 
-untuk pergi bersama Xiao Zhao ke wilayah yang sebelumnya adalah ibukota Xi Xia, sebelum dibantai oleh Genghis Khan akibat pengkhianatan mereka. Ia juga tidak 
+untuk pergi bersama Xiao Zhao ke wilayah yang sebelumnya adalah ibukota Xixia, sebelum dibantai oleh Genghis Khan akibat pengkhianatan mereka. Ia juga tidak 
 bisa memahami dengan baik apa yang sedang dipikirkan oleh anaknya.
 
 Zhang Wuji beralih kepada para pendekar Kongtong Pai, lalu berkata kepada Zong Weixia sambil tertawa gembira, "Zong Qianbei, kuharap Qianbei tidak keberatan 
@@ -404,12 +404,12 @@ itu memang adalah tulisan tangan Ki Seung Nyang. Surat yang sedang dipegang oleh
 ditulis dalam bahasa Han. Mei Jian menyodorkan surat yang berbahasa Mongolia itu kepada Wang Baobao smabil berkata sementara Wang Baobao sedang 
 membacanya dengan muka serius, "Setidaknya Qi Shimei berhasil mengirimkan surat ini, dan juga surat kepada Zhou Zhiruo itu. Ini jelas sekali ditandatangani 
 oleh Hang Shang sendiri, dan juga diberi stempel resmi kekaisaran. Isinya adalah surat pengangkatan Lihua sebagai seorang Khatun, untuk menduduki wilayah 
-yang tadinya adalah milik Kerajaan Xi Xia. Surat itu juga menunjuk aku sendiri sebagai Wali untuk Lihua di situ. Ini memang bukan titah resmi yang seharusnya 
+yang tadinya adalah milik Kerajaan Xixia. Surat itu juga menunjuk aku sendiri sebagai Wali untuk Lihua di situ. Ini memang bukan titah resmi yang seharusnya 
 ditulis di atas lembaran khusus, tetapi kita tetap bisa memakainya sebagai perintah langsung dari Huang Shang. Para pejabat yang saat ini berkuasa di 
 tempat itu pasti akan tunduk. Dua surat pribadi dari Qi Shimei ini juga mewakili pemikiran Huang Shang sendiri, meskipun yang menulisnya adalah Qi Shimei. 
 Isinya adalah perintah secara terperinci mengenai apa yang harus kita lakukan di situ untuk membuat semua pejabat dan militer yang ditempatkan di situ 
 mematuhi kita. Langkah pertama, setelah kita berhasil membuat mereka mematuhi Lihua, adalah supaya Lihua mengangkat Zhang Wuji sebagai Jendral yang 
-berkuasa sebagai pemimpin militer tertinggi di seluruh wilayah itu. Sebagian kecil wilayah yang tadinya adalah wilayah Xi Xia sekarang dikuasai oleh 
+berkuasa sebagai pemimpin militer tertinggi di seluruh wilayah itu. Sebagian kecil wilayah yang tadinya adalah wilayah Xixia sekarang dikuasai oleh 
 Li Siqi, dan dia harus juga mematuhi perintah ini. Nah, berikutnya, supaya perintah Lihua kepada siapa pun yang ada di situ menjadi sah, kita membutuhkan 
 stempel resmi yang melambangkan kekuasaannya. Seharusnya Park Bul-hwa menitipkannya kepadamu."
 
@@ -421,7 +421,7 @@ Lihua tertawa cekikikan sambil menerimanya, lalu berkata, "Wang Gege, kau tidak 
 
 Mei Jian menegurnya dengan nada tajam, "Mulai sekarang kau harus belajar untuk bersikap sebagai seorang atasan yang benar! Benda itu menunjukkan 
 jabatanmu secara resmi kepada semua orang lain, dan kau menerimanya dari Kaisar negeri ini, meskipun Huang Shang adalah ayahmu sendiri. Kau harus bisa 
-membedakan mana yang bisa dijadikan bahan bercanda dan mana yang masalah serius! Jika kau terus seperti ini, maka semua pejabat di Xi Xia itu juga tidak 
+membedakan mana yang bisa dijadikan bahan bercanda dan mana yang masalah serius! Jika kau terus seperti ini, maka semua pejabat di Xixia itu juga tidak 
 akan mematuhi perintahmu, dan itu akan berbahaya bagi kita semua."
 
 Mendengar apa yang dikatakan Mei Jian, muka Lihua menjadi serius. Ia baru menyadari bahwa semua ini bukan sekedar lelucon Ki Seung Nyang, dan ia mulai 
@@ -562,10 +562,10 @@ Lalu Mei Jian bertanya, "Wuji, apa yang sedang kau pikirkan?"
 
 "Oh, aku sedang memikirkan kungfu Bibi Qi," jawab Zhang Wuji. "Lain kali kita akan membahasnya. Maafkan aku, tadi Bibi Mei sedang membicarakan soal apa?"
 
-"Tadi aku hanya mengatakan tentang dugaanku," kata Mei Jian. "Yaitu bahwa Qi Shimei sedang mengarahkan wilayah yang tadinya ditempati oleh Kerajaan Xi Xia itu 
+"Tadi aku hanya mengatakan tentang dugaanku," kata Mei Jian. "Yaitu bahwa Qi Shimei sedang mengarahkan wilayah yang tadinya ditempati oleh Kerajaan Xixia itu 
 untuk menjadi tempat semacam Xinjiang atau Yunnan, dengan Lihua berfungsi sebagai gubernur, sedangkan kau sendiri akan memulai keluarga kerajaan kecil 
 seperti Dali, dengan masyarakat pendatang yang kita bawa itu sebagai dasar untuk membentuk masyarakat baru di situ. Keluarga Duan sendiri sebenarnya 
-juga berasal dari suku Han. Para penduduk Zhongxing yang sekarang ini kurasa bukan berasal dari warga negara Xi Xia sendiri, yang kabarnya dibasmi sampai 
+juga berasal dari suku Han. Para penduduk Zhongxing yang sekarang ini kurasa bukan berasal dari warga negara Xixia sendiri, yang kabarnya dibasmi sampai 
 habis oleh Genghis Khan. Kalaupun mereka masih tersisa, tentunya mengungsi ke tempat lain, yang tidak kita ketahui."
 
 "Itu memang tepat seperti yang sedang kupikirkan," kata Zhang Wuji. "Tetapi aku bukan ingin menjai raja mereka, dan sayangnya aku sendiri juga bukan seorang 
@@ -576,7 +576,7 @@ jika kita melihatnya dari Zhongxing."
 "Semuanya itu akan kita upayakan bersama-sama sebagai keluarga," kata Mei Jian. "Aku sendiri pun bukan seorang militer. Sedangkan Lihua masih harus banyak 
 belajar. Sayyid Ajjal pastilah punya militernya sendiri, tetapi prestasinya yang terbesar adalah menciptakan masyarakat baru, yang akhirnya menjadi wilayah 
 yang sangat mengejutkan bagi orang-orang asing. Sebelumnya Marco Polo berpendapat bahwa masyarakat Yunnan sangat terbelakang. Wilayah kita memang tidak sesubur 
-Zhongyuan, tetapi sebelumnya Xi Xia adalah negeri yang makmur dan kaya, sebelum dihancurkan oleh Genghis Khan."
+Zhongyuan, tetapi sebelumnya Xixia adalah negeri yang makmur dan kaya, sebelum dihancurkan oleh Genghis Khan."
 
 "Keluarga Shangguan Wu berasal dari Gansu," kata Lihua. "Hal ini pasti akan membantu."
 
@@ -717,11 +717,11 @@ Ia segera menyingkir dari situ bersama Xiao Zhao untuk menemui Wu Zhanglao. Sete
 kami mengunjungi tempat-tempat yang pernah diceritakan ayahku tentang Duan Yu. Dia punya adik perempuan yang juga bernama Ah Zhu. Bayangkan, sebelumnya 
 dia sudah berjanji untuk menikah dengan ketua Kai Pang yang hebat saat itu — Xiao Feng — sayangnya perkawinan itu gagal!"
 
-Ah Zhu sebelumnya mendengar cerita Lihua mengenai hubungan antara keluarga Kerajaan Dali, Kai Pang dan juga Xi Xia, yang akan menjadi tempat tinggal mereka 
+Ah Zhu sebelumnya mendengar cerita Lihua mengenai hubungan antara keluarga Kerajaan Dali, Kai Pang dan juga Xixia, yang akan menjadi tempat tinggal mereka 
 selanjutnya. Bukan seperti Ah Xiu, yang lebih tertarik membaca buku-buku sejarah, Lihua lebih banyak mendengar cerita Toghon Temur tentang pendekar-pendekar 
 di jaman kuno, yang tentu saja sengaja dilebih-lebihkan untuk menarik minat para pendengarnya. Salah satu kisah yang paling sering diceritakan ayahnya adalah 
-tentang Duan Yu, Xuzhu dan Qiao Feng, dan hubungan mereka dengan Kerajaan Dali, Xi Xia dan Kai Pang. Begitu mendengar bahwa ayahnya akan memberinya sebuah 
-wilayah di Zhongxing, yang sudah diketahui sebagai wilayah Kerajaan Xi Xia di era sebelumnya, Lihua segera teringat akan cerita itu, dan menceritakannya 
+tentang Duan Yu, Xuzhu dan Qiao Feng, dan hubungan mereka dengan Kerajaan Dali, Xixia dan Kai Pang. Begitu mendengar bahwa ayahnya akan memberinya sebuah 
+wilayah di Zhongxing, yang sudah diketahui sebagai wilayah Kerajaan Xixia di era sebelumnya, Lihua segera teringat akan cerita itu, dan menceritakannya 
 dengan penuh semangat kepada teman-temannya yang kurang lebih sebaya, di antaranya adalah Shangguan Wu dan adiknya, dan kemudian Ah Zhu, yang dianggapnya 
 paling istimewa, karena namanya sama dengan salah satu tokoh wanita di masa itu.
 
@@ -737,7 +737,7 @@ perempuannya — Shangguan Wan'er."
 Shangguan Wu tertawa terbahak-bahak, lalu berkata, "Keluarga kami pasti tidak ada kaitannya dengan keluarga Shangguan Yi. Khatun terlalu sering berkhayal. 
 Kami hanya keluarga miskin dari Gansu, yang akhirnya pindah ke Henan untuk mengadu nasib di sana."
 
-Mereka menikmati makan malam bersama sambil terus bercanda dan bercerita tentang Kerajaan Xi Xia, yang didengar Lihua dari ayahnya. Kecuali sedikit 
+Mereka menikmati makan malam bersama sambil terus bercanda dan bercerita tentang Kerajaan Xixia, yang didengar Lihua dari ayahnya. Kecuali sedikit 
 gangguan dari Lu Zhangke dan He Biweng tadi, sepanjang malam itu tidak ada lagi yang mendatangi mereka lagi. Mereka meninggalkan tempat itu pagi-pagi sekali, 
 dan sampai di Xianyang menjelang tengah malam hari berikutnya.
 
@@ -854,12 +854,12 @@ Sebelum tiba di Dayuan, mereka melewati sebuah lembah yang dikelilingi oleh pegu
 sedikit di sebelah barat laut Pingliang. Mereka mendirikan kemah untuk bermalam di situ, lalu Zhang Wuji mengajak Xiao Zhao bersama Mei Jian dan Lihua 
 pergi ke kota kecil terdekat untuk sekedar berjalan-jalan. 
 
-Di sebuah kedai, mereka memang mendengar bahwa Genghis Khan meninggal di pegunungan itu, setelah berperang selama dua puluh tahun melawan Xi Xia, 
-dan kemudian membantai negeri itu sampai habis. Menurut cerita mereka, orang-orang Xi Xia yang masih selamat akhirnya mengungsi ke banyak tempat yang 
+Di sebuah kedai, mereka memang mendengar bahwa Genghis Khan meninggal di pegunungan itu, setelah berperang selama dua puluh tahun melawan Xixia, 
+dan kemudian membantai negeri itu sampai habis. Menurut cerita mereka, orang-orang Xixia yang masih selamat akhirnya mengungsi ke banyak tempat yang 
 sult dilacak, tetapi banyak yang ternyata tinggal di Kaifeng sampai sekarang. Tetapi ada juga yang akhirnya pergi ke Xinjiang, dan bahkan banyak juga 
 yang melarikan diri sampai ke Tibet.
 
-Zhang Wuji menggelengkan kepalanya dengan sedih sambil bergumam, "Perang hanya menghasilkan kehancuran bagi rakyat. Genghis Khan menghabisi Xi Xia, 
+Zhang Wuji menggelengkan kepalanya dengan sedih sambil bergumam, "Perang hanya menghasilkan kehancuran bagi rakyat. Genghis Khan menghabisi Xixia, 
 dan juga Khwarezmia, tetapi berikutnya mereka juga ingin membalas dendam kepada keturunannya. Sekarang banyak orang memusuhi Dinasti Yuan. Jika nantinya 
 kita punya kaisar baru, pastilah musuh-musuhnya yang sekarang akan mencari jalan untuk membalas kekalahan mereka. Begitu terus tanpa henti, dan yang 
 paling menderita akhirnya tetap adalah rakyat jelata yang tidak mengerti apa-apa."
@@ -884,13 +884,266 @@ Lihua mencibir sambil berkata, "Kelihatannya Jiangjun[^jiangjun] ingin banyak be
 Dajie juga tidak berminat, karena itu dia pergi mencari Jiangjun di Xiangyang."
 
 
-
 ![Ilustrasi Bab 53 A](/assets/images/xumishan-3.jpg "Pemandangan yang mencengangkan")
 
-Pingliang - Guyuan - Wuzhong
 
-Xianyang - Baoji - Tianshui - Lanzhou - Haidong - Haibei - Zhangye - Jiuquan (35 hari, berjalan 12 sehari).
-Xianyang - Pingliang - Dingxi - Baiyin - Wuwei - Zhangye - Jiuquan (sekitar 31 hari)
+Tetapi hampir semua orang sependapat dengan Zhang Wuji. Pastor Gabriele dan kelima biarawan lain mencatat penemuan itu baik-baik, berikut nama lokasi 
+dan cerita rakyat setempat. Zhang Wuji dan Xiao Zhao juga menyuruh Ah Zhu, Shangguan Wu dan adiknya untuk membuat catatan mereka sendiri mengenai 
+tempat ziarah itu.
+
+Karena mereka harus melalui jalan pegunungan yang dipenuhi batu-batu cadas dan cenderung gersang, maka mereka baru mencapai Wuzhong setelah berjuang 
+kurang lebih seminggu. Mereka beristirahat di luar kota itu agak lama, dan Zhang Wuji memberi kesempatan kepada semua orang untuk berjalan-jalan 
+ke kota sepuasnya. Ia sendiri memilih untuk melihat-lihat pemandangan di luar kota bersama Xiao Zhao.
+
+[^guoqi]: Guo Qi (枸杞) adalah nama _wolfberry_ dalam bahasa mandarin.
+
+Mereka menemukan banyak buah wolfberry[^guoqi] tumbuh di sekitar situ, ternyata lahan mereka cukup subur untuk ditanami. Dengan gembira mereka mengingat 
+baik-baik penemuan penting ini, karena mereka sudah semakin dekat dengan kota yang akan menjadi pusat kegiatan mereka, yaitu ibukota Xixia di jaman dulu, 
+yang sekarang bernama Zhongxing.
+
+Ketika semua orang mendengar cerita itu, mereka bersorak kegirangan. "Ternyata tempat ini tidak seburuk dugaanku," kata Lihua. Ia mencicipi sekeranjang 
+besar wolfberry yang dipetik begitu saja oleh Zhang Wuji dan Xiao Zhao dari tanaman liar yang tumbuh subur di sekitar situ. "Guoqi ini sangat manis."
+
+"Tentu saja," kata ibunya. "Kalau memang seburuk yang kau pikir, mana mungkin dulunya orang-orang Xixia bisa hidup di sini?"
+
+Mereka ramai-ramai memetik buah wolfberry liar yang banyak tumbuh di sepanjang jalan dari luar kota sampai di dekat tembok kota Wuzhong. Setelah puas 
+mengumpulkan wolfberry, keesokan harinya mereka melanjutkan perjalanan, yang ternyata hanya membutuhkan waktu tak sampai sehari untuk mencapai kota Zhongxing. 
+Nama kota itu dalam bahasa Mongolia adalah Iryai.
+
+Zhang Wuji mengajak semua orang untuk berkemah sejauh lima _li_ dari perbatasan kota Zhongxing, karena ia ingin semua orang bersantai sambil memetik 
+buah wolfberry liar yang tumbuh subur di sepanjang jalan dari arah Wuzhong sampai ke tempat mereka berkemah. Sementara itu ia mengadakan rapat penting 
+dengan Xiao Zhao, Mei Jian, Lihua, Shangguan Wu dan Ah Zhu di kemahnya sendiri. Hari itu mereka merayakan keberhasilan mereka membawa sejumlah besar 
+pengungsi dari Xiangyang sampai ke Zhongxing.
+
+
+***
+
+Dari Xiangyang Ah Xiu sengaja membiarkan Chen Youliang menyerang Zhu Yuanzhang di Nanjing, tetapi ia segera memberitahu Fan Yao, yang saat itu sudah 
+bersekutu dengan Chen Youding, supaya langsung bergerak mengambil alih Fujian. Tindakan ini sukses, dan Fujian jatuh ke tangan Chen Youding. 
+Sebelumnya, Chen Youliang memproklamirkan wilayahnya sebagai Dinasti Han, dan pernyataan itu ditolak ramai-ramai.
+
+[^zhejiang]: Huangyan di jaman modern adalah Zhejiang.
+
+Dari wilayah timur itu, Fan Yao menyertakan sebuah lelucon dalam laporannya, bahwa Tao Zongyi, seorang penulis dan sastrawan dari Huangyan yang selalu 
+menolak jabatan dalam pemerintahan, menulis bahwa orang-orang malu jika para wanita tidak mengecilkan kaki mereka.
+
+Ruang rapat Zhang Wuji di Xiangyang dipenuhi gelak tawa setelah Sima Han membacakan laporan Fan Yao keras-keras supaya bisa didengar semua orang. 
+
+Wei Yixiao berkata, "Ah Luo, Bei Jinyi, Ah Xiu, kaki kalian sangat besar. Betul-betul bikin malu Jiaozhu!"
+
+"Wei Fuwang, dari dulu kau selalu berharap supaya aku mengecilkan kakiku adalah karena kau takut aku akan menendang pantatmu," balas Ah Luo.
+
+Mereka menyadari bahwa tulisan Tao Zongyi itu menceritakan kaki Ma Xiuying yang besar. Mengenai kaki para wanita yang ada di situ, memang semuanya besar, 
+karena mereka adalah para pendekar, bagaimana bisa mempelajari kungfu dengan kaki yang kecil?
+
+"Ada sebuah kabar dari Ah Li," kata Ah Xiu sambil tersenyum simpul. "Mungkin kalian anggap tidak terlalu penting. Tapi ini bagiku sebuah kemajuan. 
+Huang Shang memakai jasa mereka mengirim bahan-bahan makanan sampai ke Dadu sebagai alasan untuk memberi Wang Baobao nama Mongolia — Koke Temur. 
+Bagiku berarti sebentar lagi Koke Temur kita ini akan menjadi batu sandungan baru di Majelis, yang akan menyulitkan Bolad Temur menguasai wilayah 
+utara. Dan ini juga akan memudahkan Wuji Gege, Xiao Zhao dan Lihua untuk menguasai wilayah baru mereka."
+
+[^dashibadulu]: Da Shi Ba Du Lu (tradisional 答失八都魯, atau disederhanakan 答失八都鲁) adalah nama Dash Badalugh, yag diterjemahkan secara bebas dari bunyinya.
+[^zhang-liangbi]: Zhang Liangbi (張良弼) adalah seorang jendral Mongolia yang berada di bawah asuhan Dash Badalugh, bersama dengan Chaghan Temur, Li Siqi dan Bolad Temur.
+
+Saat itu baik Yang Xiao maupun Fan Yao sudah bertugas ke wilayah lain, dan di Xiangyang tinggal Ah Luo dan Shuobude yang mereka andalkan sebagai patokan 
+untuk segala sesuatu yang menyangkut pengetahuan tentang struktur pemerintahan Dinasti Yuan. 
+
+"Entah bagaimana nasib mereka sekarang," kata Wei Yixiao sambil melamun. "Ini sudah lebih dari sebulan, dan kita belum menerima kabar apa pun dari 
+Jiaozhu. Sebenarnya siapa yang berkuasa di wilayah itu saat ini?'
+
+Sima Han berkata dengan gembira, "Wei Fuwang, sebenarnya kita menerima sebuah surat yang dikirim melalui burung merpati, tetapi kami tidak bisa 
+memperkirakan dari mana surat itu berasal. Tampaknya ada beberapa surat lain juga dikirim secara bersamaan dengan cara yang sama, tetapi isinya berbeda. 
+Saat ini anak-anak di belakang sedang sangat sibuk memecahkan teka-teki itu. Kita harapkan saja surat-surat itu sebenarnya datang dari Jiaozhu, karena mereka 
+membawa cukup banyak burung merpati ketika berangkat dari sini. Mereka juga didukung oleh jagoan mengacak-acak surat seperti Shangguan Wu dan Ah Zhu."
+
+Yu Daiyan dan Bei Jinyi berseru hampir serempak, "Nah!"
+
+"Kenapa aku sampai melupakan masalah itu?" kata Yu Daiyan. "Ini sudah lebih dari sebulan, dan mereka belum juga berhasil menyusun surat-surat itu?"
+
+Bei Jinyi segera bangkit dari kursinya sambil berkata, "Biar aku yang memeriksa apa yang sedang mereka kerjakan!"
+
+Sementara Bei Jinyi sedang memeriksa pekerjaan anak-anak muda yang berada di bawah pengawasannya, Ah Xiu berkata, "Jiaozhu dengan cerdik memilih wilayah 
+yang tidak diminati oleh hampir semua orang di Zhongyuan ini. Aku juga tidak bisa memastikan siapa sebenarnya yang berkuasa di Zhongxing saat ini."
+
+"Jangan-jangan itu wilayah kekuasaan Dashibadalu[^dashibadalu]," kata Wei Yixiao lagi.
+
+Ah Luo tersenyum simpul mendengar caranya mengucapkan nama Dash Badalugh. Nama-nama Mongolia memang agak sulit diucapkan dengan benar oleh suku Han 
+seperti Wei Yixiao. Ki Seung Nyang memakai cara yang sama supaya mereka semua lebih mudah membicarakan nama-nama itu, yaitu dengan memakai karakter yang 
+bunyinya cukup mirip dengan cara penyebutan aslinya, meskipun tetap akan terdengar aneh. Kadang-kadang Ki Seung Nyang atau Fan Yao sengaja memakai nama-nama 
+yang terdengar mirip lelucon supaya mereka bisa menertawakan para penguasa yang tidak mereka sukai. Akhirnya cara seperti ini dipakai secara luas di 
+Guangming Ding, dan menjadi kebiasaan sampai saat ini.
+
+"Jika Dash Badalugh yang secara resmi berkuasa di situ, maka aku tidak perlu memusingkannya," kata Ah Luo. "Karena saat ini Dash Badalugh sendiri 
+sudah cukup tua. Permaisuri Bayan adalah cucunya, dan sekarang dia pun sudah di atas tiga puluh tahun. Jendral tua itu tidak lagi punya ambisi 
+seperti dulu. Begitu tahu bahwa Huang Shang memberikan wilayah itu kepada Lihua, kemungkinan besar dia akan membiarkan Lihua berkuasa di situ. Yang kucemaskan 
+adalah Zhang Liangbi[^zhang-liangbi], yang menguasai wilayah agak ke selatan, dan sebagian dari wilayah Lihua kemungkinan besar berada di bawah komandonya."
+
+Ah Xiu menggelengkan kepalanya dengan yakin, dan berkata, "Ma, aku sudah memeriksa detil-detil yang dikirim ayah mengenai wilayah kekuasaan Lihua. 
+Jika Pingliang termasuk di situ, memang akan timbul masalah dengan Zhang Liangbi atau Li Siqi, tapi mulai dari Xihaigu ke utara sudah bukan wilayah Zhang Liangbi lagi. 
+Itu sudah termasuk wilayah Dash Badalugh. Sedangkan Dash Badalugh sendiri lebih suka tinggal agak jauh di utara, seperti Ih Ju[^ih-ju]."
+
+[^ih-ju]: Ih Ju adalah wilayah yang di jaman modern termasuk bagian dari Mongolia Dalam. Genghis Khan Plaza ada di situ.
+
+Bei Jinyi masuk dengan muka berseri sambil melambaikan sehelai kertas, yang berisi salinan dari sebagian hasil kerja anak-anak asuhannya.
+
+"Ini memang jauh dari selesai, tapi setidaknya kita bisa membacanya," katanya dengan gembira.
+
+```text
+
+Untuk semua orang di Xiangyang,
+
+Kami sudah tiba dengan selamat di Zhongxing.
+Di sini kami menemukan Guo Qi tumbuh dengan liar di banyak tempat, 
+berarti daerah ini cukup subur. 
+Sebagian besar penduduknya hidup sebagai peternak hewan.
+Hanya sedikit militer ditempatkan di sini, dan kami sedang berusaha untuk 
+bicara dengan mereka secara damai.
+
+```
+
+"Hanya segini?" tanya Wei Yixiao.
+
+"Apa yang kau harapkan?" kata Ah Luo sambil tersenyum. "Surat aslinya pasti diacak-acak begitu rupa, sehingga tidak mungkin lagi dibaca oleh orang 
+lain, selain pasukan ajaib Zhang Wuji itu. Bagaimana mereka bisa memecahkannya?"
+
+Bei Jinyi menyodorkan sepotong kertas kecil yang berisi karakter aneh, lalu berkata, "Mereka menemukan potongan gambar ini di antara semua karakter 
+yang ditulis dalam bahasa Han. Menurut Dongfang Yuxian, tulisan aslinya adalah tulisan tangan Zhang Wuji sendiri. Tetapi gambar aneh ini sampai lama 
+sekali tidak bisa mereka pahami, karena itu tidak ada patokan bagi mereka untuk mulai bekerja, sedangkan mereka yakin bahwa gambar itu adalah kuncinya. 
+Semua surat yang kita terima di sana-sini mengandung gambar ini."
+
+Semua orang bergegas mendatangi meja di mana Bei Jinyi meletakkan potongan kertas kecil itu, dan mereka semua segera menggeleng-gelengkan kepala 
+sebagai tanda tidak mengerti. "Ini kelihatannya mirip potongan tulisan dalam bahasa India, Arab atau Timur tengah lainnya," kata Yu Lianzhou. "Tapi aku tidak 
+mengerti bahasa Arab atau India."
+
+"Bukankah mereka bisa mencari salah seorang biksu yang memahami bahasa Sansekerta?" tanya Wei Yixiao. "Kalian sendiri juga seharusnya pernah belajar 
+dari Zhang Zhenren, yang tadinya adalah murid Shaolin, kan?"
+
+Yu Daiyan tertawa sambil berkata, "Wei Fuwang, sayangnya guru kami tidak memahami bahasa Sansekerta. Dan aku yakin ini juga bukan bahasa Sansekerta. 
+Nona Bei, apa kesimpulan mereka? Bukankah akhirnya mereka berhasil juga menerjemahkan sebagian kecil isi surat itu?"
+
+[^shang-tian]: Shang Dian (上天) atau Shang Di (上帝) dalam bahasa mandarin berarti 'Surga' atau 'Tuhan'.
+[^khuda]: Khuda (خُدا) adalah istilah dalam bahasa Urdu, yang mengacu pada istilah bahasa Persia kuno, untuk menyebut pribadi yang disembah oleh penganut Zoroaster sebagai Ahura Mazda.
+
+Bei Jinyi berkata, "Gambar ini ternyata adalah istilah kuno untuk menyebutkan 'Shang Tian'[^shang-tian] dalam bahasa Persia, yang saat ini juga dipakai 
+oleh bahasa Urdu — Khuda[^khuda]. Istilah itu diambil dari kepercayaan tradisional masyarakat Persia kuno — Ahura Mazda — yang kira-kira sama dengan 
+'Shang Dian'. Shen Feiling akhirnya teringat bahwa Jiaozhu membawa serta Shangguan Yinuo, yang sedang belajar bahasa Persia, dan tentu saja di situ 
+ada Xiao Zhao, yang memang keturunan Persia. Karena Fan Youshi membawa serta semua orang yang memahami bahasa Arab dan Persia pergi bersamanya ke 
+Fujian, di sini tidak ada lagi orang yang bisa memahaminya. Shen Feiling sebenarnya hanya menebak, dan kemudian mengutus salah seorang dari mereka 
+untuk pergi ke Quanzhou untuk menanyakan kepada teman-teman mereka di situ yang menurutnya akan bisa memahaminya dengan baik. Baru hari ini dia kembali 
+ke Xiangyang sambil membawa jawaban sederhana itu."
+
+"Astaga!" kata Wei Yixiao. "Kenapa mereka tidak mengatakannya kepadaku? Hanya untuk itu mereka mengutus orang pergi ke Fujian sendiri."
+
+"Karena itulah kunci untuk memecahkan teka-teki surat Jiaozhu itu," kata Shuobude sambil tertawa. "Pinsheng memang tahu istilah Khuda itu, tetapi 
+karakter aneh ini Pinsheng memang tidak mengenalnya."
+
+Ah Luo tertawa terbahak-bahak, lalu berkata, "Kalian semua menertawakan kekonyolan Qi Shimei, yang biasa menggunakan cara-cara tolol untuk menerjemahkan 
+istilah-istilah Goryeo atau bahasa lain ke dalam bahasa Han, tapi buktinya sekarang cara kerjanya yang paling berguna untuk kita."
+
+[^an-la]: An La (安拉) adalah terjemahan bebas istilah 'Allah' ke dalam bahasa mandarin menurut pengucapannya, tetapi karakter 'An' (安) yang dipakai di situ bermakna 'damai'm dan karakter La (拉) berarti 'menarik'.
+[^zhenzhu]: Zhen Zhu (真主) adalah istilah yang mewakili 'Allah', yang secara literal adalah 'Majikan Sejati'.
+
+"Setelah misteri itu terpecahkan, mereka lalu berusaha menebak apa yang dimaksud oleh Xiao Zhao atau Shangguan Yinuo," lanjut Bei Jinyi. "Karena sebelumnya 
+mereka secara ngawur telah mencoba menyusun ulang semua karakter yang terdapat dalam surat Jiaozhu hanya berdasarkan gambar itu sendiri, dan mereka gagal 
+menemukan sesuatu yang ada artinya. Berturut-turut mereka mencoba menyusun berdasarkan 'Tian', lalu 'Shang Tian', bahkan 'Zhenzhu'[^zhenshu], sampai akhirnya 
+mereka berhasil mendapatkan sesuatu melalui istilah 'An La'[^an-la]."
+
+Ah Xiu bersiul nyaring, lalu berkata sambil tertawa, "Itu pekerjaan yang sangat berat dan rumit. Tak heran semuanya makan waktu begini lama, padahal mereka 
+semua adalah pasukan terbaik Jiaozhu. Dongfang Yuxian dan Murong Bing sendiri sanggup menyusun semua karakter dalam surat yang kelihatannya tidak ada artinya 
+hanya dalam tempo lima belas menit. Dan setelah menemukan kuncinya mereka baru berhasil menerjemahkan potongan kecil ini?"
+
+Shuobude merangkapkan kedua tangannya sambil berkata, "Amituofu, meskipun berita itu hanya sepotong kecil, tapi isinya sangat berarti. Guoqu adalah 
+buah-buahan yang rasanya manis, dan daunnya bisa dimakan sebagai sayuran. Selain itu, Jiaozhu pernah menggunakan baik daging buahnya maupun daunnya 
+sebagai obat untuk mengatasi keracunan. Kami pernah menyaksikannya sendiri. Tapi yang terpenting dari semuanya adalah mereka telah tiba dengan selamat 
+di Zhongxing."
+
+Ah Luo segera berkata, "Dashi benar, mereka telah tiba dengan selamat, itulah yang terpenting."
+
+Yu Daiyan berkata, "Karena panduan mereka adalah dua karakter 'An La' yang kedua-duanya bukan karakter yang sederhana, maka pekerjaan menyusun ulang 
+isi surat Wuji itu pastilah membutuhkan waktu yang sangat lama, karena isi surat aslinya harus disusun ulang dua kali, dan dengan urutan terbalik. Kurasa 
+setidaknya mereka akan memerlukan waktu dua hari untuk menyelesaikan semuanya. Wuji setidaknya mengirim sepuluh lembar surat, yag dikirim melalui 
+tujuh brung merpati yang berlainan. Kurasa ada surat yang ditulis sebelum mereka mencapai kota Zhongxing."
+
+[^lao-tianye]: Lao Tian Ye (老天爺 atau 老天爷) adalah sebutan yang lebih umum untuk mewakili 'Tuhan', atau yang dimengerti oleh suku Han pada umumnya di masa itu sebagai penguasa tertinggi di alam semesta.
+
+Ah Xiu sangat menyukai cara Zhang Wuji dan Xiao Zhao mengacak-acak isi surat mereka dengan bantuan Shangguan Wu dan Ah Zhu. Ia berkata, "Kalau begitu 
+sekarang juga aku akan menulis surat kepada Ah Li dan Wang Baobao untuk menceritakan kabar gembira ini. Kita pakai cara mereka, dan mulai sekarang 
+sebaiknya kita membiasakan diri memakai karakter aneh itu, jika ingin menulis sesuatu yang berhubungan dengan Lao Tianye[^lao-tianye]. Wei Fuwang, aku 
+harus merepotkanmu untuk mengantarkan suratku, dan mengatakan kepada mereka apa yang harus dilakukan untuk membuka kode-kode rahasia itu."
+
+"Dengan senang hati," kata Wei Yixiao dengan gembira.
+
+Ah Xiu menulis sebuah pesan yang tak terlalu panjang, lalu Bei Jinyi segera membawanya ke ruang kerja Shen Feiling dan teman-temannya untuk diubah 
+menjadi kode-kode rahasia. Di dalamnya Ah Xiu menyelipkan satu karakter Persia kuno yang melambangkan 'Allah' itu dalam sebuah kalimat.
+
+"Mungkin Wuji sering mendengar pastor-pastor itu, atau beberapa suku Hui, mengatakan tentang Lao Tianye dengan cara mereka, lalu mencontohnya," kata Yu Lianzhou. 
+Ia masih terkagum-kagum melihat cara rumit yang diperlukan untuk menerjemahkan kembali isi surat Zhang Wuji dari Zhongxing. "Tapi aku sempat bicara 
+dengan Frater Andre ketika dia baru tiba dari Hanyang. Dia selalu menyebut Lao Tianye dengan cara biasa. Istilah yang dipakainya adalah Shangtian atau Shangdi."
+
+Ah Luo pernah mendengar ibu Zhao Min berdoa sambil menyebutkan 'Allah' seperti cara yang dipakai suku Hui Muslim. Ia berkata, "Kadang-kadang ibu mertuanya 
+juga menyebut Lao Tianye dengan meminjam istlah suku Hui. Setahuku Gereja Latin memang tidak mengharuskan mereka menyebut Lao Tianye dengan cara tertentu, 
+seperti Islam atau Yahudi. Li Furen adalah umat dari Gereja Latin yang sangat taat, tetapi anehnya dia sangat menentang perang, padahal sampai saat ini 
+Uskup Roma masih menyuruh tentara Kristen untuk maju dalam Perang Salib. Ah San waktu itu mengatakan kepadaku bahwa Li Furen sangat rajin mengunjungi 
+Gereja Timur yang ada di dekat tempat tinggal mereka di Ganzhou. Tampaknya dia sangat menghormati ibu Kubilai Khan — Sorghaghtani Beki — yang diagung-agungkan 
+semua orang di situ. Dia juga sempat mengatakan kepadaku sebelum pergi ke Ganzhou, supaya selanjutnya aku ikut mengawasi baik-baik tiga orang cucunya, 
+masing-masing Ziying, Ziwu dan Zijian. Minmin memberikan nama Latin — Alessandra — kepada Ziying. Nama itu diambil Minmin dari nama Alessandro 
+dari Makedonia, yang menaklukkan banyak wilayah — termasuk Persia — sampai ke India. Li Furen kurang menyukainya. Dia memberikan nama Latin Matteo, Francesco 
+dan Lorenzo, kepada semua anak-anak Minmin. Li Furen bahkan mengatakan kepadaku bahwa ketiga anak itu sebaiknya tidak usah diajari ilmu silat."
+
+"Apa makna nama ketiga anak laki-laki itu?" tanya Yu Lianzhou ingin tahu.
+
+"Setahuku, Matteo adalah nama seorang penulis ajaran Yesus, sedangkan Francesco adalah seorang pastor, yang dipandang kira-kira sama seperti guru kalian — Zhang Zhenren, 
+jadi dia adalah orang bijak. Aku tidak tahu pasti siapa itu Lorenzo," kata Ah Luo.
+
+"Itu diambil dari nama seorang martir Kristen yang tewas dibunuh kaisar di Roma, di jaman kuno," kata Ah Xiu. "Setidaknya itulah yang bisa kuingat. 
+Nama itu sendiri kalau tidak salah bermakna 'bersinar', atau 'terang'."
+
+"Dari mana kau tahu semua itu?" tanya Ah Luo heran.
+
+"Jika Mama rajin membaca buku-buku di perpustakaan istana, maka Mama juga akan tahu," jawab Ah Xiu sambil tersenyum.
+
+Yu Daiyan segera memahami maksud Li Furen memberikan nama-nama Latin itu bagi ketiga anak laki-laki Zhang Wuji. Mereka juga sudah mendengar cerita Ah Luo 
+tentang Ziwu dan Zijian, yang ingin meraih belati dari tangan kakeknya, sedangkan 'Jian' dalam nama Zijian itu berarti 'pedang', dan nama Ziwu sudah jelas 
+berarti 'ilmu perang' atau 'ilmu bela diri'. Ia bertanya, "Zihan juga memiliki nama Latin?"
+
+"Menurut Zhiruo, frater yang membaptisnya memberikan nama Agostin," jawab Ah Luo. "Itu nama seorang pastor lain di jaman dulu, yang sebelumnya adalah 
+seorang penganut Ming Jiao."
+
+"Oh," kata Yu Daiyan dan Yu Lianzhou, hampir bersamaan. Mereka saling berpandangan, tetapi tidak mengatakan apa-apa. Bagi mereka ini berarti Frater Andre 
+ternyata punya kekhawatiran yang sama seperti Zhang Sanfeng mengenai ajaran Ming Jiao. Mereka tentu saja tidak ingin mengatakannya, mengingat Ah Luo 
+sendiri juga adalah murid Ming Jiao. Yu Daiyan berkata sambil tersenyum, "Jika Shifu mendengar cerita ini, dia pasti akan sependapat dengan Li Furen. 
+Nama Zihan sendiri pastilah diambil dari nama Sungai Han oleh Zhou Zhiruo. Itu tempat di mana dia pertama kalinya bertemu dengan Wuji dan juga Shifu." 
+
+Kecuali Shuobude dan Ah Xiu, semua orang lain hanya bisa menduga-duga apa yang sedang dipikirkan oleh Yu Daiyan mengenai nama Zhang Zihan itu, dan 
+hampir semuanya menyimpulkan bahwa Yu Daiyan hanya sekedar berbasa-basi. Ah Xiu yang sudah mendengar sendiri apa yang dikhawatirkan oleh Zhang Sanfeng 
+segera memahami dengan tepat pikiran Yu Daiyan, sedangkan Shuobude menyimpulkan bahwa Yu Daiyan mendukung gagasan Frater Andre untuk menetralisir pengaruh 
+ajaran Ming Jiao yang berkembang di dalam masyarakat, yang mendorong kebencian suku Han kepada orang-orang Mongolia. Kesimpulan Shuobude ini memang tidak 
+terlalu meleset.
+
+"Menurut Ah Li, sebelumnya Wang Baobao langsung menyuruh Ah San berangkat ke Ganzhou sendirian sebelum Wuji datang," kata Ah Luo lagi. "Mengapa sampai 
+sekarang kita masih belum mendengar kabarnya lagi? Ini sudah lebih dari dua bulan setelah dia pergi, aku ingin tahu bagaimana kabar mereka di Ganzhou. 
+Seharusnya Wuji juga mengutus Ah Er atau Ah Da kembali ke sini mengantar surat atau apa pun, bukankah cara itu pasti akan lebih cepat? Mengapa harus 
+memakai cara yang aneh-aneh seperti kode rahasia segala?"
+
+"Jika tidak ada kabar dari Ganzhou, maka itu berarti mereka baik-baik saja," kata Yu Lianzhou. "Seharusnya kita memikirkan kenapa belum ada kabar sedikit pun 
+mengenai delapan orang biarawan Kristen yang hilang itu. Para anggota Kai Pang di Chang'an juga belum menemukan jejak mereka, sedangkan pastor tua itu 
+terus menguatirkan keselamatan mereka. Meskipun Zhongyuan ini sangat luas, tetapi delapan orang dewasa, apalagi yang sangat menyolok karena mereka orang-orang 
+Latin, tentu saja tidak akan menghilang begitu saja. Seandainya mereka tewas dibunuh orang, tetap harus ada jejaknya."
+
+"Kecuali jika mereka kembali ke Xinjiang, dan tidak memberitahu siapa pun yang ada di sini," kata Wei Yixiao.
+
+"Tidak," kata Yu Lianzhou lagi. "Karena saat ini adikku — Zhang Songxi — ada di Kaifeng, dan sudah bertanya kepada pastor itu. Mereka sudah mengirim 
+surat ke Xinjiang, dan sudah menerima jawabannya. Ternyata delapan orang itu tidak kembali ke Xinjiang."
+
+
+
+
+
+
+
+
+
+
+
 
 
 

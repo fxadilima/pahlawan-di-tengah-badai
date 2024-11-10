@@ -169,7 +169,39 @@ In general, social attitude towards courtesans was negative because of rigid cla
 The most famous Song courtesan-poet was Li Shishi (1062 – 1127), who had a secret passionate love affair with Song Emperor Huizong (1082 – 1135).
 
 
-## Stairway To Heaven
+## Semu
+
+Semu Ren (色目人) adalah ranking II dalam struktur sosial yang dibentuk Kubilai Khan. Cukup menarik, dalam hal ini Google Translate menerjemahkan 
+istilah ini ke dalam bahasa Indonesia menjadi 'Orang yang penuh warna'. Memang kategori menjadi tempat bagi warga keturunan Arab, Persia, Hui dan 
+lain-lainnya, yang tak dapat dicakup oleh kategori 1, 3 dan 4.
+
+## Han Ren
+
+Han Ren (漢人) dalam struktur sosial Dinasti Yuan sebenarnya ditujukan bagi mereka-mereka yang berasal dari wilayah Song Utara, yang tadinya dikuasai 
+oleh suku Jurchen dan Khitan. Tetapi akhirnya semua orang yang berdiam di utara akan digolongkan ke dalam kelompok ini dalam kehidupan sehari-hari. 
+
+## Man Zi
+
+Man Zi (蠻子) yang berarti 'orang barbar', atau setidaknya Nan Zi (南子) yang berarti 'Orang selatan', adalah kelas sosial yang ditujukan bagi warga 
+suku Han yang sesungguhnya, seperti yang dipahami oleh suku Han sendiri.
+
+
+## Perang
+
+Li Wu 李武, Cui De 崔德, Mao Gui 毛貴 adalah militer-militer Hongjin Qiyi yang dilawan oleh kelompok Chaghan Temur, Bolad Temur, Li Siqi dan Zhang Liangbi.
+
+## Allah
+
+The word for God in Persian is Khuda (خُدا). Khuda was originally used as a noun to refer to Ahura Mazda, the Zoroastrian God.
+
+
+## Nama Ningxia
+
+Ning Xia (宁夏), sebelumnya adalah wilayah Kerajaan Xia Barat, atau Xixia. Karakter 'Ning' itu bermakna 'damai' atau 'tenang', yang sengaja dipakai 
+untuk menggantikan 'Barat', tetapi tetap memakai nama 'Kerajaan Xia'.
+
+
+### Stairway To Heaven
 
 There's a lady who's sure all that glitters is gold
 And she's buying a stairway to Heaven
@@ -213,5 +245,9 @@ The tune will come to you at last
 When all are one, and one is all
 To be a rock and not to roll
 And she's buying a stairway to Heaven
+
+## Mengenai Ki Seung Nyang
+
+Guru Ki Seung Nyang bernama Duoluo Haoyu, dilahirkan sekitar tahun 1230. Ayah Ki Seung Nyang dilahirkan tahun 1266.
 
 

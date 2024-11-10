@@ -464,7 +464,7 @@ dan Zhao Min ikut menyanyikan lagu-lagu gembira, untuk menyambut kelahiran Juru 
 tetapi Zhou Zhiruo harus belajar menyanyikannya. Di malam Natal, mereka berdoa bersama di sekeliling istana, lalu menggantungkan kertas-kertas bertuliskan 
 harapan mereka di ranting-ranting pohon cemara itu. 
 
-Seminggu kemudian, mereka kembali berkumpul untuk merayakan Tahun Baru menurut kalender Gregorian. Saat itu kelahiran anak Zhou Zhiruo hanya tinggal 
+Seminggu kemudian, mereka kembali berkumpul untuk merayakan Tahun Baru menurut kalender Masehi. Saat itu kelahiran anak Zhou Zhiruo hanya tinggal 
 menunggu waktu, tetapi ia tetap berkumpul di halaman istana bersama dengan para penduduk kota yang sedang bergembira. Di tengah pesta itu, Zhou Zhiruo 
 mengeluh sambil memegang perutnya, ternyata air ketubannya pecah. Mereka segera membawanya memasuki istana, lalu memanggil seorang wanita dari tempat 
 penampungan pengungsi yang sudah terbiasa membantu proses kelahiran.
@@ -483,7 +483,7 @@ bicara. "Furen, yang satu ini sungguh-sungguh Zhou Xiangzhang kecil!" katanya.
 
 Saat itu Frater Andre mengetuk pintu, lalu dipersilakan masuk. Ia tertawa gembira dan mengucapkan selamat atas kelahiran bayi kembar Zhou Zhiruo.
 
-[^ying]: Ying (tradisional 應 atau disederhanakan 应), secara literal berarti pintar atau berani. Nama Ziying (子应) bisa diartikan sebagai 'anak pintar' atau 'anak pemberani'.
+[^ying]: Ying (tradisional 應 atau disederhanakan 应), secara literal berarti pintar atau berani. Nama Ziying (子应) bisa diartikan sebagai 'anak pintar' atau 'anak pemberani', atau bahkan 'pemenang'.
 
 Wanita yang menolong kelahiran kedua bayi itu berkata dengan gembira, "Kedua anak ini lahir di malam Tahun Baru, ini pertanda pertolongan Allah bagi kita 
 semua!"
@@ -498,8 +498,10 @@ ini kepada Yesus?"
 keputusanku ini. Aku juga minta supaya An Shifu memilih nama untuk anak laki-laki ini." Ia kemudian berpaling kepada Zhao Min sambil tersenyum dan 
 berkata, "Meizi, kau lebih kenal nama-nama Kristen, mungkin kau bisa membantuku memilih nama untuk anak perempuan kita."
 
+[^alessandro]: Nama ini lebih kita kenal sebagai Alexander Agung dari Makedonia.
+
 Zhao Min sangat gembira, ia berkata, "Sinar mata anak ini menunjukkan kecerdasannya, dan kelihatannya dia juga pemberani. Aku jadi teringat cerita 
-kuno tentang seorang penakluk dunia yang bernama Alexander. Jadi aku menamai anak ini Alexandra!"
+kuno tentang seorang penakluk dunia yang bernama Alessandro dari Makedonia[^alessandro]. Jadi aku menamai anak ini Alessandra!"
 
 Semua orang bersorak gembira, lalu Zhou Zhiruo berkata, "Nama itu kedengarannya cantik sekali. Tapi aku harus belajar bagaimana cara mengucapkannya."
 
@@ -508,11 +510,14 @@ kita bisa memanggilnya Ziying[^ying]."
 
 Zhou Zhiruo sangat gembira. Ia berkata, "Meizi! Nama itu sungguh-sungguh cocok — Zhang Ziying!"
 
-Malam itu juga Frater Andre membaptis kedua bayi yang baru dilahirkan Zhou Zhiruo itu, dengan disaksikan oleh semua orang yang sedang berkumpul 
-di halaman istana. Ia memberikan nama Agustinus bagi anak laki-laki Zhou Zhiruo, menurut nama Bapa Gereja yang juga pernah menjadi penganut Ming Jiao, sebelum dibaptis. Dalam hati 
-ia berharap bahwa anak ini akan selalu mengingat asal-usul namanya, dan mengikuti semangat hidup Agustinus sendiri.
+[^agostin]: Nama Agostin ini tentu saja lebih akrab sebagai Santo Agustinus dari Hippo bagi para penganut Kristen atau Katolik di Indonesia.
 
-Zhou Zhiruo termenung setelah mendengar penjelasan Frater Andre mengenai nama Agustinus yang diberikan sebagai nama anaknya. Saat ini mereka bertiga 
+Malam itu juga Frater Andre membaptis kedua bayi yang baru dilahirkan Zhou Zhiruo itu, dengan disaksikan oleh semua orang yang sedang berkumpul 
+di halaman istana. Ia memberikan nama Agostin[^agostin] bagi anak laki-laki Zhou Zhiruo, menurut nama Bapa Gereja yang juga pernah menjadi penganut Ming Jiao, sebelum dibaptis. Dalam hati 
+ia berharap bahwa anak ini akan selalu mengingat asal-usul namanya, dan mengikuti semangat hidup Agostin sendiri. Bagi Frater Andre, bagaimana pun juga, Ming Jiao 
+tetap mengandung unsur 'sesat', khususnya jika ia teringat akan pengakuan dari Agostin yang pernah dibaca atau didengarnya dari ajaran gereja yang diyakininya.
+
+Zhou Zhiruo termenung setelah mendengar penjelasan Frater Andre mengenai nama Agostin yang diberikan sebagai nama anaknya. Saat ini mereka bertiga 
 juga sedang berusaha memperbaiki ajaran Ming Jiao yang mereka anggap tidak sesuai dengan apa yang mereka yakini. Setiap kali teringat akan hal ini, 
 mereka selalu merasakan beban yang sangat berat menghimpit bahu mereka. Ia berharap anaknya akan tumbuh seperti Sungai Han, yang mengalir sepanjang 
 masa, dan menghubungkan wilayah sebelah utara dan selatan sungai itu. Di tepian sungai itulah ia untuk pertama kalinya bertemu dengan Zhang Wuji kecil, 
