@@ -1044,7 +1044,7 @@ istilah-istilah Goryeo atau bahasa lain ke dalam bahasa Han, tapi buktinya sekar
 
 "Setelah misteri itu terpecahkan, mereka lalu berusaha menebak apa yang dimaksud oleh Xiao Zhao atau Shangguan Yinuo," lanjut Bei Jinyi. "Karena sebelumnya 
 mereka secara ngawur telah mencoba menyusun ulang semua karakter yang terdapat dalam surat Jiaozhu hanya berdasarkan gambar itu sendiri, dan mereka gagal 
-menemukan sesuatu yang ada artinya. Berturut-turut mereka mencoba menyusun berdasarkan 'Tian', lalu 'Shang Tian', bahkan 'Zhenzhu'[^zhenshu], sampai akhirnya 
+menemukan sesuatu yang ada artinya. Berturut-turut mereka mencoba menyusun berdasarkan 'Tian', lalu 'Shang Tian', bahkan 'Zhenzhu'[^zhenzhu], sampai akhirnya 
 mereka berhasil mendapatkan sesuatu melalui istilah 'An La'[^an-la]."
 
 Ah Xiu bersiul nyaring, lalu berkata sambil tertawa, "Itu pekerjaan yang sangat berat dan rumit. Tak heran semuanya makan waktu begini lama, padahal mereka 
