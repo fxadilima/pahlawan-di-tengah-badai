@@ -1161,18 +1161,18 @@ begitu Xiao Gong meninggal, dia langsung dijebak beramai-ramai."
 akan mengubah Qin secara mendasar, dan itu didukung oleh Xiao Gong sendiri. Jika Wei Yang atau Xiao Gong membiarkan tindakan Ying Si hanya karena Ying Si 
 adalah anak Xiao Gong, maka siapa yang akan menaati peraturan itu nantinya?"
 
-"Kurasa kau hanya kuatir nantinya Alexandra atau Zijian membunuh orang sembarangan, tepat ketika kau ingin mengeluarkan larangan untuk melakukannya," kata 
+"Kurasa kau hanya kuatir nantinya Alessandra atau Zijian membunuh orang sembarangan, tepat ketika kau ingin mengeluarkan larangan untuk melakukannya," kata 
 Ah Xiu dengan nada datar. "Kurasa mereka juga belum tentu akan melakukan hal semacam itu, karena kita semua pasti akan mendidik mereka dengan benar."
 
 Zhang Wuji tidak menjawab. Ibu mertuanya memang diam-diam sudah memperingatkannya mengenai hal itu sebelum meninggalkan Kaifeng, dan saat ini pikirannya 
 dipenuhi oleh kekuatiran mengenai persengketaan antar kelompok di Fujian, dan juga apa yang dilakukan oleh para pengikut Hongjin Qiyi di Goryeo. Mau tak 
-mau ia lalu memikirkan tentang nama kedua anaknya, yang masing-masing berarti 'ilmu perang' dan juga 'pedang', sedangkan Zhao Min memberi nama Alexandra 
+mau ia lalu memikirkan tentang nama kedua anaknya, yang masing-masing berarti 'ilmu perang' dan juga 'pedang', sedangkan Zhao Min memberi nama Alessandra 
 kepada Ziying, yang diambil dari nama Alexander Agung dari Makedonia. Ia merasa kekuatiran ibu mertuanya sungguh sangat beralasan, erutama sekali jika ia 
 mengingat betapa cepatnya Ziwu dan Zijian bereaksi untuk meraih pisau dari tangan kakek mereka.
 
 Xiao Zhao berkata sambil tertawa, "Gongzi, mereka semuanya masih sangat kecil, kurasa kekuatiran Gongzi agak berlebihan."
 
-"Lalu mengapa Minmin memberi nama Alessandra kepada Ziying?" tanya Zhang Wuji.
+"Lalu mengapa Minmin memberikan nama Alessandra bagi Ziying?" tanya Zhang Wuji.
 
 "Kurasa hanya karena nama itu enak didengar, dan memang terasa manis untuk anak perempuan," kata Ah Xiu. "Minmin juga tidak akan sembarangan mengajar mereka, 
 apalagi sekarang ibunya sendiri ada di situ untuk mengawasinya. Kau sungguh tidak perlu kuatir."
