@@ -342,8 +342,89 @@ surat-surat itu sekilas, ia mengambil dua lembar surat yang ditulis oleh Zhang W
 
 "Kami sama sekali tidak berani melihatnya," kata Zhang Yishang. "Jadi kami tidak tahu."
 
-"Kalian sangat bijaksana," kata Li Furen sambil tersenyum. "Seringkali lebih baik jika tidak tahu."
+"Kalian sangat bijaksana," kata Li Furen sambil tersenyum. "Seringkali lebih baik jika tidak tahu. Nah, setelah ini berikan semua surat ini kepada Zhou Furen. 
+Dia sedang berada di rumahku."
 
+Ia sendiri kemudian masuk ke dalam gereja untuk mengaku dosanya.
+
+Ketika tiba kembali di rumahnya, Li Furen melihat semua orang sedang menikmati buah wolfberry yang baru mereka terima dari Zhang Yishang dan Wang Bashuai 
+dengan gembira. Zhou Zhiruo sedang sibuk di dapur untuk mengolah daunnya menjadi beberapa jenis masakan, tetapi sebagian besar masakannya sudah siap dimakan, 
+jadi ia segera berkumpul bersama semua anak-anak untuk mengajak mereka mencicipi masakannya.
+
+"Ma, jangan mencemaskan frater-frater yang hilang itu lagi," kata Zhao Min sambil mengisi mangkuknya dengan sup daging yang dicampur potongan kentang, 
+jamur, tahu, daun dan buah wolfberry hasil olahan Zhou Zhiruo. "Li Sicui baru kembali dari Guangming Ding. Ternyata mereka semua tersesat sampai jauh sekali, dan akhirnya 
+diselamatkan oleh para pendekar dari Kongtong Pai yang sedang lewat di dekat Danau Qinghai. Jadi mereka akhirnya dibawa ke Guangming Ding, dan untuk sementara 
+tinggal bersama dengan Yang Zuoshi dan orang-orang Ming Jiao di situ."
+
+Li Furen segera merangkapkan kedua tangannya dan mengucapkan syukur, "Yesus menyelamatkan mereka! Mengapa lama sekali baru ditemukan?"
+
+"Mereka berputar-putar tanpa arah, dan seringkali terjebak di tengah gurun pasir. Bagaimana orang akan menemukan mereka?" kata Zhao Min sambil tertawa. 
+Ia menyuapkan sesendok kuah sup bersama dengan daun dan sedikit buah wolfberry ke dalam mulut Ziying, yang dengan segera menyukainya, lalu membuka 
+mulutnya untuk menerima suapan berikutnya. "Zhou Jiejie, kelihatannya anak-anak sangat menyukai sup yang dicampur daun guoqi ini."
+
+"Tentu saja mereka suka, karena buahnya juga kumasukkan ke dalam sup itu," kata Zhou Zhiruo sambil tertawa. "Daunnya agak pahit, jika kita tidak memasukkan 
+buahnya, mereka pasti tidak mau makan."
+
+"Wuji Gege mengirimkan puluhan ekor burung merpati, supaya kita bisa lebih cepat mengirim surat kepada mereka," kata Zhao Min lagi. "Ah San belum kembali, 
+karena aku menyuruhnya ke Kaifeng dan Xiangyang. Entah bagaimana keadaan di sana sekarang."
+
+"Oh, begitukah?" kata Li Furen. Matanya berkedip sedikit, dan kemudian ia melangkah ke meja tulisnya, mengambil sehelai kertas kosong, dan mulai menulis 
+sebuah surat kepada Zhang Wuji. Ia berkata, "Jing'er, kirimkan segera surat ini ke Zhongxing. Sebentar lagi kita akan menghadapi musim dingin. Mereka di sana 
+membuat mantel-mantel bulu dari hewan ternak mereka sendiri. Aku ingin melihatnya!"
+
+"Baik, Furen," kata Jing'er.
+
+"Ma, bagaimana jika kita ke sana?" tanya Zhao Min. "Kita bisa mengajak anak-anak, supaya mereka juga merayakan Natal dan Tahun Baru, sekaligus merayakan 
+ulang tahun mereka sendiri di kota itu. Ulang tahun Matteo, Francesco dan Lorenzo semuanya kita rayakan di sana."
+
+"Jangan," kata ibunya. "Mereka semuanya masih kecil, dan aku sudah mulai tua. Jika kita yang ke sana, pasti akan makan waktu, apalagi menjelang 
+musim dingin. Tadi aku sudah menyuruh Wuji datang sendirian, jika dia memang punya waktu. Dengan begitu kita semua akan lebih cepat bertemu dengannya."
+
+"Bukankah Torebeg ada di sana sekarang?" tanya Zhou Zhiruo. "Jadi sekarang ini Wuji Gege pasti sudah punya banyak waktu untuk bepergian. Lihua dan Bibi Mei 
+pasti bisa mengelola semuanya untuk sementara. Jika para pengungsi itu sudah menetap, apa lagi yang perlu dikuatirkan?"
+
+"Kau belum membaca semuanya," kata Zhao Min. "Ayah ternyata mengirim sepuluh ribu prajurit ke sana, dan Dajie mengirim dua puluh ribu. Mereka tidak mungkin 
+mengirim orang sebanyak itu ke wilayah yang tidak diminati orang, jika tidak ada sesuatu yang bersifat darurat. Wuji Gege memang tidak mengatakan apa-apa, 
+karena dia belum tahu. Dajie dan Zhu'er yang mengatakannya kepada Ah San, dan Ah San mengirimnya dari Xiangyang melalui burung merpati. Semua isi surat 
+diacak-acak sampai aku memerlukan waktu lama untuk menyusunnya kembali. Untungnya ada petunjuk khusus dari Murong Bing yang bisa kupahami."
+
+"Untuk apa ayahmu mengirim prajurit ke sana?" tanya Li Furen. 
+
+"Karena pasukan gabungan dari Li Siqi, Zhang Liangbi dan Bolad Temur dikalahkan para pemberontak di Shandong," kata Zhao Min. "Prajurit Torebeg sedikit, 
+karena itu ayah mengirim orang untuk memperkuat perbatasan dengan Li Siqi dan Zhang Liangbi. Ini karena Li Wu, Cui De dan Mao Gui masih selalu berusaha 
+menguasai wilayah utara, meskipun Mao Gui beberapa kali gagal menguasai Dadu."
+
+"Li Wu, Cui De dan Mao Gui itu pengikut Peng Yingyu, kan?" tanya Zhou Zhiruo. "Aku tidak pernah bertemu dengan mereka sebelumnya."
+
+"Kurasa mereka bertiga termasuk orang-orang yang kalian kalahkan ketika Miejue Shitai menyerang Guangming Ding," kata Zhao Min. 
+
+Ziying mendengar ibunya mengalahkan orang, dan ia berteriak-teriak kegirangan sambil mengacung-acungkan pedang kayunya. Melihat ulahnya, ketiga 
+adikya yang tidak mengerti ikut berteriak-teriak. Suasana rumah menjadi sangat berisik. Zihan yang sedang disuapi oleh neneknya hanya tertawa melihat 
+ulah Ziwen yang juga sedang duduk di pangkuan Li Furen, sambil disuapi oleh Lu Xian.
+
+[^gui]: Gui (鬼) dalam bahasa mandarin berarti 'Hantu'. Tetapi nama Mao Gui (毛貴) berarti 'mahal', yang diucapkan dengan cara berbeda.
+
+"Popo, Mama mengalahkan Gui[^gui]," kata Zihan sambil tertawa. Ia merasa nama itu lucu, dan sama sekali tidak membuatnya takut.
+
+Zhou Zhiruo mengambil dua lembar kertas kosong, lalu menulis dua karakter dalam huruf sangat besar. Li Furen berkata sambil tersenyum, "Nama orang itu 
+adalah Gui (貴)." Sementara ia mengatakannya, Zhou Zhiruo menunjukkan karakter pertama yang ditulisnya, sementara Li Furen melanjutkan, "dan bukan 
+Gui dalam arti 'hantu'." Ia menunjuk karakter kedua yang dipegang Zhou Zhiruo dengan tangan kirinya.
+
+Saat ini ketiga anak laki-laki Zhao Min sudah pandai mengoceh dalam bahasa yang hanya bisa dmengerti oleh mereka sendiri. Mereka sering mendengar Jing'er 
+dan teman-temannya bicara tentang hantu untuk bercanda. Setelah mendengar orang-orang dewasa itu menyebutnya berkali-kali, Ziwen menirukannya sambil 
+tertawa kegirangan dan menepuk-nepuk lututnya sendiri. Tampaknya ia senang karena berhasil menyebutkan kata itu dengan benar. Lalu ia berusaha bangkit 
+berdiri untuk mendekati Zhou Zhiruo yang sedang duduk di dekat meja tulis. Lu Xian buru-buru meletakkan mangkuk sup yang sedang dipegangnya, lalu 
+membantu Ziwen berjalan ke sana.
+
+Mengetahui maksud Ziwen, Zhou Zhiruo memberikan kuasnya dan sehelai kertas kosong, lalu membiarkan Ziwen menggambar di atas kertas itu. Anak itu memegang 
+kuas dengan cara yang salah, dan berusaha menirukan gambar karakter besar yang ditulis Zhou Zhiruo sebelumnya. Ia tentu saja menulis dengan urutan yang 
+salah, karena karakter Gui yang berarti hantu itu bukan karakter yang terlalu sederhana, tetapi ternyata ia berhasil menirukan gambar itu, meskipun 
+hasil tulisannya jelek.
+
+Ini pertama kalinya mereka melihat Ziwen berhasil menirukan gambar karakter yang ada artinya. Semua orang bersorak sambil bertepuk tangan memujinya. 
+Baik Zihan maupun Ziying yang setahun lebih tua dari Ziwen tidak bisa melakukan hal seperti itu. Li Furen sangat gembira melihat cucu kesayangannya ternyata 
+sesuai dengan apa yang diharapkannya selama ini. Ia berkata, "Mulai sekarang, anak-anak harus belajar menulis setiap hari. Kalian harus membawa hasil tulisan 
+mereka yang terbaik, dan memamerkannya di sini."
 
 
 
