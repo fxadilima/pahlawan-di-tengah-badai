@@ -1,0 +1,21 @@
+{
+  "tasks": {
+    "esm:add": "deno run -A https://esm.sh/v135 add",
+    "esm:update": "deno run -A https://esm.sh/v135 update",
+    "esm:remove": "deno run -A https://esm.sh/v135 remove"
+  },
+  "imports": {
+    "markdown-it": "https://esm.sh/v135/*markdown-it@14.1.0",
+    "markdown-it/": "https://esm.sh/v135/*markdown-it@14.1.0/"
+  },
+  "scopes": {
+    "https://esm.sh/v135/": {
+      "argparse": "https://esm.sh/v135/argparse@2.0.1",
+      "entities": "https://esm.sh/v135/entities@4.5.0",
+      "linkify-it": "https://esm.sh/v135/linkify-it@5.0.0",
+      "mdurl": "https://esm.sh/v135/mdurl@2.0.0",
+      "punycode.js": "https://esm.sh/v135/punycode.js@2.3.1",
+      "uc.micro": "https://esm.sh/v135/uc.micro@2.1.0"
+    }
+  }
+}

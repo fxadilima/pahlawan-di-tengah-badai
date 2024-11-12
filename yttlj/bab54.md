@@ -453,7 +453,44 @@ Zhou Zhiruo melihat bahwa nama Ziying yang diganti oleh Li Furen itu bermakna 'a
 Zhao Min. Selain itu ia tak ingin berdebat dengan Li Furen, yang mereka anggap sebagai pimpinan keluarga. Ia memberi isyarat kepada Zhao Min supaya 
 tidak membantah lagi, lalu memanggil anak itu menurut nama barunya sambil tersenyum, "Ying'er, ucapkan terima kasih kepada Wai Zumu."
 
-Ziying belum menyadari perubahan dalam namanya, dan hanya menuruti perintah ibunya untuk berterima kasih. 
+Ziying belum menyadari perubahan dalam namanya, dan hanya menuruti perintah ibunya untuk berterima kasih, setelah itu ia kembali lagi ke dekat Zhao Min.
+Melihat hal ini, Li Furen mengerutkan alisnya dan bertanya, "Zhiruo, bagaimana dia bisa lebih dekat dengan Minmin?"
+
+Zhou Zhiruo tertawa sambil berkata, "Mungkin karena aku sering memarahi mereka berdua — Zihan dan Ziying. Jadi mereka hanya takut kepadaku, tetapi bukan berarti 
+sungguh-sungguh taat. Ma, tidak ada cara lain untuk membuat mereka menurut kecuali membentak mereka."
+
+Li Furen sering memergoki Zhou Zhiruo sedang membentak Ziying untuk mencegahnya bermain-main dengan benda-benda berbahaya, tetapi ia tidak melihat 
+Zihan punya kebiasaan yang sama. Ia bertanya, "Mengapa kau harus membentak Zihan?"
+
+Zhou Zhiruo hanya menghela nafas panjang, dan tidak segera menjawab. Sedetik kemudian ia bergumam, "Ini kelihatannya _takdir_."
+
+Zhao Min tertawa terbahak-bahak melihat ibunya heran. 
+
+"Apanya yang lucu?" tanya Li Furen.
+
+Zhao Min hanya menoleh kepada Sikong Juimei yang saat itu sedang menyuapi Zihan, lalu menggerakkan kepalanya sebagai isyarat supaya ia yang bicara. 
+Tetapi Sikong Jiumei hanya tersenyum tipis, dan tidak menjawab. Karena itu Zhao Min berkata, "Dua hari yang lalu Zhou Jiejie melihat Zihan sedang mencium 
+pipi Jiumei."
+
+Li Furen tertegun, lalu mengamati Sikong Jiumei baik-baik. Tak lama kemudian ia tertawa ringan sambil berkata, "Zihan belum genap dua tahun, tapi dia 
+tentu saja anak laki-laki, sedangkan Jiumei begitu cantik, tentu saja dia ingin menciumnya. Kau bisa memberitahu dia dengan lembut, tidak usah membentaknya."
+
+Zhao Min kembali tertawa. Tetapi Zhou Zhiruo berkata, "Meizi! Ini sama sekali tidak lucu."
+
+Saat ini Sikong Jiumei sudah menjelang delapan belas tahun, dan ia sangat cantik. Mendengar pujian tulus dari Li Furen, pipinya merona. Ia berkata, "Jiumei 
+selalu menganggap Han'er dan Ying'er sebagai adik Jiumei sendiri. Furen jangan kuatir."
+
+"Wah, kau sama sekali tidak mengerti," kata Zhou Zhiruo. "Tapi aku juga tidak bisa membahasnya. Pokoknya lain kali jangan biarkan Zihan bertingkah sembarangan kepadamu. 
+Dia tetaplah anak laki-laki."
+
+Sampai di sini Li Furen mulai mengerti apa yang sedang dipikirkan oleh Zhou Zhiruo. Ia menyuruh Jing'er dan teman-temannya membawa semua anak-anak ke 
+ruangan lain. Lalu berkata dengan nada lebih serius, namun tetap lembut, "Zhiruo, anak itu _mungkin_ memang punya bakat untuk menjadi seperti ayahnya, 
+tetapi aku yakin _bukan_ seperti kakeknya. Dan dia tetaplah masih belum genap dua tahun."
+
+
+
+
+
 
 
 
