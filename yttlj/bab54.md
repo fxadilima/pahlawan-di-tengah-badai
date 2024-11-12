@@ -399,7 +399,7 @@ menguasai wilayah utara, meskipun Mao Gui beberapa kali gagal menguasai Dadu."
 "Kurasa mereka bertiga termasuk orang-orang yang kalian kalahkan ketika Miejue Shitai menyerang Guangming Ding," kata Zhao Min. 
 
 Ziying mendengar ibunya mengalahkan orang, dan ia berteriak-teriak kegirangan sambil mengacung-acungkan pedang kayunya. Melihat ulahnya, ketiga 
-adikya yang tidak mengerti ikut berteriak-teriak. Suasana rumah menjadi sangat berisik. Zihan yang sedang disuapi oleh neneknya hanya tertawa melihat 
+adiknya yang tidak mengerti ikut berteriak-teriak. Suasana rumah menjadi sangat berisik. Zihan yang sedang disuapi oleh neneknya hanya tertawa melihat 
 ulah Ziwen yang juga sedang duduk di pangkuan Li Furen, sambil disuapi oleh Lu Xian.
 
 [^gui]: Gui (鬼) dalam bahasa mandarin berarti 'Hantu'. Tetapi nama Mao Gui (毛貴) berarti 'mahal', yang diucapkan dengan cara berbeda.
