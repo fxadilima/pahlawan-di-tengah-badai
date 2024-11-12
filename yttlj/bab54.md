@@ -404,7 +404,9 @@ ulah Ziwen yang juga sedang duduk di pangkuan Li Furen, sambil disuapi oleh Lu X
 
 [^gui]: Gui (鬼) dalam bahasa mandarin berarti 'Hantu'. Tetapi nama Mao Gui (毛貴) berarti 'mahal', yang diucapkan dengan cara berbeda.
 
-"Popo, Mama mengalahkan Gui[^gui]," kata Zihan sambil tertawa. Ia merasa nama itu lucu, dan sama sekali tidak membuatnya takut.
+[^laolao]: Laolao (姥姥) adalah sebutan bagi nenek dari pihak ibu yang umumnya digunakan di wilayah utara. Wai Zumu (外祖母) atau Waipo (外婆) lebih umum digunakan di selatan.
+
+"Wai Zumu[^laolao], Mama mengalahkan Gui[^gui]," kata Zihan sambil tertawa. Ia merasa nama itu lucu, dan sama sekali tidak membuatnya takut.
 
 Zhou Zhiruo mengambil dua lembar kertas kosong, lalu menulis dua karakter dalam huruf sangat besar. Li Furen berkata sambil tersenyum, "Nama orang itu 
 adalah Gui (貴)." Sementara ia mengatakannya, Zhou Zhiruo menunjukkan karakter pertama yang ditulisnya, sementara Li Furen melanjutkan, "dan bukan 
@@ -426,12 +428,32 @@ Baik Zihan maupun Ziying yang setahun lebih tua dari Ziwen tidak bisa melakukan 
 sesuai dengan apa yang diharapkannya selama ini. Ia berkata, "Mulai sekarang, anak-anak harus belajar menulis setiap hari. Kalian harus membawa hasil tulisan 
 mereka yang terbaik, dan memamerkannya di sini."
 
+[^ying]: Ying (赢) = 'menang'.
+[^wu]: Wu (武) = 'Ilmu perang' atau 'Ilmu silat'.
+[^ying2]: Ying (應 atau 应) berdiri sendiri berarti 'jawaban' atau 'respons'. Jika digunakan sebagai nama Ziying (子應) akan bermakna 'dikerjakan sendiri', yang bisa dimaknai 'anak yang mandiri'. Kedua karakter ini bunyinya agak lain.
 
+Zhao Min sendiri lebih menyukai Ziying dan Ziwu. Ia memandang kedua anak itu memiliki karakter yang mirip dengan dirinya, meskipun Ziying adalah anak 
+yang dilahirkan Zhou Zhiruo. Ia menulis dua karakter dalam huruf sangat besar, masing-masing Ying[^ying] dan Wu[^wu], lalu memberikannya kepada Jing'er 
+dan Shuang'er, yang ditugaskan untuk mengawasi kedua anak itu setiap hari. Ia berkata, "Sebaiknya belajar menulis nama mereka sendiri."
+ 
+[^min]: Min (敏) = 'sensitif' atau 'peka'.
 
+Salah satu hal yang paling disesali oleh Li Furen seumur hidupnya adalah bahwa dirinya kurang dekat dengan Zhao Min, dan membiarkan Chaghan Temur mendidiknya 
+menurut seleranya sendiri sejak sangat dini. Sebagai akibatnya, Zhao Min punya kecenderungan menirukan sepak terjang ayahnya, dan berpakaian seperti laki-laki. 
+Tak hanya itu, di kemudian hari Zhao Min juga suka menantang anak-anak lain, termasuk semua anak yang lebih besar ketimbang dirinya sendiri, untuk berkelahi. 
+Hal demikian sampai kapan pun juga tak akan pernah disetujui oleh Li Furen. Ia sempat merasa agak lega setelah Zhao Min memilih nama suku Han, 'Min'[^min], yang 
+cukup lembut terdengar, tetapi ternyata nama itu tidak membuatnya lebih lembut sama sekali. Begitu mengetahui bahwa Zhao Min memberikan nama suku Han 'Ziying' 
+kepada Alessandra, ia juga tidak menyukai nama itu. Karakter Ying yang dipakai itu memang mengharapkan Ziying menjadi anak yang selalu bersikap optimis dan menjadi pemenang, 
+yang baginya tetap baik. Tetapi nama 'Ziying' itu sendiri diambil Zhao Min dari nama anak laki-laki Qin Shi Huang. Meskipun Ziying yang adalah kaisar terakhir 
+Dinasti Qin itu pada dasarnya lemah, tetapi Qin Shi Huang sendiri selalu menimbulkan kesan buruk di mata Li Furen. Ia berkata, "Kau memberikan nama anak laki-laki untuk 
+Alessandra adalah supaya anak itu kelak menjadi seperti _dirimu_." Ia kemudian menulis karakter Ying lain[^ying2], juga dalam huruf sangat besar, lalu 
+melanjutkan, "Mulai sekarang kita memakai nama ini untuk Alessandra."
 
+Zhou Zhiruo melihat bahwa nama Ziying yang diganti oleh Li Furen itu bermakna 'anak yang mandiri', dan memang jauh lebih feminin ketimbang nama yang diberikan 
+Zhao Min. Selain itu ia tak ingin berdebat dengan Li Furen, yang mereka anggap sebagai pimpinan keluarga. Ia memberi isyarat kepada Zhao Min supaya 
+tidak membantah lagi, lalu memanggil anak itu menurut nama barunya sambil tersenyum, "Ying'er, ucapkan terima kasih kepada Wai Zumu."
 
-
-
+Ziying belum menyadari perubahan dalam namanya, dan hanya menuruti perintah ibunya untuk berterima kasih. 
 
 
 

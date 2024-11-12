@@ -483,7 +483,7 @@ bicara. "Furen, yang satu ini sungguh-sungguh Zhou Xiangzhang kecil!" katanya.
 
 Saat itu Frater Andre mengetuk pintu, lalu dipersilakan masuk. Ia tertawa gembira dan mengucapkan selamat atas kelahiran bayi kembar Zhou Zhiruo.
 
-[^ying]: Ying (tradisional 應 atau disederhanakan 应), secara literal berarti pintar atau berani. Nama Ziying (子应) bisa diartikan sebagai 'anak pintar' atau 'anak pemberani', atau bahkan 'pemenang'.
+[^ying]: Ying yang diberikan oleh Zhao Min adalah 贏 (atau 赢), dan bukan Ying (tradisional 應 atau disederhanakan 应), yang secara literal berarti 'anak yang mandiri'. Nama Ziying (子贏) bisa diartikan sebagai 'pemenang' atau bahkan 'menang', yang lebih umum diberikan kepada anak laki-laki. Ini adalah nama anak Qin Shi Huang.
 
 Wanita yang menolong kelahiran kedua bayi itu berkata dengan gembira, "Kedua anak ini lahir di malam Tahun Baru, ini pertanda pertolongan Allah bagi kita 
 semua!"
@@ -508,7 +508,7 @@ Semua orang bersorak gembira, lalu Zhou Zhiruo berkata, "Nama itu kedengarannya 
 "Kita bisa minta supaya Wuji Gege memberikan nama dalam bahasa Han untuk anak laki-laki ini," kata Zhao Min. "Kalau kau merasa sulit memanggil nama Alexandra, 
 kita bisa memanggilnya Ziying[^ying]."
 
-Zhou Zhiruo sangat gembira. Ia berkata, "Meizi! Nama itu sungguh-sungguh cocok — Zhang Ziying!"
+Zhou Zhiruo sangat gembira. Ia berkata, "Meizi! Nama itu sungguh-sungguh gagah — Zhang Ziying!"
 
 [^agostin]: Nama Agostin ini tentu saja lebih akrab sebagai Santo Agustinus dari Hippo bagi para penganut Kristen atau Katolik di Indonesia.
 
