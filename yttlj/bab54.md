@@ -79,7 +79,7 @@ seumur hidupnya. Mei Jian melihat penampilan Xiao Zhao dalam busana tradisonal P
 
 "Xiao Zhao, sekarang kau sungguh-sungguh mirip dengan ibumu!" kata Mei Jian sambil tersenyum lebar.
 
-Ketika mereka keluar dari kenah Zhang Wuji, ternyata beberapa orang tamu yang berseragam militer ada di situ, sekitar dua puluh meter dari tenda, 
+Ketika mereka keluar dari kemah Zhang Wuji, ternyata beberapa orang tamu yang berseragam militer ada di situ, sekitar dua puluh meter dari tenda, 
 sedang berbicara dengan Pastor Gabriele, Pastor Niccolo dan empat orang frater. Shangguan Wu melihat beberapa orang teman-temannya yang beragama Islam 
 juga ikut hadir di situ. Mei Jian dan Lihua buru-buru menegakkan sikap tubuh mereka untuk menunjukkan wibawa. Tetapi di luar dugaan, Ah Zhu menyapa pemimpin 
 dari tamu-tamu itu dengan ramah sambil melambaikan tangan, "Zhao Daren! Jiaozhu ada di sini."
@@ -120,7 +120,7 @@ bawahan Jiaozhu dari sisi militer, tentu saja kami semua akan mengikuti petunjuk
 Lihua berkata dengan sikap formal kepada Zhang Wuji, "Jiangjun, kita tidak bisa bekerja sendiri. Bukankah sekarang saatnya kita menaikkan pangkat 
 Torebeg menjadi panglima?"
 
-"Ada berapa orang pajurit yang ada di sini?" tanya Zhang Wuji. "Dan berapa jumllah penduduk yang ada di kota ini?"
+"Ada berapa orang pajurit yang ada di sini?" tanya Zhang Wuji. "Dan berapa jumlah penduduk yang ada di kota ini?"
 
 "Tak lebih dari lima ribu orang prajurit," jawab Torebeg. "Penduduk di kota ini tak lebih dari sepuluh ribu orang. Tetapi di Wuzhong dan tempat lain 
 yang berada di bawah pengawasan kita semuanya masih ada sekitar lima ribu orang lagi."
@@ -486,6 +486,172 @@ Dia tetaplah anak laki-laki."
 Sampai di sini Li Furen mulai mengerti apa yang sedang dipikirkan oleh Zhou Zhiruo. Ia menyuruh Jing'er dan teman-temannya membawa semua anak-anak ke 
 ruangan lain. Lalu berkata dengan nada lebih serius, namun tetap lembut, "Zhiruo, anak itu _mungkin_ memang punya bakat untuk menjadi seperti ayahnya, 
 tetapi aku yakin _bukan_ seperti kakeknya. Dan dia tetaplah masih belum genap dua tahun."
+
+Zhou Zhiruo terdiam, lalu mengalihkan pandangannya ke jendela. Tak lama kemudian ia berkata lambat-lambat, "Meizi, kau masih ingat, sebelum Ziwu dan adik-adiknya 
+lahir, Ah Zhu diutus ke Kaifeng membawa berbagai berkas. Tapi Ah Xiu dan Xiao Zhao juga menitipkan surat-surat pribadi. Kenapa Wuji Gege tidak menceritakannya 
+kepada kita?"
+
+Zhao Min sudah siap menjawab, tetapi ibunya buru-buru mengedipkan mata, dan ia segera mengganti ucapannya, "Bagaimana dia bisa menceritakan isi surat pribadi orang?"
+
+"Meizi, bagaimana kau masih bisa mengatakan 'isi surat pribadi orang', sedangkan kita berdua sudah menjadi istrinya yang resmi?" kata Zhou Zhiruo, tanpa 
+mengalihkan pandangannya dari jendela. "Biasanya isi surat siapa pun pasti akan ditunjukkannya kepada kita, tapi kali ini tidak."
+
+Kali ini Zhao Min mengabaikan isyarat mata dari ibunya, dan menggenggam tangan kanan Zhou Zhiruo yang sedang memegang mangkuk sup di atas meja. Ia merasa 
+tangan itu agak dingin. Zhou Zhiruo sengaja menggeser posisi duduknya, sehingga tidak perlu memandang ke arah Li Furen dan Zhao Min. Tetapi begitu 
+merasakan sentuhan Zhao Min, ia berpaling kembali ke arah mereka tanpa bicara. Lalu Zhao Min berkata, "Jiejie, aku bisa memahami maksudmu. Mengenai 
+Dajie, aku juga belum memahaminya dengan baik, aku hanya merasa sikapnya agak aneh. Belakangan aku tahu, terhadap semua orang lain dia memang begitu, 
+jadi aku mengabaikannya. Kalau mengenai Xiao Zhao, kau dan aku pasti tahu apa yang terjadi di Pulau Ular saat itu. Jika saja masih ada jalan lain untuk 
+menyelamatkan semua orang, maka Xiao Zhao pasti tidak akan mau pergi ke Persia bersama ibunya. Setelah menyelamatkan kita, Wuji Gege dan dia pastilah 
+akan pergi ke suatu tempat dan menghilang dari dunia persilatan, sama seperti yang dilakukan oleh Tajkis. Seandainya itu yang terjadi, maka saat ini Zihan dan 
+adik-adiknya tentu saja tidak akan kita lahirkan ke dunia ini."
+
+Baru sekarang Li Furen memahami masalah ini dengan baik. Tetapi ia masih tidak ingin mengatakan apa-apa, dan membiarkan Zhou Zhiruo berpikir sendiri. 
+Lalu Zhao Min menghela nafas, sebelum melanjutkan, "Setelah itu, Bibi Luo tidak mengatakan apa-apa kepada kita. Sebelumnya, Bibi Mei juga tidak menceritakan 
+apa-apa kepadamu tentang Xiao Zhao. Tadinya kukira mereka berdua memang tidak tahu, tapi sekarang aku yakin bahwa mereka sudah tahu semua cerita tentang 
+Xiao Zhao dan Wuji Gege dari Bibi Qi. Sebelum kita berangkat ke Xiangyang dari Wudang, aku yakin Bibi Qi pasti mengatakan sesuatu kepadamu mengenai hal ini. 
+Ikatan kekeluargaan antara mereka semua — Tajkis, Bibi Luo, Bibi Mei dan Bibi Qi — sama seperti saudara kandung. Bahkan kepada Yin Popo juga, apalagi 
+sekarang Yin Popo sudah meninggal, jadi mereka hanya bisa memperhatikan Wuji Gege. Dengan sendirinya, karena sekarang ini Tajkis tidak ada di sini, 
+maka mereka pasti akan memperlakukan Xiao Zhao dengan sangat baik." 
+
+Li Furen dengan jelas melihat sekarang Zhou Zhiruo sedang sangat marah. Keterangan Zhao Min itu memang dimegerti dengan baik olehnya, tetapi sama sekali 
+tidak membuat keadaan menjadi lebih baik. Sebaliknya, Zhou Zhiruo berkata, "Jadi maksudmu Bibi Mei dan Bibi Luo juga bermaksud menikahkan anak-anak mereka 
+dengan Wuji Gege, dan mereka semua sekaligus ingin menjodohkan Xiao Zhao? Bibi Qi memang pernah mengatakan sesuatu tentang Yin Li, dan aku masih bisa menerimanya 
+dengan baik. Aku yang salah saat itu, jadi aku sekaligus ingin membayar kesalahanku. Tapi bukankah Yin Li sendiri akhirnya menikah dengan Wang Baobao? 
+Jadi masalah itu seharusnya sudah selesai, mengapa tiba-tiba Xiao Zhao kembali ke Zhongyuan dan mengganggu kita?"
+
+"Zhou Jiejie, aku tidak mengatakan bahwa Bibi Mei dan Bibi Luo ingin menjodohkan anak-anak mereka dengan Wuji Gege," kata Zhao Min sambil tertawa. 
+"Menurut Lihua, Dajie kabur dari istana justru karena Huang Shang ingin menjodohkannya dengan cicit Sayyid Ajjal, Gubernur Yunnan itu. Soal perjodohan, 
+aku yakin baik Dajie maupun Lihua bukan orang yang dengan gampang dipaksa oleh ibu mereka maupun Huang Shang. Kurasa Xiao Zhao juga masih tetap akan menampilkan 
+diri sebagai seorang pelayan seperti dulu, kita bukan tidak tahu bagaimana tabiat Xiao Zhao. Dia pasti tidak akan menantang Wuji Gege dengan tampil sebagai 
+ketua Ming Jiao."
+
+"Tentu saja dia tidak akan menantang Wuji Gege," kata Zhou Zhiruo agak sinis. "Kau pasti tahu, maksudku bukan itu."
+
+Li Furen mengunci mulutnya rapat-rapat. Dari nada bicara Zhou Zhiruo, ia tahu bahwa sesuatu yang tidak baik pasti akan terjadi jika isi surat Zhang Wuji 
+yang saat ini masih ada di tangannya sampai bocor ke telinga Zhou Zhiruo. Setelah Zhao Min dan Zhou Zhiruo pulang ke rumah mereka sendiri yang tak jauh 
+dari rumahnya, hanya kedua cucu kesayangannya — Zihan dan Ziwen — yang ada di dekatnya. Sikong Jiumei dan Lu Xian yang mengasuh kedua anak itu juga 
+ditinggalkan di rumahnya. Li Furen merasa bisa mempercayai kedua gadis itu, dan sejauh ini mereka berdua tak pernah mengecewakannya.
+
+Hari sudah semakin malam ketika Li Furen sibuk dengan biji-biji wolfberry di halamannya, yang lebih luas dari rumahnya yang sederhana itu. Lu Xian yang 
+baru keluar setelah Ziwen tertidur buru-buru berkata sambil mendekatinya, "Furen, biar Xian'er yang melakukannya."
+
+Tak lama kemudian, Sikong Jiumei juga keluar ke halaman setelah Zihan tidur. Mereka memang biasa menemani Li Furen mengobrol sampai larut malam. 
+Ia cepat-cepat membantu Lu Xian mengurus bibit wolfberry itu, sementara Li Furen mengatur nafasnya yang agak terengah-engah karena mengeduk tanah. 
+
+"Furen, lain kali biarkan kami yang mengurus semua ini," kata Sikong Jiumei. 
+
+Li Furen tertawa sambil mencuci tangannya dengan air bersih, lalu berkata, "Tidak apa-apa, aku memang sengaja melakukannya sendiri. Aku tahu, sekarang aku 
+sudah mulai tua, tapi jika otot-ototku tidak digunakan, maka aku akan semakin payah."
+
+Ketika mereka selesai mengerjakan semuanya, Sikong Jiumei menghidangkan teh hangat dari bahan-bahan yang dikirimkan oleh Ah Zhu. Aromanya mengusik 
+penciuman Li Furen dan ia tampak sangat senang. "Hm, aroma teh ini agak istimewa. Xian'er, kurasa jika bibit-bibit itu mulai tumbuh, kita bisa memindahkannya 
+ke tempat yang lebih aman, supaya semuanya tidak rusak karena salju. Sebentar lagi salju pasti akan mulai turun di sini. Entah bagaimana tanaman itu masih 
+tetap bertahan di Ningxia."
+
+"Besok Xian'er akan menyiapkan semuanya," kata Lu Xian.
+
+Li Furen menikmati tehnya dengan ditemani makanan ringan yang dihidangkan oleh Sikong Jiumei. Ia berkata, "Xian'er dalam beberapa hari ini kau harus sering 
+melihat-lihat di dekat gereja, kalau-kalau Ah San sudah pulang dari Xiangyang. Jika dia membawa surat untuk Zhou Furen atau Junzhu, suruh dia menungguku di situ"
+
+"Baik," kata Lu Xian. Ia sekarang telah semakin dewasa, dan kungfunya maju sangat pesat di bawah bimbingan Zhao Min. Selain itu, Lu Xian juga akrab dengan 
+Ah San dan Delapan Panah Dewa, yang mengajarinya ketrampilan mereka sendiri. Hanya kungfu Ah San yang belum bisa dikuasainya dengan baik. Kungfu Ah San 
+adalah kungfu Shaolin Barat yang sangat keras. Tetapi Lu Xian pernah mendengar pengakuan Ah San sendiri bahwa saat ini ia tidak mampu mengalahkan ilmu 
+Cakar Tengkorak Putih Zhou Zhiruo. Memang benar saat ini Zhou Zhiruo sudah tidak lagi melatihnya dengan cara sesat seperti dulu, tetapi menurut Ah San 
+hal itu tidak mengurangi kekejiannya. Lu Xian pernah melihat Ah San meninggalkan bekas jarinya di sebuah uang perak, dan ia terkagum-kagum. Tetapi Ah San 
+mengatakan sambil tertawa bahwa apa yang dilakukannya itu tak bisa dibandingkan dengan kekuatan jari Zhou Zhiruo, dan bahwa dulunya Zhou Zhiruo pernah melubangi 
+bahu Zhao Min, karena itu mereka semua sempat terheran-heran melihat kedua wanita itu sekarang bisa sangat akur seperti saudara kandung. Setelah mendengar 
+cerita Ah San, diam-diam Lu Xian merasa ngeri, dan ia lebih berhati-hati setiap kali bicara dengan Zhou Zhiruo. Ia sudah tahu dari Delapan Panah Dewa dan Ah San, 
+bahwa di Xiangyang Ah Xiu telah menikah dengan Zhang Wuji untuk menuruti titah Kaisar Toghon Temur, dan hal ini pun sudah diketahui oleh Li Furen dan Zhao Min. 
+Tetapi mereka berdua sengaja tidak mengatakannya kepada Zhou Zhiruo. Di antara mereka berlima, hanya Sikong Jiumei dan Lu Xian yang mengetahui hal ini. 
+
+"Jiumei, kau sudah cukup dewasa," kata Li Furen sambil mengamati Sikong Jiumei sambil tersenyum. "Kau tidak punya rencana untuk menikah?"
+
+Sikong Jiumei tersipu. Sebenarnya bagi mereka berlima, bekerja untuk keluarga Zhang Wuji adalah sebuah keberuntungan besar. Mereka semua diperlakukan sebagai 
+keluarga sendiri sejak tiba di Xiangyang. Sayangnya saat ini semua orang yang pertama kali tiba di Xiangyang telah tersebar ke Kaifeng dan tenpat lain, bahkan 
+Ah Zhu berada di Yinchuan, hanya mereka berlima yang masih tetap bersama. Jika bicara mengenai pria di antara mereka sendiri, bagi mereka pria yang paling 
+mengagumkan di dunia ini hanya seorang Zhang Wuji. Meskipun saat pertama kali melihatnya mereka semua masih kecil, tetapi tak seorang pun dari mereka bisa 
+melupakannya. Di Hanyang, banyak pemuda tampan yang berusia sebaya seringkali menggoda Sikong Jiumei dan Shuang'er, yang paling cantik di antara mereka berlima, 
+tetapi bagi keduanya pemuda-pemuda itu sama sekali tidak menarik. Tentu saja kekaguman mereka kepada Zhang Wuji ini hanya diketahui oleh mereka berlima sendiri, 
+tak seorang pun berani membicarakannya dengan orang lain.
+
+Ketika Li Furen membicarakan masalah tentang Xiao Zhao, mereka langsung bisa memahami mengapa Xiao Zhao kembali ke Zhongyuan, padahal di Persia ia menduduki 
+jabatan sebagai ketua Ming Jiao, yang bahkan harus dianggap lebih tinggi ketimbang Zhang Wuji sendiri, karena Ming Jiao memang berasal dari Persia. 
+Sekarang Li Furen menanyakan rencananya untuk menikah, dan Sikong Jiumei tidak tahu bagaimana harus menjawab, jadi ia hanya berkata, "Jiumei belum memikirkan 
+soal pernikahan."
+
+Li Furen menghela nafas panjang, sebelum berkata, "Jika suatu saat nanti Yesus menjemputku _pulang_, kalian tetap harus menikah, tapi aku berharap kalian 
+mau berjanji untuk merawat kedua anak ini bagiku. Jangan biarkan mereka terlibat dalam perang maupun perebutan kekuasaan. Kalau perlu, ajak mereka berdua menjauh 
+dari Junzhu maupun Zhou Furen. Mereka tetap harus menemui ayah mereka, tetapi sebaiknya jangan terlalu sering, karena ayah mereka tetap masih akan 
+terlibat dalam politik."
+
+Lu Xian merasa terharu, tak terasa air matanya menitik. Ia berkata, "Furen, mengapa bicara seperti itu? Furen masih sangat sehat, tidak ada sesuatu yang 
+akan terjadi kepada Furen."
+
+[^sorghaghtani-beki]: Xian Yi Zhuang Sheng Huang Hou (顯懿莊聖皇后) adalah gelar kehormatan bagi Sorghaghtani Beki, ibu kandung Kubilai Khan, setelah kematiannya.
+[^chabi]: Zhaorui Shunsheng Huanghou (昭睿順聖皇后) adalah gelar kehormatan bagi permaisuri Kubilai Khan, Chabi, setelah kematiannya.
+
+Li Furen tersenyum tipis, lalu berkata, "Xian'er, Xianyi Zhuangsheng Huanghou[^sorghaghtani-beki] sangat sehat ketika membantu Mongke Khan menjadi Khaghan, tetapi dalam 
+beberapa bulan tiba-tiba jatuh sakit dan meninggal. Kita tidak bisa meramal kapan kita akan meninggal. Mereka semua tampak rukun ketika Xianyi Zhuangsheng Huanghou 
+masih hidup. Tetapi setelah dia meninggal, tiba-tiba Mongke mencurigai Kubilai. Setelah Mongke sendiri meninggal, timbul masalah lebih besar lagi, Kubilai 
+berperang melawan _saudara kandungnya sendiri_ — Ariq Boke. Zhenjin, putra mahkota pilihan Kubilai, meninggal sebelum Kubilai sendiri, begitu juga 
+Zhaorui Shunsheng Huanghou[^chabi]. Setelah kematian Kubilai sendiri, persengketaan besar segera terjadi, dan hal yang sama masih berlangsung sampai sekarang. 
+Aku tidak ingin hal-hal semacam ini terjadi dalam keluargaku. Tapi aku merasa takut setiap kali melihat Alessandra mengacung-acungkan pedang-pedangan, lalu 
+Junzhu membanggakannya sambil tertawa, begitu juga kakek mereka. Percayalah, aku tidak ingin mati sebelum memastikan bahwa semua cucuku dididik dengan baik dan benar. 
+Jika Allah mengabulkan harapanku, maka aku terpaksa akan merepotkan kalian melayaniku di usia tuaku. Tapi sayangnya soal ini bukan pilihanku sendiri, karena itu 
+aku ingin kalian berjanji akan membantuku menjaga kedua cucuku ini, seandainya Allah tidak mengabulkan doaku."
+
+Sikong Jiumei dan Lu Xian berlinang air mata sambil memegang kedua tangan Li Furen erat-erat. Sikong Jiumei berkata, "Tentu saja kami akan mematuhi semua 
+pesan Furen. Tapi kami pasti akan berdoa siang dan malam supaya Furen dikaruniai kesehatan untuk menyaksikan sendiri anak-anak ini tumbuh dewasa, dan dididik 
+dengan baik. Furen jangan berpikir terlalu jauh."
+
+"Itu sudah cukup bagiku," kata Li Furen sambil tersenyum. "Kalian berdua tetap harus menikah suatu saat nanti. Tidak bisa menunggu sampai Agostin dan Lorenzo 
+menjadi dewasa. Itu akan menyia-nyiakan masa muda kalian."
+
+"Tidak," kata Lu Xian sambil menggelengkan kepalanya. "Xian'er tidak akan menikah sampai Ziwen menjadi orang dewasa!"
+
+"Jiumei juga tidak," kata Sikong Jiumei.
+
+Li Furen menggelengkan kepalanya sambil berkata, "Aku tetap ingin supaya kalian menikah, jika menemukan orang yang tepat. Menunggu sampai mereka menjadi 
+dewasa akan menyusahkan kalian. Sebenarnya urusan kalian tidak terlalu sulit, hanya perlu ketelitian. Ah Xiu — Bilguun Khatun itu — tidak cocok dengan 
+Junzhu maupun Zhou Zhiruo. Sebaliknya, dia sangat cocok dengan Xiao Zhao. Zhou Furen dan Junzhu juga sangat cocok. Jika mendengar cerita Qi Huanghou, aku 
+sangat yakin Xiao Zhao pasti akan bisa menyesuaikan diri dengan mereka semua. Hanya sayangnya, Zhou Zhiruo tidak bisa menerima kehadirannya. Inilah yang akan 
+menjadi ganjalan terbesar bagi semua orang. Sayangnya lagi, Bilguun Khatun bukan tipe orang yang dengan luwes akan menyesuaikan diri seperti Xiao Zhao, 
+dan dia yang paling tua di antara mereka berempat. Dari isi suratnya, dia sangat mirip dengan ibunya dan juga ayahnya — Kaisar Toghon Temur, yang akan mengatakan 
+secara terang-terangan apa yang mereka pikirkan tentang seseorang tanpa memikirkan segala akibatnya. Dia juga tipe orang yang sangat yakin akan kemampuannya 
+sendiri, dan hal ini akan dipandang sombong oleh Zhou Zhiruo maupun Junzhu, padahal belum tentu dia bermaksud membanggakan diri. Jika terjadi keributan di antara 
+mereka, di kemudian hari, maka orang yang paling tepat untuk kalian ajak bicara adalah Xiao Zhao. Jika Xiao Zhao menganjurkan sesuatu, kalian tak perlu mengatakan 
+bahwa ide itu berasal dari dia, yang akan membuat Zhou Zhiruo tidak senang."
+
+Kedua gadis itu memperhatikan baik-baik setiap kata yang diucapkan oleh Li Furen, dan menyimpannya dalam hati. Mereka hanya sempat bertemu sebentar dengan 
+Ah Xiu, yaitu sebelum mereka berangkat dari Hanyang ke Kaifeng, tetapi mereka sama sekali belum pernah melihat Xiao Zhao. Li Furen sendiri bahkan belum pernah 
+bertemu dengan kedua wanita itu, tetapi apa yang diuraikannya sungguh sangat tepat mengenai Ah Xiu. Hal itu membuat Lu Xian dan Sikong Jiumei sangat kagum, karena 
+Li Furen hanya menilainya dengan cara membaca isi surat Ah Xiu. 
+
+Li Furen melanjutkan, "Mengenai kelima cucuku itu, pada dasarnya anak-anak Zhou Zhiruo tidak akan cocok dengan Ah Xiu, dan juga ibu mereka sendiri. 
+Mereka lebih suka bergaul dengan Junzhu, kalian pasti sudah melihatnya sendiri saat ini. Tetapi Matteo, Francesco dan Lorenzo justru akan menyukai Ah Xiu. 
+Saat ini pun aku bisa melihat dengan jelas, mereka memang cocok dengan Zhou Zhiruo, dan pasti akan membelanya jika terjadi masalah dengan Ah Xiu, tetapi 
+orang yang paling mereka dengarkan pada akhirnya tetaplah Junzhu, karena Junzhu adalah ibu kandung mereka. Sayangnya aku tidak bisa mengatakan bahwa mereka 
+bertiga akan menyukai Xiao Zhao. Aku bahkan berani memastikan, setelah lebih besar, mereka pasti langsung tidak menyukai Xiao Zhao, karena pengaruh 
+ibu mereka dan Zhou Zhiruo. Yang bisa kalian lakukan dalam hal ini adalah mengatakan hal yang baik-baik tentang Xiao Zhao di hadapan mereka, untuk mengurangi 
+pengaruh buruk dari ibu mereka sendiri. Aku kuatir mereka juga tidak akan menyukai ayah mereka, dan dalam hal ini kalian harus bisa membantu. Jiaozhu 
+bukan seburuk yang digambarkan oleh ibu tiri mereka. Kadang-kadang Junzhu dengan sembrono melontarkan gurauan tentang ayah mereka, dan itu pasti akan 
+mempengaruhi penilaian anak-anak itu terhadap ayah mereka sendiri, dan secara tidak langsung mendukung penilaian Zhou Zhiruo, yang sebetulnya hanya dilontarkan untuk 
+melampiaskan kecemburuannya kepada wanita-wanita lain. Lorenzo mungkin saja agak lebih tenang dibandingkan dua orang kakaknya, tetapi mereka tetaplah 
+saudara kembar, jadi pengaruh kedua kakaknya pasti akan tetap ada." Ia menarik nafas, lalu melanjutkan penuturannya, "Mulai sekarang pun aku sudah bisa 
+meramal, nantinya kita tidak akan bisa mencegah anak-anak itu belajar kungfu. Jika hal itu terjadi, kalian sebisanya harus memastikan bahwa mereka belajar 
+dari Zhang Wuji, dan _bukan_ orang lain. Ini akan lebih mudah diterapkan kepada anak-anak Zhou Zhiruo. Alessandra sudah pasti akan selalu merengek minta 
+diajari kungfu ayahnya, dan pada saat itu ayahnya pasti akan mendidiknya baik-baik, jadi aku tidak kuatir. Yang paling mencemaskan adalah ketiga anak 
+laki-laki itu, karena kemungkinan besar mereka tidak menghormati ayah mereka karena pengaruh ibu-ibu mereka. Sebisa mungkin kalian harus tetap mengarahkan 
+mereka untuk belajar kungfu dari Zhang Wuji, dan bukan dari Zhou Zhiruo!"
+
+
+
+
+
+
+
+
+
 
 
 

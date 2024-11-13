@@ -52,14 +52,13 @@ Bibi Ketujuh
 
 ```
 
-[^khatun]: Khatun adalah panggilan dalam bahasa Mongolia bagi seorang permaisuri, tetapi juga bisa digunakan bagi anak-anak perempuan kaisar. Tidak seperti Gonji, yang bisa diterjemahkan menjadi Gongzhu (公主), tidak ada istilah bahasa mandarin yang sama dengan gelar ini.
 
 Zhang Wuji melihat, sebutan 'keponakan' yang digunakan dalam surat itu adalah Wai Sheng[^wai-sheng], yang memang bisa digunakan oleh Ki Seung Nyang untuk memanggil dirinya, 
 dan bukan keponakannya yang lain seperti Ah Xiu atau Lihua. Ki Seung Nyang juga bukan memakai terjemahan dari marganya dalam bahasa Goryeo, seperti yang 
 biasa dipakainya ketika menulis surat, tetapi sengaja memakai angka '7', yang memang melambangkan dirinya. Semua itu menandakan betapa sulitnya mengirimkan 
 surat seperti itu bagi mereka saat ini.
 
-"Situ Peng, tolong pangil Bibi Luo ke sini, aku ingin berunding sebentar," kata Zhang Wuji.
+"Situ Peng, tolong panggil Bibi Luo ke sini, aku ingin berunding sebentar," kata Zhang Wuji.
 
 Mereka memang sengaja menjauh dari keramaian, dan Situ Peng segera mendekati Ah Luo, lalu memberi isyarat supaya mengikutinya. Setelah Ah Luo tiba 
 di dekatnya, Zhang Wuji menyerahkan surat Ki Seung Nyang tanpa mengatakan apa-apa. Lalu Ah Luo berkata setelah membacanya, "Ini pasti berasal dari Shimei, 
@@ -250,6 +249,7 @@ Tak lama kemudian ia datang kembali bersama dengan Kasim He, yang mengenakan pak
 bahwa ia adalah seorang kasim istana. Ah Xiu yang jarang mempedulikan kehadiram kasim-kasim istana juga tidak mengenalinya. Tetapi kemudian ia mengeluarkan 
 gulungan kain berwarna kuning keemasan dari dalam kotak yang dibawanya, dan berkata, "Aku diutus untuk membawa titah Kaisar. Harap semua berlutut."
 
+[^khatun]: Khatun adalah panggilan dalam bahasa Mongolia bagi seorang permaisuri Khan atau Khan Agung. Khan Agung sendiri adalah Khagan. Tidak seperti Gonji, yang bisa diterjemahkan menjadi Gongzhu (公主), tidak ada istilah bahasa mandarin yang sama dengan gelar ini.
 [^bilguun]: Nama Mongolia 'Bilguun' ini bermakna 'pintar dan bijaksana'.
 
 Ah Luo segera memberi isyarat supaya mereka semua berlutut. Lalu Kasim He berkata, "Titah ini diberikan kepada ketua Ming Jiao, Zhang Wuji dan Bilguun Khatun."
@@ -315,6 +315,13 @@ Lihua diberi nama Badamlyanhua[^badamlyanhua]. Putra Qi Shimei diberi nama Ayush
 sendiri adalah seorang Mongolia, tetapi anaknya diberi nama menurut suku Han, Xue Shan. Selain Ayushiridara yang diangkat menjadi Putra Mahkota, 
 mereka semua sengaja dibuat tidak menonjol, untuk menghindari pertikaian dengan anak-anak lainnya."
 
+Lihua tertawa sambil berkata, "Tapi aku bukan seorang Khatun, dan sebelumnya Dajie juga bukan."
+
+"Lalu mengapa _sekarang_ Huang Shang sekonyong-konyng mengangkat Ah Xiu menjadi Khatun?" tanya Fan Yao.
+
+"Menjadi Khatun sama artinya dengan menjadi Khan — _bukan_ Khagan — tapi perempuan," jawab Ah Luo. "Ini artinya Huang Shang mengangkat Ah Xiu menjadi Khan 
+di wilayah yang diberikan kepadanya. Sebenarnya yang berkuasa di situ tetap adalah Wuji — karena itulah mereka harus menikah."
+
 "Shijie, apa yang terjadi di Kaifeng?" tanya Mei Jian.
 
 Zhang Wuji dan Ah Luo saling berpandangan, lalu Zhang Wuji berkata, "Tian Feng dan Wang Shicheng telah melepaskan jabatan mereka di Dinasti Yuan, dan sekarang 
@@ -356,11 +363,11 @@ sangat penting bagi kita. Daerah itu memang tetap setia kepada Dinasti Yuan, tet
 menjalin hubungan baik dengan pihak mereka, kita akan bisa menghindarkan perang antara Ming Yuzhen dengan Yunnan."
 
 Hari itu juga, Ah Luo menyelenggarakan pesta sederhana untuk meresmikan pernikahan antara Zhang Wuji dengan putrinya. Dengan begitu semua orang di Xiangyang 
-tahu bahwa sekarang Zhang Wuji telah resmi menerima posisi sebagai Kepala Daerah di Xiangyang. Wilayahnya tidak besar, tetapi yang dikuasainya adalah 
+tahu bahwa sekarang Zhang Wuji telah resmi menguasai Xiangyang, karena Ah Xiu adalah seorang Khatun. Wilayahnya tidak besar, tetapi yang dikuasainya adalah 
 pusat komando militer yang sangat penting sejak jaman dulu. Dinasti Yuan memang tidak biasanya memberikan posisi seperti itu kepada seorang Han, tetapi 
 karena kehadiran Ah Xiu yang adalah Bilguun Khatun dari Dinasti Yuan, maka semuanya menjadi lain. Tak seorang pun mempertanyakan otoritas Zhang Wuji lagi 
-di wilayah selatan. Tetapi keputusan Kaisar Toghon Temur ini membuat banyak anggota Hongjin Qiyi lebih mudah lagi diyakinkan bahwa Zhang Wuji adalah 
-seorang pengkhianat Ming Jiao.
+di wilayah selatan. Tetapi keputusan Kaisar Toghon Temur ini membuat banyak anggota Hongjin Qiyi lebih mudah lagi diyakinkan bahwa Zhang Wuji adalah seorang 
+pengkhianat Ming Jiao.
 
 Malam itu, setelah mereka duduk berdua di ruangan pribadi Zhang Wuji, Ah Xiu berkata, "Wuji Gege, kau menyesal hari ini menikah denganku?"
 
@@ -1308,7 +1315,7 @@ Ia tersenyum puas menyaksikan ekspresi muka Zhang Wuji, dan berkata, "Sekarang k
 
 Dengan mengikuti Lihua dan Shangguan Wu yang menjadi penunjuk jalan, mereka mendatangi tempat kediaman Basalawarmi dengan berkuda. Di pintu gerbang 
 istana besar itu, Ah Xiu kembali menunjukkan tanda pengenalnya, dan ternyata para pengawal yang sedang berjaga di pintu tidak memerlukannya. Salah seorang 
-dari mereka berkata dengan ramah dalam bahasa Han, "Wangye sudah menunggu Putri."
+dari mereka berkata dengan ramah dalam bahasa Han, "Wangye sudah menunggu Khatun."
 
 Ah Xiu tersenyum tipis, lalu mengajak semua orang mengikuti dua orang pengawal yang mengantarkan mereka ke sebuah ruangan yang besar dan tampak mewah.
 Di sebuah kursi besar yang dilapisi kulit harimau, mereka melihat seorang pria yang kira-kira sebaya dengan Chaghan Temur, tetapi ketika berdiri ternyata 

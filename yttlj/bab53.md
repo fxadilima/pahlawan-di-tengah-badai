@@ -1039,7 +1039,7 @@ karakter aneh ini Pinsheng memang tidak mengenalnya."
 Ah Luo tertawa terbahak-bahak, lalu berkata, "Kalian semua menertawakan kekonyolan Qi Shimei, yang biasa menggunakan cara-cara tolol untuk menerjemahkan 
 istilah-istilah Goryeo atau bahasa lain ke dalam bahasa Han, tapi buktinya sekarang cara kerjanya yang paling berguna untuk kita."
 
-[^an-la]: An La (安拉) adalah terjemahan bebas istilah 'Allah' ke dalam bahasa mandarin menurut pengucapannya, tetapi karakter 'An' (安) yang dipakai di situ bermakna 'damai'm dan karakter La (拉) berarti 'menarik'.
+[^an-la]: An La (安拉) atau Ala (阿拉) adalah terjemahan bebas istilah 'Allah' ke dalam bahasa mandarin menurut pengucapannya, tetapi karakter 'An' (安) yang dipakai di situ bermakna 'damai'm dan karakter La (拉) berarti 'menarik'.
 [^zhenzhu]: Zhen Zhu (真主) adalah istilah yang mewakili 'Allah', yang secara literal adalah 'Majikan Sejati'.
 
 "Setelah misteri itu terpecahkan, mereka lalu berusaha menebak apa yang dimaksud oleh Xiao Zhao atau Shangguan Yinuo," lanjut Bei Jinyi. "Karena sebelumnya 

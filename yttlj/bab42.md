@@ -606,7 +606,7 @@ karenanya mereka berdua merasa sangat dekat dengan anak-anak yang mereka temui d
 
 Sementara menunggu Lingshan dan Lu Xian kembali, dua orang anak perempuan yang lain merapikan pakaian dan barang-barang 
 yang dibawa Zhou Zhiruo dari Xiangyang bersama Jing'er. Seperti Jing'er, mereka berdua sudah berusia lima belas tahun, 
-tetapi mereka lebih tampak kekanak-kanakan. Keduanya pernah bekerja di rumah seorang pejabat di Chang'an, karena itu 
+tetapi mereka tampak lebih kekanak-kanakan. Keduanya pernah bekerja di rumah seorang pejabat di Chang'an, karena itu 
 mereka pandai bermain musik dan menari. Selain itu tulisan mereka bahkan lebih bagus ketimbang Zhou Zhiruo. Mereka akhirnya 
 melarikan diri ketika diganggu oleh anak laki-laki majikan mereka, dan ditolong oleh beberapa anggota Hongjin Qiyi 
 yang secara kebetulan lewat di dekat rumah itu. Setelah mengalami beberapa masalah lain, akhirnya mereka bertemu 

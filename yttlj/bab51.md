@@ -1294,7 +1294,7 @@ kalian harus berusaha menjauhkannya dari urusan di utara, dan mengalihkan perhat
 Wuji juga tidak perlu menyerahkan Xiangyang, karena kota itu terlalu penting. Jika rencana kita sampai gagal, maka kita akan kehilangan semua kendali 
 atas wilayah selatan."
 
-"Jika kalian bermaksud menjodohkan Ah Xiu dengan Duan Bao, kurasa dia tidak akan mau," kata Yin Li sambil tertawa.
+"Jika kalian bermaksud menjodohkan Dajie dengan Duan Bao, kurasa dia tidak akan mau," kata Yin Li sambil tertawa.
 
 "Tentu saja tidak," kata Ki Seung Nyang. "Kurasa saat ini Duan Bao masih kecil."
 
