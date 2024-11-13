@@ -1439,10 +1439,10 @@ meninggal, dan peperangan besar-besaran akan kembali terjadi dengan mengatasnama
 ke sini, padahal kita tahu sekarang ini Zhongyuan juga sudah dalam keadaan perang. Tapi untungnya hingga saat ini penganut agama Islam maupun Kristen di sini 
 tidak banyak."
 
-[^yuemu]: Yue Mu (岳母) adalah panggilan seorang suami kepada ibu mertuanya, sama seperti Pomu[^pomu].
+[^yuemu]: Yue Mu (岳母) adalah panggilan seorang suami kepada ibu mertuanya, sama seperti Yuemu[^pomu].
 [^pomu]: Po Mu (婆母) adalah panggilan seorang suami kepada ibu mertuanya, sama seperti Yuemu[^yuemu].
 
-Zhang Wuji berkata, "Pomu[^pomu] memang benar, tetapi orang-orang yang mengaku sebagai pengikut Ming Jiao saat ini sangat banyak, padahal mereka bukan semuanya 
+Zhang Wuji berkata, "Yuemu[^yuemu] memang benar, tetapi orang-orang yang mengaku sebagai pengikut Ming Jiao saat ini sangat banyak, padahal mereka bukan semuanya 
 memahami ajaran Ming Jiao dengan baik. Dan orang-orang yang mengatakan bahwa mereka adalah pengikut Hongjin Qiyi itu juga belum tentu memahami ajaran Buddha Maitreya 
 dengan benar. Wuji tidak tahu bagaimana harus mengatasi mereka semua."
 
@@ -1468,7 +1468,7 @@ tidak mau tinggal di tempat yang sama tanpa ribut, lalu bagaimana persoalan itu 
 masalah yang sama masih akan terus ada." Ia berpaling kepada Zhang Wuji, lalu melanjutkan, "Wuji, bukankah sekarang kau mengerti, mengapa aku lebih 
 ingin tinggal di Ganzhou, dan menjauhkan diri dari semua ini?"
 
-"Pomu, lain kali Wuji pasti akan mengajak kalian semua tinggal di Gansu," kata Zhang Wuji. "Tetapi bagaimana kita bisa pergi ke Gansu, sedangkan saat 
+"Yuemu, lain kali Wuji pasti akan mengajak kalian semua tinggal di Gansu," kata Zhang Wuji. "Tetapi bagaimana kita bisa pergi ke Gansu, sedangkan saat 
 ini ayah sedang punya rencana untuk pergi ke Shandong?"
 
 Zhao Min diam-diam memegang tangan kanannya sebagai isyarat supaya ia tidak bicara lagi. Ibunya sebenarnya ingin kembali ke Xinjiang, di mana 

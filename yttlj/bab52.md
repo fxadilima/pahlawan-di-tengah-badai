@@ -197,7 +197,7 @@ laki-lakinya yang lain, yang sudah berusia setidaknya empat belas tahun, untuk t
 
 Chaghan menyuruh mereka membawa sedikit barang, dan membawa sebanyak mungkin uang dan emas. Rombongan itu siap berangkat dalam waktu tiga jam. Chaghan Temur 
 mencium kelima cucunya yang saat itu tertidur satu persatu, lalu mengantarkan mereka sampai beberapa _li_ dari perkemahan itu ke arah barat. 
-Zhang Wuji yang ikut mengantar berkata, "Pomu, jangan lupa menyuruh Ah San segera memberi kabar ke sini setelah kalian menemukan tempat untuk menetap, 
+Zhang Wuji yang ikut mengantar berkata, "Yuemu, jangan lupa menyuruh Ah San segera memberi kabar ke sini setelah kalian menemukan tempat untuk menetap, 
 supaya kami tahu di mana kalian tinggal."
 
 "Aku tahu," jawab Li Furen sambil melambaikan tangannya.
@@ -482,7 +482,7 @@ yang sudah mendekati seratus dua puluh tahun itu. Suaranya masih nyaring ketika 
 apa yang telah kalian lakukan di Kaifeng sungguh membuatku terkejut. Itu sangat berani, tapi ternyata berjalan dengan mulus."
 
 Zhang Wuji menghela nafas panjang, lalu berkata, "Tai Shifu, sekarang ini Kaifeng kembali berada dalam bahaya, karena ada dua orang pejabat Dinasti Yuan 
-yang baru membelot dan bergabung dengan kelompok petani di Shandong. Karena itu ayah memutuskan untuk membawa seluruh anggota keluarga bersama Pomu ke Gansu dan 
+yang baru membelot dan bergabung dengan kelompok petani di Shandong. Karena itu ayah memutuskan untuk membawa seluruh anggota keluarga bersama Yuemu ke Gansu dan 
 tinggal di situ, sementara dia sendiri pasti akan meredam gerakan mereka di Shandong. Minmin dan Zhiruo yang mengawal keluarga, berserta anak-anak, 
 ke Ganzhou. Belum pasti apa yang akan terjadi selanjutnya."
 

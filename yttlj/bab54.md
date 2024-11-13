@@ -625,24 +625,96 @@ bahwa ide itu berasal dari dia, yang akan membuat Zhou Zhiruo tidak senang."
 Kedua gadis itu memperhatikan baik-baik setiap kata yang diucapkan oleh Li Furen, dan menyimpannya dalam hati. Mereka hanya sempat bertemu sebentar dengan 
 Ah Xiu, yaitu sebelum mereka berangkat dari Hanyang ke Kaifeng, tetapi mereka sama sekali belum pernah melihat Xiao Zhao. Li Furen sendiri bahkan belum pernah 
 bertemu dengan kedua wanita itu, tetapi apa yang diuraikannya sungguh sangat tepat mengenai Ah Xiu. Hal itu membuat Lu Xian dan Sikong Jiumei sangat kagum, karena 
-Li Furen hanya menilainya dengan cara membaca isi surat Ah Xiu. 
+Li Furen hanya menilainya dengan cara membaca isi surat Ah Xiu. "Furen, tapi sekarang ini kami tidak akan bertemu dengan siapa pun, selain Junzhu 
+dan Zhou Furen," kata Lu Xian. "Kita juga hidup aman dan damai di sini, kecil kemungkinannya Khatun atau Xiao Zhao akan muncul di sini."
 
-Li Furen melanjutkan, "Mengenai kelima cucuku itu, pada dasarnya anak-anak Zhou Zhiruo tidak akan cocok dengan Ah Xiu, dan juga ibu mereka sendiri. 
-Mereka lebih suka bergaul dengan Junzhu, kalian pasti sudah melihatnya sendiri saat ini. Tetapi Matteo, Francesco dan Lorenzo justru akan menyukai Ah Xiu. 
-Saat ini pun aku bisa melihat dengan jelas, mereka memang cocok dengan Zhou Zhiruo, dan pasti akan membelanya jika terjadi masalah dengan Ah Xiu, tetapi 
-orang yang paling mereka dengarkan pada akhirnya tetaplah Junzhu, karena Junzhu adalah ibu kandung mereka. Sayangnya aku tidak bisa mengatakan bahwa mereka 
-bertiga akan menyukai Xiao Zhao. Aku bahkan berani memastikan, setelah lebih besar, mereka pasti langsung tidak menyukai Xiao Zhao, karena pengaruh 
-ibu mereka dan Zhou Zhiruo. Yang bisa kalian lakukan dalam hal ini adalah mengatakan hal yang baik-baik tentang Xiao Zhao di hadapan mereka, untuk mengurangi 
-pengaruh buruk dari ibu mereka sendiri. Aku kuatir mereka juga tidak akan menyukai ayah mereka, dan dalam hal ini kalian harus bisa membantu. Jiaozhu 
-bukan seburuk yang digambarkan oleh ibu tiri mereka. Kadang-kadang Junzhu dengan sembrono melontarkan gurauan tentang ayah mereka, dan itu pasti akan 
-mempengaruhi penilaian anak-anak itu terhadap ayah mereka sendiri, dan secara tidak langsung mendukung penilaian Zhou Zhiruo, yang sebetulnya hanya dilontarkan untuk 
-melampiaskan kecemburuannya kepada wanita-wanita lain. Lorenzo mungkin saja agak lebih tenang dibandingkan dua orang kakaknya, tetapi mereka tetaplah 
-saudara kembar, jadi pengaruh kedua kakaknya pasti akan tetap ada." Ia menarik nafas, lalu melanjutkan penuturannya, "Mulai sekarang pun aku sudah bisa 
-meramal, nantinya kita tidak akan bisa mencegah anak-anak itu belajar kungfu. Jika hal itu terjadi, kalian sebisanya harus memastikan bahwa mereka belajar 
-dari Zhang Wuji, dan _bukan_ orang lain. Ini akan lebih mudah diterapkan kepada anak-anak Zhou Zhiruo. Alessandra sudah pasti akan selalu merengek minta 
-diajari kungfu ayahnya, dan pada saat itu ayahnya pasti akan mendidiknya baik-baik, jadi aku tidak kuatir. Yang paling mencemaskan adalah ketiga anak 
-laki-laki itu, karena kemungkinan besar mereka tidak menghormati ayah mereka karena pengaruh ibu-ibu mereka. Sebisa mungkin kalian harus tetap mengarahkan 
-mereka untuk belajar kungfu dari Zhang Wuji, dan bukan dari Zhou Zhiruo!"
+"Sementara memang begitu," kata Li Furen. "Tapi aku punya firasat buruk, bahwa tahun depan akan terjadi banyak hal yang mengejutkan kita semua. Aku tidak 
+tahu apa tepatnya, tapi sebaiknya kita bersiap-siap menghadapinya. Selain itu, Jiaozhu kalian sebentar lagi akan datang ke sini. Aku sudah menyuruhnya membawa 
+Alessandra pulang ke Ningxia bersamanya. Hal ini pasti akan membuat Zhou Zhiruo dan Junzhu kurang senang, kecuali jika mereka diajak ke sana. Kita tidak tahu apa 
+yang akan terjadi nanti. Jika mereka memaksa ikut, maka kalian berdua pasti akan kuminta tinggal di sini bersamaku, dan aku sudah pasti akan meminta supaya 
+mereka meninggalkan Agostin dan Lorenzo. Jadi mereka hanya punya dua pilihan itu, karena aku sendiri sudah bertekad tidak akan ikut pergi ke Ningxia."
+
+Tiga hari sebelum perayaan Natal, Zhang Wuji tiba di Ganzhou bersama Ah Da. Ia telah menunjuk Zong Weixia untuk mewakilinya mengambil keputusan penting, yang 
+berhubungan dengan pengelolaan wilayah Ningxia secara keseluruhan. Ia memandang Zong Weixia sebagai senior yang kaya pengalaman dan sangat disegani oleh para 
+penduduk kota karena usianya yang sudah cukup tua. Jika Xiao Zhao mengalami kesulitan untuk menenangkan semua orang, maka Zong Weixia dan Mei Jian pasti 
+bisa melakukannya.
+
+Ah San dan Delapan Panah Dewa menyambut kedatangan mereka di luar tembok kota sebelah selatan Ganzhou. Mereka memberi hormat dengan meletakkan tangan 
+di dada sambil menyapa, "Gongzi!" Lalu merangkul Ah Da yang sudah lama tidak mereka temui. Kecuali Ah San, Zhang Yishang dan Wang Bashuai yang pernah 
+diutus ke Zhongxing, memang yang lain sudah sangat lama tidak bertemu dengan Ah Da maupun Ah Er.
+
+[^gereja-timur]: Jing Jiao (景教) adalah Gereja Nestorian atau Gereja Timur. Di Indonesia lebih dikenal sebagai Gereja Ortodoks Timur, atau 'Gereje Katolik Ortodoks'. Seringkali juga disebut sebagai Gereja Nestorian, dan disalahartikan sebagai penganut Nestorianisme. Dalam bahasa Mongolia semuanya dianggap sama, yaitu Arka′un atau Erke′un.
+
+Pastor Giovanni dari Gereja Latin datang ke situ bersama dengan Frater Luigi dan Edoardo. Pastor Panagiotis dari Gereja Timur[^gereja-timur] yang sudah akrab dengan Li Furen 
+juga ikut hadir di situ menyambut kedatangan Zhang Wuji. Ah San memperkenalkan mereka semua. Kedua pastor itu berbicara dalam bahasa Han yang kurang lancar, 
+tetapi Zhang Wuji masih bisa memahami ucapan mereka dengan baik. Kadang-kadang Pastor Giovanni yang bisa berbahasa Yunani menerjemahkan kalimat yang dikatakan oleh 
+Zhang Wuji bagi Pastor Panagiotis.
+
+"Aku sangat berterima kasih atas kebaikan kalian semua, yang menjaga seluruh anggota keluargaku dengan baik hingga saat ini," kata Zhang Wuji sambil 
+merangkapkan kedua tangannya sebagai ungkapan terima kasih dan hormat menurut adat suku Han.
+
+"Li Furen adalah seorang penganut Kristen yang taat," kata Pastor Panagiotis. "Beliau sering mengunjungi gereja kami untuk ikut mengenang Xianyi Zhuangsheng Huanghou. 
+Karena itu sejak awal kedatangannya di kota ini semua orang mengenal Li Furen dengan baik."
+
+Ah San melihat kedatangan Lu Xian dan Sikong Jiumei dari kejauhan, dan berkata kepada Zhang Wuji, "Gongzi, sebaiknya kita semua segera menuju ke tempat kediaman Li Furen, 
+karena mereka semua sudah lama menunggu kedatangan Gongzi bersama anak-anak."
+
+Sambil berkuda di sebelah Zhang Wuji, Lu Xian menyelipkan secarik kertas ke tangannya sambil berkata dengan nada rendah, "Jiaozhu, Furen menitipkan pesan ini."
+
+Mendengar nada bicara Lu Xian, Zhang Wuji tahu bahwa Furen yang dimaksud adalah ibu mertuanya. Ia segera membaca pesan singkat itu, lalu menganggukkan kepalanya 
+tanpa mengerti. "Aku tahu," katanya.
+
+Saat itu ketiga anak laki-laki yang dilahirkan Zhao Min sudah bisa berdiri dan berjalan tanpa bantuan, meskipun selalu diawasi. Mereka berlima menunggu 
+kedatangan Zhang Wuji bersama seluruh anggota keluarga lainnya di halaman. Begitu melihat kedatangannya di kejauhan, Jing'er berseru kegirangan kepada 
+semua orang, "Mereka sudah tiba!"
+
+Zhang Wuji turun dari kuda diikuti semua orang lain, lalu segera berlutut di hadapan ibu mertuanya yang mengulurkan tangan kanannya. Mengikuti tradisi 
+keluarga Zhao Min, Zhang Wuji mencium tangan Li Furen sebagai tanda hormatnya, dan menyapa, "Yuemu!" 
+
+Tanpa ragu Li Furen lalu memberkatinya dengan membuat tanda salib di dahinya, meskipun semua orang tahu bahwa Zhang Wuji bukan seorang penganut Kristen. 
+
+Zhou Zhiruo menunjukkan sikap agak dingin, dan berkata, "Anak-anakmu tidak mengenalimu lagi."
+
+[^die]: Die (爹) adalah panggilan akrab seorang anak kepada ayah mereka di wilayah utara. 
+
+Tetapi di luar dugaannya, Zihan dan Ziying segera berlari ke arah Zhang Wuji sambil merentangkan kedua tangan mereka lebar-lebar dan berseru kegirangan, "Die[^die]!"
+Hampir bersamaan dengan itu, ketiga anak laki-laki lainnya berlari ke arah ayah mereka dengan dibantu oleh Shuang'er, Lingshan dan Lu Xian sambil 
+mengoceh, "Die-die-die-die... die-die-die!"
+
+Zhou Zhiruo dan Zhao Min agak terkejut melihat hal ini, tetapi mereka tersenyum tanpa mengatakan apa-apa. Zhang Wuji dengan gembira memeluk kedua 
+anaknya yang lebih besar, lalu mengusap-usap kepala ketiga anaknya yang lain.
+
+Hanya sedikit orang yang tahu apa yang terjadi. Setelah mendengar bahwa Zhang Wuji akan datang, kelima gadis itu diam-diam mengajarkan kepada anak-anak 
+asuhan mereka bagaimana cara memanggil ayah mereka dengan benar. Zihan dan Ziying yang sudah menjelang dua tahun tentu saja dengan cepat bisa mengatakannya. 
+Tetapi ketiga anak kembar Zhao Min yang lebih cepat berjalan ketimbang berbicara memerlukan sedikit trik untuk mengajarinya. Setiap harinya Shuang'er 
+dan teman-temannya sengaja menyebutkan istilah itu sesering mungkin untuk mereka dengar, tanpa diketahui oleh Zhou Zhiruo maupun Zhao Min. Karena seringnya 
+mendengar panggilan itu, begitu mendengar kedua kakak mereka memanggil Zhang Wuji, ketiganya segera menirukannya sambil berlari tanpa disuruh ke arah 
+ayah mereka, padahal semua anak itu sebenarnya memang tidak mengenali Zhang Wuji. Zihan dan Ziying baru berusia setahun ketika meninggalkan Kaifeng, dan 
+mereka hanya ingat samar-samar bagaimana rupa Zhang Wuji, tanpa tahu siapa sebenarnya wajah yang mereka ingat itu.
+
+[^wugong]: Wu Gong (武功) = Ilmu silat atau kungfu.
+
+Zihan dan Ziying mengamati wajah Zhang Wuji dengan penuh perhatian dari jarak sangat dekat. Lalu Ziying tiba-tiba berseru kegirangan dan mulai mengoceh 
+dengan bahasa tidak jelas sambil mengusap muka ayahnya, lalu mengatakan dua buah kata yang dikenalnya berkali-kali sambil mengepalkan tinjunya ke atas, 
+"Wugong[^wugong], Wugong!"
+
+Melihat hal itu, Zhao Min melirik ke arah ibunya, dan bersiap mendengar teguran. Tetapi anehnya, kali ini ibunya hanya tersenyum dan membiarkan Ziying 
+terus menyerukan kata yang sama untuk membanggakan ayahnya. Zihan yang lebih pandai bicara berkata, "Meimei ingin belajar Wugong!"
+
+Zhang Wuji tertawa sambil menggendong Ziying dengan tangan kirinya. Ia berkata, "Kau masih terlalu kecil untuk belajar kungfu." Ia berpaling kepada 
+ibu mertuanya dan semua orang lain sambil bertanya, "Saat ini keadaan di Ningxia sangat bagus. Memang belum sebaik kota ini, tapi kita akan terus memperbaikinya. 
+Bagaimana jika kita semua tinggal di situ?"
+
+Sebelum semua orang sempat menjawab, Li Furen berkata, "Kau masih punya banyak pekerjaan yang harus didahulukan. Untuk sementara biarkan kami 
+tetap di sini, aku bisa mengurus mereka semua sesuai janjiku. Tapi kau boleh membawa Alessandra. Setelah ini dia pasti akan terus merengek mencarimu, 
+dan membuat semua orang sangat repot."
+
+"Yuemu, kita bisa memikirkannya nanti," kata Zhang Wuji sambil mengajak semua orang masuk ke ruang tamu. "Bukankah Wuji masih akan tetap di sini sampai 
+kita merayakan ulang tahun Zihan dan Ziying, yang sekaligus merayakan Tahun Baru?"
+
+
+
+
 
 
 

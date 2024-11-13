@@ -52,14 +52,14 @@ Zhang Wuji sangat gembira. Ia segera bertanya, "Bagaimana kita bisa mengirimkan 
 dari sini," jawab Ah San. "Delapan Panah Dewa akan selalu diutus ka Zhongyuan jika mereka ingin mengirim pesan yang berbau darurat atau sangat penting."
 
 Zhang Wuji membaca sekilas surat dari Zhou Zhiruo dan Zhao Min yang diberikan oleh Ah San, tetapi ia membaca lebih teliti surat khusus dari ibu mertuanya.
-Lalu ia melipat ketiga surat itu, dan berkata dengan singkat, "Pomu ternyata sudah bertemu dengan dua orang frater dari Venesia lainnya yang baru tiba di sekitar 
+Lalu ia melipat ketiga surat itu, dan berkata dengan singkat, "Yuemu ternyata sudah bertemu dengan dua orang frater dari Venesia lainnya yang baru tiba di sekitar 
 tempat itu, namanya Edoardo dan Luigi. Jadi sekarang aku bisa tenang, banyak orang yang siap membantu segala keperluan mereka, dan frater-frater itu juga menemukan tempat untuk 
 mulai pekerjaan mereka di Zhongyuan."
 
 Tang Wenliang berkata, "Kami juga siap mendukung pos kita di Ganzhou dari Kongtong Pai."
 
-Tetapi Zhang Wuji berkata, "Sayangnya tidak bisa. Ibu mertuaku sangat anti membicarakan atau mengikuti kegiatan politik. Aku bisa mengatakan, jika Pomu menemukan 
-bahwa kedua frater itu ternyata memiliki kepentingan politik, pasti Pomu tidak akan membiarkan mereka mendekati cucu-cucunya. Selain itu kita perlu membiarkan 
+Tetapi Zhang Wuji berkata, "Sayangnya tidak bisa. Ibu mertuaku sangat anti membicarakan atau mengikuti kegiatan politik. Aku bisa mengatakan, jika Yuemu menemukan 
+bahwa kedua frater itu ternyata memiliki kepentingan politik, pasti Yuemu tidak akan membiarkan mereka mendekati cucu-cucunya. Selain itu kita perlu membiarkan 
 salah satu tempat yang ditempati oleh orang-orang kita berdiri bebas, mengikuti contoh keluarga Kerajaan Dali, yang sejak dulu sebenarnya adalah daerah 
 pusat kegiatan agama Buddha, dan hanya sibuk dengan urusan spiritual mereka sendiri. Meskipun di Kunming ada seorang Basalawarmi, tetapi pada dasarnya 
 dia hanya berfungsi untuk melindungi Dali dari serbuan pihak lain, dan tidak mengganggu Kerajaan Dali sendiri."
