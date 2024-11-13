@@ -712,16 +712,101 @@ dan membuat semua orang sangat repot."
 "Yuemu, kita bisa memikirkannya nanti," kata Zhang Wuji sambil mengajak semua orang masuk ke ruang tamu. "Bukankah Wuji masih akan tetap di sini sampai 
 kita merayakan ulang tahun Zihan dan Ziying, yang sekaligus merayakan Tahun Baru?"
 
+"Ziying adalah anakku," kata Zhou Zhiruo, masih dengan sikap dingin. "Kau tidak bisa membawanya begitu saja."
 
+Zhang Wuji tahu bahwa Zhou Zhiruo sedang tidak bisa diajak bicara dengan damai, dan ia tidak ingin berdebat. Ia bermaksud menyerahkan Ziying yang 
+masih memeluknya kepada Zhou Zhiruo, tetapi anak itu tidak mau melepaskan pelukannya di leher Zhang Wuji. Melihat hal itu, Zhou Zhiruo menjadi lebih, 
+kesal dan membentaknya, "Ziying, turun! Kau sudah bisa berjalan sendiri, kenapa merepotkan ayahmu?"
 
+Mendengar bentakan ibunya, Ziying ragu-ragu, dan menoleh kepada Zhao Min untuk mencari dukungan. Zhao Min segera mengulurkan kedua tangannya untuk 
+menggendongnya, tetapi Ziying buru-buru memeluk Zhang Wuji lebih erat dan tak mau melepaskannya. Melihat hal ini, Zhao Min tertawa dan berkata, "Zhou Jiejie, 
+anak ini sudah lama merindukan ayahnya. Biarkan saja."
 
+Saat itu Zijian meronta dari pelukan Lingshan sambil memanggil-manggil Zhou Zhiruo, "Niang, niang[^niang]!"
 
+[^niang]: Niang (娘) adalah panggilan akrab seorang anak kepada ibunya, yang umum digunakan di wilayah utara.
 
+Zhou Zhiruo dengan gembira menggendongnya, lalu mencium pipinya berkali-kali. 
 
+"Hei, mengapa Ziwen lebih akrab denganmu?" tanya Zhang Wuji heran.
 
+Semua orang yang mengenali siapa anak itu sebenarnya tertawa mendengar pertanyaannya. "Wuji Gege, ini adalah Zijian," kata Zhao Min. "Dia memang yang paling 
+dekat dengan Zhou Jiejie. Aku sendiri tidak ingat sejak kapan, mungkin karena dia tahu bahwa Zhou Jiejie yang memberinya nama dalam bahasa Han."
 
+"Aku tertipu," kata Zhang Wuji sambil tertawa. Topi anak itu terlepas ketika berusaha meraih tangan Zhou Zhiruo, dan ia melihat pusaran rambutnya 
+ternyata di sebelah kanan. Ia hanya bisa menebak bahwa anak ini Zijian atau Ziwen, dan ia memilih yang terakhir.
 
+Kecuali Zhang Wuji dan tamu-tamu mereka, saat ini semua orang di rumah Li Furen bisa membedakan dengan baik ketiga anak laki-laki itu tanpa harus melihat 
+tanda lahir maupun pusaran rambut mereka. Lu Xian menghampiri Zhang Wuji sambil menggandeng tangan Ziwen yang sedang sibuk berceloteh, "Die-die-die... wu-gong-gong-gong..."
 
+"Jiaozhu, ini baru Ziwen yang asli," kata Lu Xian sambil tertawa.
+
+Mereka sudah tiba di ruang tamu, dan Ziwen menuding sesuatu di meja tulis dengan jari telunjuknya sambil terus berceloteh. Sementara Li Furen mempersilakan 
+semua tamunya duduk, Lu Xian membantu Ziwen berjalan mendekati meja itu, dan ternyata ia meraih selembar kertas dan kuas. 
+
+"Hei, apa yang dilakukannya?" tanya Zhang Wuji ingin tahu.
+
+"Nah, sekarang kau akan sangat kaget," kata Zhou Zhiruo dengan senang. "Anak itu lebih pintar dari ayahnya."
+
+Mereka melihat Lu Xian membantu Ziwen mencelupkan kuas ke dalam tinta, lalu memberikan kuas itu kepada Ziwen, yang kemudian sibuk menggambar sesuatu 
+dengan serius. Neneknya mengamati semua itu sambil tersenyum simpul. Tak lama kemudian Lu Xian memamerkan gambar yang dibuat anak asuhannya sambil 
+tersenyum lebar kepada semua orang. Ternyata Ziwen menggambar karakter Wen (文) dengan sempurna, meskipun hasil gambarnya tetap kurang bagus. Semua orang 
+di situ, yang bisa membaca tulisan dalam bahasa Han bisa mengenalinya dengan baik sebagai nama Ziwen sendiri.
+
+Zhang Wuji tercengang, lalu tertawa senang sambil berjongkok untuk menggendong Ziwen dengan tangan kanannya, sementara tangan kirinya masih menggendong Ziying 
+yang belum mau melepaskan pelukannya. Ia berkata, "Yuemu, bagaimana cara kalian semua mengajarkan anak ini menulis namanya sendiri?"
+
+Zhao Min menggandeng tangan Ziwu untuk mendekat sambil berkata, "Sebenarnya semua anak-anak sedang diajari menulis nama mereka sendiri dengan benar, 
+tapi bukan semua nama punya karakter sederhana seperti nama Ziwen. Han'er, Ying'er, coba kalian tunjukkan nama kalian kepada ayah!"
+
+Zhang Wuji sendiri tidak mewarisi ilmu sastra maupun kaligrafi ayahnya, karena itu ia sangat mengagumi apa yang dilakukan oleh Ziwen di usianya yang 
+baru setahun. Dan sekarang ia kembali tercengang menyaksikan Zihan menggambar karakter Han (漢) yang cukup rumit bagi anak usia dua tahun. 
+
+Zhao Min mengajarkan sendiri bagaimana menulis nama kepada Ziying. Dan ia mengajarkan dua karakter yang berlainan, yaitu Ying (赢 dan 應). Meskipun 
+saat itu Ziying sedang tidak ingin menulis namanya sendiri, tetapi karena Zhao Min yang menyuruhnya, maka ia menggambar kedua karakter itu dengan penuh 
+semangat, dan berhasil membuat semua orang kaget. Li Furen tentu saja tidak terkejut, karena ia sudah pernah menyaksikannya sendiri. Sementara semua orang 
+mash terkesima, Sikong Jiumei dan Jing'er kemudian mengambil beberapa lembar kertas kosong, dan menyusunnya di lantai untuk ditulisi oleh kedua 
+anak asuhan mereka masing-masing. 
+
+Zhang Wuji dan semua tamu lain memperhatikan bahwa Sikong Jiumei hanya menyediakan enam lembar kertas, sementara Jing'er ternyata menyiapkan sepuluh lembar 
+kertas untuk Ziying. Mereka semua melongo menyaksikan kedua anak itu menggambar huruf-huruf latin, masing-masing 'A-G-O-S-T-I-N' dan 'A-L-E-S-S-A-N-D-R-A'.
+Huruf-huruf itu tidak dipahami oleh Zhang Wuji, tetapi para rohaniwan dari kedua gereja itu tentu saja memahaminya dengan baik, karena kedua anak itu menggambar 
+huruf-huruf itu dengan nyaris sempurna. Huruf latin memang jauh lebih sederhana ketimbang karakter-karakter bahasa Han yang kompleks. Kali ini bahkan 
+Zhou Zhiruo dan Zhao Min tercengang menyaksikannya, karena mereka berdua tidak merasa pernah mengajari kedua anak itu melakukannya.
+
+Kedua pastor dan frater-frater itu bertepuk tangan sambil tertawa gembira menyaksikan keterampilan kedua anak kecil di hadapan mereka. 
+
+Melihat banyak orang sedang bertepuk tangan untuk menyorakinya, Ziying tertawa kegirangan, lalu mengepalkan tinjunya ke atas sambil berseru-seru 
+dalam bahasa yang hanya dimengerti olehnya sendiri. Setelah itu, semua anak-anak lain ikut berteriak-teriak dengan seru, sehingga ruangan yang tidak 
+terlalu besar itu menjadi sangat berisik.
+
+Karena Ziwu dan Zijian juga ikut berteriak-teriak nyaring di dekat telinga mereka, Zhou Zhiruo dan Zhao Min yang merasa sangat tidak nyaman segera menyuruh 
+Jing'er, Sikong Jiumei dan Lu Xian menenangkan anak-anak mereka yang sedang duduk di lantai untuk menggambar, dan mereka sendiri pun sibuk menenangkan 
+kedua anak yang sedang mereka peluk.
+
+Tetapi Pastor Panagiotis berkata, "Furen, anak-anak ini sangat pintar. Biarkan saja mereka bergembira, itu sangat _manusiawi_."
+
+Pastor Giovanni berdehem, lalu berkata dengan hati-hati, "Anak-anak sejak awal harus dididik dengan disiplin. Kukira kita harus membedakan antara 'manusiawi' 
+dengan 'liar'. Tentunya _kita_ ingat apa yang diajarkan oleh Agostin dari Hippo."
+
+Zhang Wuji tidak tahu banyak tentang Agostin dari Hippo yang disebutkan oleh Pastor Giovanni itu, kecuali bahwa namanya dipakai sebagai nama anaknya 
+oleh Frater Andre yang membaptisnya. Pastor itu bicara agak panjang dalam bahasa Han yang kurang lancar, dan dicampur dengan sedikit istilah Latin, yang 
+bagi Zhang Wuji terasa asing. Meskipun begitu, ia bisa merasakan adanya ketegangan antara kedua pastor yang agak berbeda ajaran itu. Karena tidak memahami 
+apa yang terjadi, ia lalu menoleh kepada ibu mertuanya.
+
+Li Furen tahu pasti apa yang sedang terjadi. Selama ini Gereja Timur dan Gereja Latin memang cenderung bersikap seperti ini. Meskipun mereka terlihat 
+damai, tetapi para pemimpin Gereja Latin diam-diam selalu mewaspadai bahwa kolega mereka dari Gereja Timur sesat. Sementara itu, para imam dan pemimpin 
+umat dari Gereja Timur kebanyakan memandang rekan mereka dari Gereja Latin sebagai musuh politik.
+
+[^laonu]: Lao Nu (老女) dalam konteks ini bisa diterjemahkan menjadi 'Perempuan tua ini'.
+
+Merasa bahwa saat ini dirinya adalah tuan rumah, sedangkan kedua pastor itu adalah tamu-tamunya, yang sedang tidak dalam posisi mengajar atau memimpin umat, maka 
+Li Furen terbatuk, lalu berkata, "Pater memang benar, Laonu[^laonu] seharusnya mengajar anak-anak ini dengan lebih baik. Setelah ini Laonu akan mengaku 
+dosa, dan berjanji untuk memberi mereka pengertian bagaimana seharusnya menghormati _sesama manusia_."
+
+Zhang Wuji melihat bahwa muka Pastor Giovanni agak memerah setelah mendengar ucapan ibu mertuanya. Karena Li Furen mengucapkan kalimat itu sambil 
+membungkuk dalam-dalam dengan cara yang biasa dilakukan oleh suku Han untuk minta maaf, kedua pastor itu merasa sangat tidak enak, lalu buru-buru 
+mengatakan sesuatu untuk mempersilakannya bangkit seperti biasa. 
 
 
 

@@ -1133,7 +1133,7 @@ Tidak terlalu banyak rakyat Kaifeng yang menganut agama Kristen, jadi kebanyakan
 hanya mengikutinya dengan sikap hormat, dan menunggu acara yang mereka mengerti. Zhang Wuji sekaligus mengumumkan nama anak-anak mereka dalam bahasa 
 Han, yang diberikan oleh dirinya sendiri, Zhou Zhiruo dan juga Ah Luo.
 
-Ah Luo dan Zhou Zhiruo memberikan nama bagi dua orang anak yang dilahirkan lebih dahulu, yaitu Ziwu dan Zijian. Kedua nama itu melambangkan ilmu silat, 
+Ah Luo dan Zhou Zhiruo memberikan nama bagi dua orang anak yang dilahirkan lebih awal, yaitu Ziwu dan Zijian. Kedua nama itu melambangkan ilmu silat, 
 karena karakter 'Wu' bermakna ilmu silat atau ilmu perang, sedangkan karakter 'Jian' berarti pedang, yang sesuai dengan kungfu Ah Luo sendiri. Sedangkan 
 Zhang Wuji memberikan nama Ziwen, yang bermakna 'sastra', melambangkan bahwa ia lebih mengharapkan bahwa anaknya akan lebih menekuni ilmu sastra, yang 
 tidak mengandung kekerasan sama sekali.
