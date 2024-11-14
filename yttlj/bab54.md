@@ -645,15 +645,15 @@ diutus ke Zhongxing, memang yang lain sudah sangat lama tidak bertemu dengan Ah 
 
 [^gereja-timur]: Jing Jiao (景教) adalah Gereja Nestorian atau Gereja Timur. Di Indonesia lebih dikenal sebagai Gereja Ortodoks Timur, atau 'Gereje Katolik Ortodoks'. Seringkali juga disebut sebagai Gereja Nestorian, dan disalahartikan sebagai penganut Nestorianisme. Dalam bahasa Mongolia semuanya dianggap sama, yaitu Arka′un atau Erke′un.
 
-Pastor Giovanni dari Gereja Latin datang ke situ bersama dengan Frater Luigi dan Edoardo. Pastor Panagiotis dari Gereja Timur[^gereja-timur] yang sudah akrab dengan Li Furen 
-juga ikut hadir di situ menyambut kedatangan Zhang Wuji. Ah San memperkenalkan mereka semua. Kedua pastor itu berbicara dalam bahasa Han yang kurang lancar, 
-tetapi Zhang Wuji masih bisa memahami ucapan mereka dengan baik. Kadang-kadang Pastor Giovanni yang bisa berbahasa Yunani menerjemahkan kalimat yang dikatakan oleh 
-Zhang Wuji bagi Pastor Panagiotis.
+Pastor Giovanni dari Gereja Latin datang ke situ bersama dengan Frater Luigi dan Edoardo. Pastor Barsauma dari Gereja Timur[^gereja-timur] yang sudah akrab dengan Li Furen 
+juga ikut hadir di situ menyambut kedatangan Zhang Wuji. Ah San memperkenalkan mereka semua. Pastor Giovanni berbicara dalam bahasa Han yang kurang lancar, 
+tetapi Zhang Wuji masih bisa memahami ucapannya dengan baik. Kadang-kadang Pastor Barsauma, yang adalah seorang Persia dan lebih bisa berbahasa Han, menerjemahkan 
+kalimat yang dikatakan oleh Zhang Wuji bagi Pastor Giovanni.
 
 "Aku sangat berterima kasih atas kebaikan kalian semua, yang menjaga seluruh anggota keluargaku dengan baik hingga saat ini," kata Zhang Wuji sambil 
 merangkapkan kedua tangannya sebagai ungkapan terima kasih dan hormat menurut adat suku Han.
 
-"Li Furen adalah seorang penganut Kristen yang taat," kata Pastor Panagiotis. "Beliau sering mengunjungi gereja kami untuk ikut mengenang Xianyi Zhuangsheng Huanghou. 
+"Li Furen adalah seorang penganut Kristen yang taat," kata Pastor Barsauma. "Beliau sering mengunjungi gereja kami untuk ikut mengenang Xianyi Zhuangsheng Huanghou. 
 Karena itu sejak awal kedatangannya di kota ini semua orang mengenal Li Furen dengan baik."
 
 Ah San melihat kedatangan Lu Xian dan Sikong Jiumei dari kejauhan, dan berkata kepada Zhang Wuji, "Gongzi, sebaiknya kita semua segera menuju ke tempat kediaman Li Furen, 
@@ -759,13 +759,16 @@ yang belum mau melepaskan pelukannya. Ia berkata, "Yuemu, bagaimana cara kalian 
 Zhao Min menggandeng tangan Ziwu untuk mendekat sambil berkata, "Sebenarnya semua anak-anak sedang diajari menulis nama mereka sendiri dengan benar, 
 tapi bukan semua nama punya karakter sederhana seperti nama Ziwen. Han'er, Ying'er, coba kalian tunjukkan nama kalian kepada ayah!"
 
+[^han-jiang]: Han Jiang (漢江 atau 汉江) atau Han Shui (漢水 atau 汉水) adalah nama Sungai Han. Karakter yang digambar Zihan adalah 漢.
+
 Zhang Wuji sendiri tidak mewarisi ilmu sastra maupun kaligrafi ayahnya, karena itu ia sangat mengagumi apa yang dilakukan oleh Ziwen di usianya yang 
-baru setahun. Dan sekarang ia kembali tercengang menyaksikan Zihan menggambar karakter Han (漢) yang cukup rumit bagi anak usia dua tahun. 
+baru setahun. Dan sekarang ia kembali tercengang menyaksikan Zihan menggambar karakter Han yang diambil dari nama Sungai Han[^han-jiang], yang cukup rumit 
+bagi anak usia dua tahun. 
 
 Zhao Min mengajarkan sendiri bagaimana menulis nama kepada Ziying. Dan ia mengajarkan dua karakter yang berlainan, yaitu Ying (赢 dan 應). Meskipun 
 saat itu Ziying sedang tidak ingin menulis namanya sendiri, tetapi karena Zhao Min yang menyuruhnya, maka ia menggambar kedua karakter itu dengan penuh 
 semangat, dan berhasil membuat semua orang kaget. Li Furen tentu saja tidak terkejut, karena ia sudah pernah menyaksikannya sendiri. Sementara semua orang 
-mash terkesima, Sikong Jiumei dan Jing'er kemudian mengambil beberapa lembar kertas kosong, dan menyusunnya di lantai untuk ditulisi oleh kedua 
+masih terkesima, Sikong Jiumei dan Jing'er kemudian mengambil beberapa lembar kertas kosong, dan menyusunnya di lantai untuk ditulisi oleh kedua 
 anak asuhan mereka masing-masing. 
 
 Zhang Wuji dan semua tamu lain memperhatikan bahwa Sikong Jiumei hanya menyediakan enam lembar kertas, sementara Jing'er ternyata menyiapkan sepuluh lembar 
@@ -784,19 +787,21 @@ Karena Ziwu dan Zijian juga ikut berteriak-teriak nyaring di dekat telinga merek
 Jing'er, Sikong Jiumei dan Lu Xian menenangkan anak-anak mereka yang sedang duduk di lantai untuk menggambar, dan mereka sendiri pun sibuk menenangkan 
 kedua anak yang sedang mereka peluk.
 
-Tetapi Pastor Panagiotis berkata, "Furen, anak-anak ini sangat pintar. Biarkan saja mereka bergembira, itu sangat _manusiawi_."
+Tetapi Pastor Barsauma berkata, "Furen, anak-anak ini sangat pintar. Biarkan saja mereka bergembira, itu sangat _manusiawi_."
 
 Pastor Giovanni berdehem, lalu berkata dengan hati-hati, "Anak-anak sejak awal harus dididik dengan disiplin. Kukira kita harus membedakan antara 'manusiawi' 
-dengan 'liar'. Tentunya _kita_ ingat apa yang diajarkan oleh Agostin dari Hippo."
+dengan 'liar'. Sebagai manusia, kita semua punya _pemimpin_ di atas kita, dan kita harus belajar baik-baik apa artinya 'taat'. Tentunya _kita_ ingat apa yang 
+diajarkan oleh Agostin dari Hippo."
 
 Zhang Wuji tidak tahu banyak tentang Agostin dari Hippo yang disebutkan oleh Pastor Giovanni itu, kecuali bahwa namanya dipakai sebagai nama anaknya 
-oleh Frater Andre yang membaptisnya. Pastor itu bicara agak panjang dalam bahasa Han yang kurang lancar, dan dicampur dengan sedikit istilah Latin, yang 
-bagi Zhang Wuji terasa asing. Meskipun begitu, ia bisa merasakan adanya ketegangan antara kedua pastor yang agak berbeda ajaran itu. Karena tidak memahami 
-apa yang terjadi, ia lalu menoleh kepada ibu mertuanya.
+oleh Frater Andre yang membaptisnya. Ibu mertuanya juga menceritakan bahwa Pastor Agostin dari Hippo sebelumnya pernah menganut ajaran Ming Jiao, sebelum dibaptis 
+menjadi Kristen. Pastor Giovanni saat itu bicara agak panjang dalam bahasa Han yang kurang lancar, dan dicampur dengan sedikit istilah Latin, yang 
+bagi Zhang Wuji terasa asing. Meskipun begitu, ia bisa merasakan adanya ketegangan antara kedua pastor yang agak berbeda ajaran itu. Karena tidak 
+memahami apa yang terjadi, ia lalu menoleh kepada ibu mertuanya.
 
 Li Furen tahu pasti apa yang sedang terjadi. Selama ini Gereja Timur dan Gereja Latin memang cenderung bersikap seperti ini. Meskipun mereka terlihat 
 damai, tetapi para pemimpin Gereja Latin diam-diam selalu mewaspadai bahwa kolega mereka dari Gereja Timur sesat. Sementara itu, para imam dan pemimpin 
-umat dari Gereja Timur kebanyakan memandang rekan mereka dari Gereja Latin sebagai musuh politik.
+umat dari Gereja Timur memandang rekan mereka dari Gereja Latin sebagai musuh politik.
 
 [^laonu]: Lao Nu (老女) dalam konteks ini bisa diterjemahkan menjadi 'Perempuan tua ini'.
 
@@ -808,9 +813,149 @@ Zhang Wuji melihat bahwa muka Pastor Giovanni agak memerah setelah mendengar uca
 membungkuk dalam-dalam dengan cara yang biasa dilakukan oleh suku Han untuk minta maaf, kedua pastor itu merasa sangat tidak enak, lalu buru-buru 
 mengatakan sesuatu untuk mempersilakannya bangkit seperti biasa. 
 
+Sebaliknya, Li Furen berkata, "Zhiruo, Minmin, kalian tidak mengajar anak-anak yang diberikan Allah kepada kalian dengan benar. Sekarang kita harus minta 
+petunjuk dari Pater bagaimana cara melakukannya — cepat, berlutut!"
 
+Meskipun tidak sepenuhnya memahami alasannya, Zhou Zhiruo dan Zhao Min menuruti perintah Li Furen untuk berlutut tanpa membantah. 
 
+Ketika melihat Zhang Wuji juga bermaksud mengikuti sikap itu tanpa disuruh, kedua pastor itu buru-buru mencegahnya. Pastor Barsauma berkata, "Zhang Jiaozhu, 
+di sini Ming Jiao seringkali disalahpahami sebagai umat dari gereja Kristen, dan di banyak tempat di mana umat dari pihak kita memang sedikit, dan para anggota Ming Jiao 
+sendiri dimusuhi, seringkali mereka juga berkumpul bersama kami. Tetapi dari sisi kepemimpinan, Zhang Jiaozhu harus dianggap setara dengan Patriark kami 
+atau Uskup bagi Zhongyuan ini. Bagaimana kami bisa memberikan pengajaran kepada Zhang Jiaozhu?"
 
+Zhang Wuji bisa memahami dengan baik kata-kata Pastor Barsauma yang diucapkan dalam bahasa Han yang canggung itu, dan hal ini membuatnya heran. Apa yang 
+disebutkan Pastor Barsauma itu sama sekali baru baginya. Tetapi akhirnya ia menyadari, bahwa para anggota Ming Jiao seperti Torebeg dan Elbeg, bersama semua 
+anak buah mereka yang menganut ajaran Ming Jiao lainnya, selama ini ternyata bernaung di bawah lindungan gereja Kristen terdekat untuk menghindari tudingan 
+bahwa mereka telah bersekutu dengan kaum pemberontak, karena Ming jiao di Zhongyuan memang selalu dikaitkan dengan Hongjin Qiyi, yang terang-terangan memberontak 
+melawan pemerintah.
+
+Zhang Wuji menghela nafas panjang, lalu berkata kepada ibu mertuanya yang masih berlutut bersama Zhou Zhiruo dan Zhao Min, "Yuemu, ijinkan Wuji bicara 
+sedikit. Pater juga tahu bahwa Yuemu telah berusaha sebaik-baiknya untuk mendidik anak-anak, dan Wuji sendiri tidak bisa melakukannya lebih baik lagi 
+dibandingkan dengan apa yang telah kalian lakukan." Ia menggenggam kedua tangan ibu mertuanya untuk membantunya bangkit, sambil berbisik ke telinganya, "Wuji mengerti semuanya."
+
+Setelah semua orang duduk dengan tenang, ia melanjutkan kata-katanya, "Zhang Wuji tidak berani disetarakan dengan para pemuka agama setinggi Patriark atau 
+Uskup bagi para penganut Kristen, yang bagiku adalah sama seperti Ketua Shaolin, Kongwen Dashi atau kakek guruku sendiri, Zhang Sanfeng. Karena suatu hal yang 
+tidak dapat kupahami, orang mengangkatku menjadi ketua Ming Jiao di Zhongyuan ini, untuk menggantikan Yang Jiaozhu yang telah meninggal. Aku telah dengan lancang 
+dan berani memberikan banyak perintah, yang ternyata sekarang ini menimbulkan berbagai konflik, dan menyebabkan banyak orang kehilangan nyawanya. 
+Beberapa waktu yang lalu, Permaisuri Bayan sempat mengatakan di depan banyak orang di istana, bahwa dirinya berharap bahwa segala pertentangan gara-gara 
+agama dan perebutan kekuasaan ini segera berakhir, karena baik Yesus, Nabi Muhammad, 'Raja Terang' yang ditunggu-tunggu oleh para penganut Ming Jiao, 
+atau Buddha Maitreya yang kedatangannya ditunggu-tunggu oleh para anggota Hongjin Qiyi itu, semuanya tidak pernah menyuruh orang untuk saling membunuh. 
+Aku sekali lagi memberanikan diri, dan hanya mencoba memperbaiki kekeliruanku sebelumnya berdasarkan pandangan semacam ini. Ibuku telah memilih kota yang indah 
+ini untuk menjadi tempat tinggal keluarga kami, dan sejauh ini kulihat semua pihak telah ikut membantu keluarga kami untuk tinggal di sini dengan damai. Meskipun 
+ibuku, dan juga anak-anakku dibaptis oleh Gereja Latin, tetapi ibuku sangat menghargai Xianyi Zhuangsheng Huanghou[^sorghaghtani-beki], yang adalah pengikut setia 
+Gereja Timur. Ibuku hanya memandang Yesus, dan juga Xianyi Zhuangsheng Huanghou yang sangat dihargainya, dan mengabaikan semua perbedaan yang ada. Kumohon kita semua 
+bisa bekerja sama untuk mempertahankan apa yang selama ini sudah baik." 
+
+[^inosensius-vi]: Innocentius VI adalah Paus yang berkuasa sejak 18 Desember 1352 sampai ia meninggal, yaitu 12 September 1362. di usianya yang ke-79 atau 80. Di Indonesia, gelarnya lebih sering ditulis Paus Inosensius VI.
+
+Saat ini yang berkuasa sebagai Paus atau Uskup Roma adalah Paus Innocentius VI[^inosensius-vi], yang sebetulnya tidak tinggal dan berasal dari Roma, melainkan Avignon, Prancis. 
+Karena suatu alasan, Paus Inosensius VI telah menolak tawaran untuk bersatu dengan Gereja Timur, meskipun saat itu pemerintahannya mengalami berbagai krisis, dan sedang 
+terancam wabah penyakit.
+
+Mendengar apa yang dikatakan oleh Zhang Wuji, Pastor Barsauma berkata, "Sayangnya ada pihak yang tidak ingin bersatu."
+
+Tak mau kalah, Pastor Giovanni bergumam sendiri, "Ajaran gereja yang sehat tak boleh dikompromikan hanya karena makanan dan minuman."
+
+Merasa bahwa saling sindir ini pasti akan membuat suasana kembali memanas, Li Furen memberi isyarat mata kepada Zhang Wuji, lalu ia sendiri berkata kepada 
+Zhou Zhiruo, "Zhiruo, bukankah kau baru membuat makanan-makanan Sichuan? Sekarang sudah mulai dingin, mungkin Pater ingin mencicipinya. Pasti akan membantu 
+menghangatkan tubuh"
+
+Zhang Wuji tertawa sambil menggandeng tangan Pastor Barsauma dan Ziying untuk menuju ke teras. Ia menoleh kepada Sikong Jiumei dan berkata, "Jiumei, tolong ajak 
+Zihan ke teras untuk mengobrol bersama Pater. Aku yakin kedua anak ini pasti ingin mendengar cerita Pater tentang Xianyi Zhuangsheng Huanghou."
+
+Mendengar Zhang Wuji begitu menghargai Sorghaghtani Beki, semangat bercerita Pastor Barsauma bangkit. Ia tertawa senang sambil mengelus jenggot panjangnya, 
+dan seketika itu melupakan perdebatan kecilnya dengan Pastor Giovanni. Ziying yang pada dasarnya senang bergaul dengan orang-orang baru, dengan senang hati 
+menggandeng tangan Pastor keturunan Persia itu dengan tangan kanannya, sementara tangan kirinya menggandeng tangan Zhang Wuji. 
+
+Zhao Min ikut datang sambil membawa beberapa dimsum hasil karya Zhou Zhiruo, yang mirip dengan makanan-makanan yang sempat dinikmati Zhang Wuji di 
+Sichuan. Ah Da membantunya membawa nampan berisi teh bunga krisan yang harum, dan beberapa mangkuk kosong. Mereka duduk dengan santai di teras depan rumah 
+sederhana Li Furen. "Pater, ini semuanya pedas, semoga Pater menyukainya," kata Zhao Min. Ia mengambil sepotong pangsit dan siomay dan meletakkannya 
+di dalam mangkuk kosong untuk Pastor Barsauma, lalu menyodorkan semangkuk saus yang terbuat dari aneka macam rempah-rempah, termasuk lada khas Sichuan, 
+ditambah dengan irisan bawang dan cabe rawit hasil karya Zhao Min sendiri.
+
+Pastor Barsauma sudah sangat akrab dengan keluarga Zhang Wuji, karena Li Furen sering mengajak mereka semua ke gerejanya untuk mendengar cerita dari 
+orang-orang di situ mengenai Sorghaghtani Beki. "Masakan Zhou Furen semuanya lezat," katanya sambil tertawa. "Tidak ada orang yang tidak menyukainya. 
+Tapi bumbu ini pastilah kau yang membuatnya. Ini lebih pedas dari biasa, aku suka sekali."
+
+[^jiao]: Jiao (餃) adalah pangsit dalam bahasa mandarin.
+
+"Die, ini jiao[^jiao], jiao," kata Zihan sambil menunjuk-nunjuk makanan itu dengan telunjuknya. "Ma, aku mau ini."
+
+Saat itu ia sedang duduk di pangkuan Pastor Barsauma yang memang sangat menyukainya. Zhao Min segera menyuruh Sikong Jiumei dan Jing'er mengambil 
+makanan yang dimaksud itu masing-masing sepotong bagi kedua anak itu, dan memotong-motongnya menjadi kecil-kecil. Makanan itu ada yang dihidangkan dengan 
+sup, yang berisi beberapa jenis sayuran. Ketika Zhao Min menyuruh mereka makan di tempat lain, kedua anak itu tidak mau, dan masih duduk di tempat mereka 
+masing-masing untuk mendengarkan pembicaraan semua orang dewasa. Jing'er dan Sikong Jiumei berhasil mendudukkan keduanya di dekat meja itu sambil menyuapi 
+mereka. Tampaknya kedua anak itu memasang telinga mereka dengan penuh minat, meskipun tidak mengerti isi pembicaraan mereka.
+
+Pastor Barsauma tertawa ketika Zhao Min menanyakan apa sebenarnya yang mereka perdebatkan tadi. Ia berkata dengan ringan, "Sebenarnya apa yang dikatakan 
+Pastor Giovanni tadi memang benar, dan bisa kalian ikuti. Tetapi mereka semua cenderung curiga setiap kali kami mengatakan sesuatu yang mengandung kata 
+'manusiawi', jadi aku hanya ingin menggodanya. Aku tidak ingin memperpanjang urusan itu. Jika kalian memang ingin tahu, coba tanyakan kepada semua frater, 
+siapa sebenarnya orang yang bernama Nestorius itu. Jawaban mereka pasti akan berbelit-belit, yang intinya adalah mengatakan bahwa Nestorius _sesat_, sedangkan 
+_menurut kami tidak_. Hanya itu yang bisa kukatakan."
+
+"Oh," kata Zhang Wuji dan Zhao Min hampir bersamaan, begitu mendengat Pastor Barsauma mengatakan istilah 'sesat'. Mereka berdua saling pandang, teringat akan 
+pertikaian sengit antara Miejue Shitai bersama para pendekar perguruan besar di Zhongyuan lainnya dengan Ming Jiao, yang menewaskan banyak orang di Guangming Ding. 
+ 
+"Tampaknya istilah sesat itu menyakiti banyak orang yang tidak bersalah," kata Zhang Wui sambil termenung.
+
+"Gongzi, memang _ada_ ajaran yang sungguh-sungguh salah, dan selayaknya tidak kita sebar luaskan," kata Pastor Barsauma. "Tetapi saat ini banyak pihak saling 
+tuding dengan mengatakan yang lain adalah _sesat_, sedangkan pihak mereka sendirilah satu-satunya yang benar, jadi kita harus memandang mereka semua dengan 
+hati-hati, jangan terburu-buru mengikuti salah satunya, yang mungkin saja punya kepentingan politik tertentu. Li Furen seringkali menceritakan kepadaku 
+mengenai apa yang berusaha Gongzi lakukan, dan aku beranggapan bahwa tindakan Gongzi sejauh ini benar."
+
+Zhang Wuji menggelengkan kepalanya dengan sedih, lalu berkata, "Nyatanya sampai saat ini kami gagal berbuat sesuatu di Fujian. Mereka semua tidak mau 
+mendengarkan nasihat."
+
+Tetapi Pastor Barsauma berkata, "Gongzi tidak perlu berkecil hati, karena masalah itu sebenarnya sudah lama ada. Bukan hanya di Fujian, bahkan di seluruh 
+dunia, kedua kelompok itu — Syiah dan Sunni — memang selalu bertikai." Ia tertawa, lalu melanjutkan dengan nada ringan, "Seperti juga Gereja Timur dan Gereja Latin."
+
+"Tetapi apa yang terjadi di Fujian kelihatannya tidak sama," kata Zhang Wuji lagi. "Memang sepintas lalu ini adalah pertikaian antara aliran Sunni dan Syiah. 
+Tetapi setelah kami selidiki, para penganut Sunni itu adalah kelompok yang berasal dari Pu Shuogeng, seorang pemberontak Dinasti Song yang dipandang berjasa oleh 
+Kubilai Khan karena ikut membantu berdirinya Dinasti Yuan. Keluarga dan para pengikutnya kemudian mendapat kedudukan istimewa di pemerintahan. Tak hanya 
+itu, keluarga mereka juga punya pengaruh sangat besar dalam ekonomi rakyat Quanzhou. Hal ini menimbulkan rasa _iri_, lalu berkembang menjadi permusuhan 
+dari kelompok Syiah, yang jumlahnya jauh lebih sedikit, dan dalam berbagai hal juga punya posisi lebih lemah. Konon, Dinasti Yuan pernah mencoba menyeimbangkan 
+jumlah ini dengan menempatkan sekitar tiga ribu prajurit Syiah di Quanzhou, tetapi jumlah itu jauh dari memadai untuk mengimbangi kekuatan keluarga dan para 
+pengikut Pu Shougeng. Akhirnya muncullah kelompok Pemberontak Ispah Persia itu, yang semula hanya ingin membela kelompok mereka sendiri. tetapi sekitar tiga 
+tahun yang lalu, Sayf ad-Din dan Amir ad-Din — komandan pasukan pemberontak itu — berhasil menekan kelompok Sunni Pu Shougeng, dan Pemberontak Ispah Persia 
+kemudian berkembang menjadi salah satu kekuatan militer terbesar di Fujian. Dengan dalih membela kelompok sendiri, mereka pun akhirnya juga melawan pemerintah."
+
+"Nah, justru itulah yang seringkali terjadi," kata Pastor Barsauma. "Bahkan di dalam ordo Fransiskan pun hal semacam itu ada. Hingga saat ini ada 
+sebuah kelompok yang menamakan diri Fraticelli, yang awalnya hanyalah sekelompok kecil frater Fransiskan, yang tidak setuju dengan perubahan yang terjadi di dalam ordo mereka. 
+Seperti namanya, ordo Fransiskan adalah kelompok biarawan yang didirikan oleh Francesco dari Assisi, seorang pujangga dari Assisi. Dia terinspirasi 
+untuk menjalani kehidupan miskin seperti Yesus sendiri, dan kemudian mulai hidup seperti Kai Pang di Zhongyuan." Ia tersenyum sambil berkata, "Namanya diambil 
+oleh Li Furen sebagai nama putra kedua Junzhu — Francesco. Nah, sekelompok frater itu melihat bahwa gaya hidup dan perubahan peraturan di dalam ordo 
+mereka sudah tidak lagi sesuai dengan semangat hidup Francesco, yang selalu ingin hidup miskin. Mereka juga memandang kekayaan di dalam gereja sebagai 
+skandal yang memalukan. Akhirnya kelompok Fraticelli itu diumumkan sebagai kelompok _sesat_ oleh Paus Bonifasius VIII. Tetapi setelah itu Fraticelli malah 
+semakin berkembang! Celakanya, bukan semua kelompok yang menamakan diri 'Fraticelli' ini punya tujuan yang sama seperti para frater Fransiskan yang 
+memulai gerakan itu. Lebih celaka lagi, beberapa kelompok Fraticelli sengaja dibuat untuk menentang Paus. Inilah yang membuat kita harus mewaspadai gerakan itu, 
+meskipun — bagiku — bukan semuanya harus dipandang sesat."
+
+"Hm," kata Zhang Wuji sambil merenungkan uraian Pastor Barsauma dalam-dalam. "Ini mirip sekali dengan Hongjin Qiyi dan Ming Jiao di sini."
+
+Mata Pastor Barsauma berkedip sedikit, sebelum berkata, "Gongzi telah melihatnya? Berarti Allah sendiri yang membuat Gongzi melihat. Setelah ini Gongzi 
+akan melihat banyak hal lain yang terjadi di wilayah selatan dengan cara yang baru, dimulai dari situ. Semoga setelah ini Gongzi tahu apa yang harus dilakukan."
+
+Zhang Wuji berkata sambil tertawa dan mengusap kepala Ziying dengan lembut, "Pater, sekarang ini aku bahkan tidak tahu bagaimana harus mengajar anak ini. 
+Ibuku selalu mencemaskannya, dan ingin supaya aku sendiri yang mendidiknya."
+
+Saat itu Zhou Zhiruo datang bergabung bersama dengan Li Furen dan Pastor Giovanni, yang membawa kedua orang frater Fransiskan itu bersamanya. 
+
+Zhou Zhiruo berkata, "Aku tidak bisa mengijinkanmu membawa Ziying sendirian ke Zhongxing, kecuali jika kau juga mengajak Minmei. Bawa juga kedua adiknya, 
+Ziwu dan Zijian."
+
+Zhang Wuji dan Zhao Min kaget mendengar keputusan mendadak yang sama sekali di luar dugaan mereka itu. "Lalu bagaimana dengan kau sendiri?" tanya Zhang Wuji.
+
+{^eje]: Eje (Mongolia: ээж) adalah sebutan bagi seorang ibu dalam bahasa Mongolia.
+
+Tetapi Zhou Zhiruo ternyata tidak menanggapi pertanyaannya, dan berpaling kepada Zhao Min. "Meizi, sebaiknya kau ikut bersama Wuji Gege ke Zhongxing. 
+Biarkan aku tetap di sini bersama Eje[^eje]. Kami akan mendidik dan membesarkan Zihan dan Ziwen dengan sebaik-baiknya. Eje pasti akan membimbingku 
+menjadi seorang ibu yang baik. Kalian bisa datang menengok mereka kapan saja kalian punya waktu."
+
+Ini untuk pertama kalinya mereka mendengar Zhou Zhiruo memanggil Li Furen dengan sebutan 'Eje', yang berarti 'Ibu' dalam bahasa Mongolia. Bahkan Zhao Min 
+tak pernah menggunakan istilah itu. Mereka semua merasa ada sebuah perubahan penting yang luput dari perhatian mereka. Zhao Min bertanya, "Zhou Jiejie, 
+ada apa? Mengapa kau tiba-tiba aneh?"
+
+ 
 
 
 

@@ -878,7 +878,7 @@ Frater Andre berdehem, lalu berkata, "Hamba Yang Hina Dina ini biasa dipanggil F
 "Ah, ternyata Frater Andre adalah utusan dari Bapa Suci di Roma!" kata Zhao Min sambil tersenyum lebar.
 
 Frater Andre tertawa ringan dan berkata, "Sayangnya Hamba Yang Hina Dina ini belum sempat bertemu dengan Bapa Suci. 
-Aku diutus oleh Ordo Fransiskan."
+Aku diutus oleh Ordo Fransiskan. Dan syangnya lagi, sekarang ini Bapa Suci bukan tinggal di Roma, beliau ada di Avignon, Prancis."
 
 "Hm, jadi karena itulah Frater tinggal bersama dengan para pengungsi dari utara," kata Zhao Min lagi.
 
@@ -887,7 +887,8 @@ ternyata ia mengenal ajaran yang dianutnya. "Kelihatannya Xiao Furen juga seoran
 
 Zhao Min tertawa. "Frater, leluhurku memang penganut agama Kristen sebelum mereka pindah ke Zhongyuan ini. Tapi karena 
 Kubilai Khan dan istrinya, Chabi, akhirnya menganut agama Buddha Tibet, maka banyak orang mengikuti mereka, termasuk 
-leluhurku. Tapi tentu saja kami semua masih mengenal ajaran Kristen dan tradisinya."
+leluhurku. Tapi tentu saja kami semua masih mengenal ajaran Kristen dan tradisinya. Ibuku dibaptis di Gereja Latin sejak lahir, jadi ibuku masih tetap 
+penganut Kristen yang taat sampai sekarang."
 
 Zhou Zhiruo mendengar betapa fasihnya cara Zhao Min memanggil nama Frater Andre. Ia tertawa sambil berkata, "Meizi, rasanya 
 kau jauh lebih cocok untuk berbicara dengan An Shifu. Aku tidak berani menyebutkan namanya, aku takut lidahku keseleo, karena 
