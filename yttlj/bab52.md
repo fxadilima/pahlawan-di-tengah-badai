@@ -2,7 +2,7 @@
 
 ![Ilustrasi Bab 52](/assets/images/Mongoltroops.jpg "Perang saudara")
 
-Menjelang tahun baru 1360, menurut penanggalan Masehi, ibu mertua Zhang Wuji dan keluarganya sekali lagi mengadakan acara syukuran untuk merayakan 
+Menjelang tahun baru 1361, menurut penanggalan Masehi, ibu mertua Zhang Wuji dan keluarganya sekali lagi mengadakan acara syukuran untuk merayakan 
 ulang tahun pertama kedua anak Zhou Zhiruo, dan sekaligus menyambut Tahun Baru itu. Kebanyakan warga Kaifeng saat itu hanya merayakan Tahun Baru menurut 
 penanggalan Imlek, meskipun tidak asing dengan penanggalan Masehi, jadi perayaan itu termasuk baru bagi mereka.
 
@@ -271,7 +271,7 @@ Zhang Wuji mengulurkan kedua tangannya untuk menerima titah yang diserahkan Kasi
 lalu melirik ke sebelah kirinya. Dilihatnya Ah Xiu juga masih berlutut sambil menundukkan kepalanya tanpa berani bergerak. lalu mereka mendengar 
 suara Lihua berkata, "Hei, untuk apa kalian masih terus berlutut di situ?"
 
-Kasim He juga berkata, "Kalian belum berterima kasih atas kebaikan Huang Shang."
+Kasim He juga berkata, "Kalian belum berterima kasih atas kebaikan Huang Shang?"
 
 Mendengar hal itu, Zhang Wuji dan Ah Xiu segera mengucapkan terima kasih mereka dengan hormat. Lalu dengan agak ragu Zhang Wuji mengulurkan tangannya 
 untuk membantu Ah Xiu bangkit berdiri. Di luar dugaannya, Ah Xiu mengulurkan tangan kanan untuk menyambut tangannya, dan mereka bangkit bersama-sama.

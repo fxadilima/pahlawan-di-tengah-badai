@@ -1008,10 +1008,13 @@ kamar Zhao Min yang sedang melahirkan anaknya. Sekitar tiga jam kemudian barulah
 anak kembar identik, yang semuanya laki-laki. Mereka semua menyambut kelahiran anak-anak itu dengan gembira, dan saling berebut untuk mengucapkan 
 selamat kepada Li Furen atas kelahiran ketiga cucu kembarnya. 
 
-"Sepertinya Wuji Gege punya keluarga yang cenderung memiliki anak kembar," kata Zhou Zhiruo sambil tertawa. "Pantas saja Minmin selalu mengalami kesulitan 
-dengan kehamilannya. Untungnya dia sangat kuat."
+"Ini agak aneh, kenapa Wuji Gege selalu punya anak kembar?" kata Zhou Zhiruo. "Pantas saja Minmin selalu mengalami kesulitan dengan kehamilannya. Untungnya 
+dia sangat kuat."
 
-Katika mereka semua menengok Zhao Min di kamarnya, Jing'er, Ah Zhu dan Lingshan sedang menggendong masing-masing seorang bayi sambil tersenyum 
+"Tidak ada hubungannya dengan Wuji Gege kalian," kata Li Furen sambil tertawa. "Mungkin di keluargamu juga ada yang pernah melahirkan anak kembar, karena di keluarga 
+kami memang banyak. Soal melahirkan anak-anak kembar ini sepertinya dari pihak perempuan."
+
+Ketika mereka semua menengok Zhao Min di kamarnya, Jing'er, Ah Zhu dan Lingshan sedang menggendong masing-masing seorang bayi sambil tersenyum 
 lebar. "Meizi, kau tidak apa-apa?" tanya Zhou Zhiruo. 
 
 "Aku sangat lelah," kata Zhao Min sambil tersenyum lemah. "Anak-anak ini ingin membunuhku."

@@ -464,7 +464,7 @@ dan Zhao Min ikut menyanyikan lagu-lagu gembira, untuk menyambut kelahiran Juru 
 tetapi Zhou Zhiruo harus belajar menyanyikannya. Di malam Natal, mereka berdoa bersama di sekeliling istana, lalu menggantungkan kertas-kertas bertuliskan 
 harapan mereka di ranting-ranting pohon cemara itu. 
 
-Seminggu kemudian, mereka kembali berkumpul untuk merayakan Tahun Baru menurut kalender Masehi. Saat itu kelahiran anak Zhou Zhiruo hanya tinggal 
+Seminggu kemudian, mereka kembali berkumpul untuk merayakan Tahun Baru 1359, menurut kalender Masehi. Saat itu kelahiran anak Zhou Zhiruo hanya tinggal 
 menunggu waktu, tetapi ia tetap berkumpul di halaman istana bersama dengan para penduduk kota yang sedang bergembira. Di tengah pesta itu, Zhou Zhiruo 
 mengeluh sambil memegang perutnya, ternyata air ketubannya pecah. Mereka segera membawanya memasuki istana, lalu memanggil seorang wanita dari tempat 
 penampungan pengungsi yang sudah terbiasa membantu proses kelahiran.
@@ -485,7 +485,7 @@ Saat itu Frater Andre mengetuk pintu, lalu dipersilakan masuk. Ia tertawa gembir
 
 [^ying]: Ying yang diberikan oleh Zhao Min adalah 贏 (atau 赢), dan bukan Ying (tradisional 應 atau disederhanakan 应), yang secara literal berarti 'anak yang mandiri'. Nama Ziying (子贏) bisa diartikan sebagai 'pemenang' atau bahkan 'menang', yang lebih umum diberikan kepada anak laki-laki. Ini adalah nama anak Qin Shi Huang.
 
-Wanita yang menolong kelahiran kedua bayi itu berkata dengan gembira, "Kedua anak ini lahir di malam Tahun Baru, ini pertanda pertolongan Allah bagi kita 
+Wanita yang menolong kelahiran kedua bayi itu berkata dengan gembira, "Kedua anak ini lahir di Tahun Baru, ini pertanda pertolongan Allah bagi kita 
 semua!"
 
 Tiba-tiba Zhou Zhiruo berkata, "An Shifu, sudikah kau membaptis kedua anak ini?" Ia sudah mendengar tentang proses pembaptisan dari semua penganut Kristen 
@@ -992,7 +992,7 @@ berhiaskan pernak-pernik, yang umum dipakai oleh seorang wanita Mongolia. Sebuah
 Sepatu bot berwarna hitam melengkapi dandanannya sebagai seorang pemburu. Melihat penampilannya, para penjaga pintu gerbang kota tak ada yang merasa perlu 
 menanyakan identitasnya, dan membiarkannya lewat begitu saja.
 
-Ketika melewati pasar di pusat kota, ia menanyakan di mana Shaoli Junzhu tinggal, kepada seorang penjual makanan ringan. Tetapi ketika penjual 
+Ketika melewati pasar di pusat kota, ia menanyakan di mana Shaoli Junzhu tinggal kepada seorang penjual makanan ringan. Tetapi ketika penjual 
 makanan itu sedang sibuk menerangkan jalan ke arah rumah Ki Seung Nyang, Touba Yong yang sedang membawa segerobak bahan makanan bersama tiga orang 
 anak perempuan menyapanya, "Junzhu!"
 
@@ -1010,8 +1010,7 @@ Dan jangan pernah mengatakan apa-apa mengenai Jiaozhu. Aku tidak tahu bagaimana 
 
 Touba Yong bertanya, "Betulkah Frater membaptis anak-anak Zhou Xiangzhang?"
 
-"Ya," kata Zhao Min sambil tersenyum. "Mereka berdua lahir di Tahun Baru. Waktu itu semua orang begitu gembira, dan Zhou Xiangzhang meminta 
-Frater kalian membaptis mereka."
+"Ya," kata Zhao Min sambil tersenyum. "Mereka berdua lahir di Tahun Baru. Waktu itu semua orang begitu gembira, dan Zhou Xiangzhang meminta Frater kalian membaptis mereka."
 
 Saat itu mereka sudah sampai di luar pagar rumah. Touba Yong mendorong gerobaknya mendekati pintu dapur, dan mulai menurunkan bahan-bahan makanan 
 yang tadi dibelinya. Zhao Min berkata sambil tertawa, "Aku ingin makan kari daging kambing untuk makan siang!"

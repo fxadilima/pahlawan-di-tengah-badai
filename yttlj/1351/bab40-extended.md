@@ -1,19 +1,9 @@
----
-layout: page
-title: Bab 40 Extended
-author: FX. Adi Lima
-description: Ringkasan Bab 40 Golok Pembunuh Naga, Sisipan Pertama
----
+# Bab 40 Extended
 
-## Titisan Buddha Dan Kaisar Baru
-
-<div class="w3-bar">
-    <a class="w3-btn w3-bar-item w3-hover-black w3-left" href="intro"><i class="fa fa-home"></i> Intro</a>
-    <a class="w3-btn w3-bar-item w3-hover-black w3-left" href="/parts/people">Daftar Karakter Utama</a>
-    <a class="w3-btn w3-bar-item w3-hover-black w3-right" href="bab40-A">Next</a>
-</div>
 
 ![Ilustrasi Bab 40 Extended](/assets/images/han-shantong-1.jpg)
+
+## Titisan Buddha Dan Kaisar Baru
 
 Saat itu adalah tahun 1355, menurut kalender Gregorian. Gerakan pemberontakan yang diprakarsai Ming Jiao di bawah 
 pimpinan Zhang Wuji telah berkembang sedemikian rupa, dan membangkitkan gerakan serupa di berbagai tempat untuk

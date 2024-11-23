@@ -820,11 +820,11 @@ Meskipun tidak sepenuhnya memahami alasannya, Zhou Zhiruo dan Zhao Min menuruti 
 
 Ketika melihat Zhang Wuji juga bermaksud mengikuti sikap itu tanpa disuruh, kedua pastor itu buru-buru mencegahnya. Pastor Barsauma berkata, "Zhang Jiaozhu, 
 di sini Ming Jiao seringkali disalahpahami sebagai umat dari gereja Kristen, dan di banyak tempat di mana umat dari pihak kita memang sedikit, dan para anggota Ming Jiao 
-sendiri dimusuhi, seringkali mereka juga berkumpul bersama kami. Tetapi dari sisi kepemimpinan, Zhang Jiaozhu harus dianggap setara dengan Patriark kami 
-atau Uskup bagi Zhongyuan ini. Bagaimana kami bisa memberikan pengajaran kepada Zhang Jiaozhu?"
+sendiri dimusuhi, seringkali mereka juga berkumpul bersama kami. Tetapi dari sisi kepemimpinan, Zhang Gongzi harus dianggap setara dengan Patriark kami 
+atau Uskup bagi Zhongyuan ini. Bagaimana kami bisa memberikan pengajaran kepada Zhang Gongzi?"
 
-Zhang Wuji bisa memahami dengan baik kata-kata Pastor Barsauma yang diucapkan dalam bahasa Han yang canggung itu, dan hal ini membuatnya heran. Apa yang 
-disebutkan Pastor Barsauma itu sama sekali baru baginya. Tetapi akhirnya ia menyadari, bahwa para anggota Ming Jiao seperti Torebeg dan Elbeg, bersama semua 
+Zhang Wuji bisa memahami dengan baik kata-kata Pastor Barsauma yang diucapkan dalam bahasa Han itu, dan hal ini membuatnya heran. Apa yang disebutkan 
+Pastor Barsauma itu sama sekali baru baginya. Tetapi akhirnya ia menyadari, bahwa para anggota Ming Jiao seperti Torebeg dan Elbeg, bersama semua 
 anak buah mereka yang menganut ajaran Ming Jiao lainnya, selama ini ternyata bernaung di bawah lindungan gereja Kristen terdekat untuk menghindari tudingan 
 bahwa mereka telah bersekutu dengan kaum pemberontak, karena Ming jiao di Zhongyuan memang selalu dikaitkan dengan Hongjin Qiyi, yang terang-terangan memberontak 
 melawan pemerintah.
@@ -945,17 +945,273 @@ Ziwu dan Zijian."
 
 Zhang Wuji dan Zhao Min kaget mendengar keputusan mendadak yang sama sekali di luar dugaan mereka itu. "Lalu bagaimana dengan kau sendiri?" tanya Zhang Wuji.
 
-{^eje]: Eje (Mongolia: ээж) adalah sebutan bagi seorang ibu dalam bahasa Mongolia.
-
 Tetapi Zhou Zhiruo ternyata tidak menanggapi pertanyaannya, dan berpaling kepada Zhao Min. "Meizi, sebaiknya kau ikut bersama Wuji Gege ke Zhongxing. 
-Biarkan aku tetap di sini bersama Eje[^eje]. Kami akan mendidik dan membesarkan Zihan dan Ziwen dengan sebaik-baiknya. Eje pasti akan membimbingku 
+Biarkan aku tetap di sini bersama Mama. Kami akan mendidik dan membesarkan Zihan dan Ziwen dengan sebaik-baiknya. Mama pasti akan membimbingku 
 menjadi seorang ibu yang baik. Kalian bisa datang menengok mereka kapan saja kalian punya waktu."
 
-Ini untuk pertama kalinya mereka mendengar Zhou Zhiruo memanggil Li Furen dengan sebutan 'Eje', yang berarti 'Ibu' dalam bahasa Mongolia. Bahkan Zhao Min 
-tak pernah menggunakan istilah itu. Mereka semua merasa ada sebuah perubahan penting yang luput dari perhatian mereka. Zhao Min bertanya, "Zhou Jiejie, 
-ada apa? Mengapa kau tiba-tiba aneh?"
+Mereka semua merasa ada sebuah perubahan penting yang luput dari perhatian mereka. Zhao Min bertanya, "Zhou Jiejie, ada apa? Mengapa kau tiba-tiba aneh?"
 
- 
+Zhou Zhiruo tersenyum. Wajahnya tampak sangat tenang ketika berkata, "Sejak tadi kita sudah mendengar Pastor Giovanni mengatakan tentang 'taat'. Aku teringat 
+pada beberapa orang yang kuanggap sebagai ibuku sejak ibuku sendiri meninggal. Yang pertama adalah Shifu, yang sekarang sudah meninggal. Shifu mengajarku 
+dengan keras, dan juga mengajarkan tentang ketaatan dengan sangat keras, seperti itulah caraku mengajar semua anak-anak kita. Tetapi seperti kita lihat 
+sendiri, mereka hanya _takut_ kepadaku, dan bukan sungguh-sungguh taat, persis sama seperti aku, Ding Shijie dan yang lain takut kepada Shifu. Yang kedua 
+adalah Bibi Qi, dia dengan salah satu cara membuatku merasa bisa menceritakan apa saja kepadanya. Tetapi dia hanya sebentar bersama kita di Wudang, setelah 
+itu kita hanya bisa menghubunginya melalui surat-surat, dan itu tidak cukup bagiku. Akhirnya aku bertemu dengan Mama. Sejak awal Mama memperlakukan aku sama 
+seperti kau sendiri, sebagai anaknya, dan mulai saat itu aku mulai merasa memiliki seorang ibu, karena akhirnya kita tinggal bersamanya di sini sampai sekarang.
+Mama selalu mengajak kita berziarah ke makam Xianyi Zhuangsheng Huanghou di Gereja Timur, dan mendengarkan apa saja yang diceritakan oleh semua orang di situ 
+tentang apa yang dilakukannya. Baru hari ini aku sungguh-sungguh mengerti mengapa Mama melakukannya. Dan aku juga ingin melengkapi apa yang kumulai sejak 
+awal, supaya setelah ini aku sendiri mulai mengikuti jalan hidupku sendiri setelah aku bertekad memperbaiki semua kesalahanku, yang menyebabkan banyak 
+orang menjadi korban." Ia mengalihkan pandangannya kepada Pastor Barsauma, dan bertanya, "Pater, sudikah membaptis aku di malam Natal nanti?"
+
+Pastor Barsauma terkejut, tetapi sekaligus gembira. Ia bertanya, "Furen, sudahkah memikirkan baik-baik keputusan ini?"
+
+Semua orang tampak terkejut, kecuali Li Furen. Pastor Giovanni ingin bertanya, tetapi Li Furen berkata mendahuluinya, "Pater, ini adalah keputusan 
+Zhiruo, sesuai dengan apa yang diyakininya. Tak seorang pun berhak mencampurinya. Yesus sendiri yang telah membimbingnya untuk membuat keputusan itu. 
+Aku yakin inilah yang diinginkan Allah bagi dia."
+
+[^ruoshui]: Ruo Shui (弱水) atau Hei Shui (黑水) adalah nama sungai di Ganzhou, yang secara literal berarti 'Sungai Hitam'. Sungai ini juga disebut Sungai Ejina (額濟納河 atau 额济纳河).
+
+Tak seorang pun menanyakan masalah itu lagi setelah mendengar ucapan Li Furen. Di malam Natal 1360, Pastor Barsauma melaksanakan baptisan Zhou Zhiruo 
+di Sungai Ejin[^ruoshui], yang tak jauh dari Gereja Timur, di mana mereka akan merayakan Natal. Sebenarnya baptisan itu tidak mutlak harus dilakukan di sungai itu, 
+tetapi Zhou Zhiruo memohon supaya Pastor Barsauma melakukannya dengan cara itu. Bukan seperti di Gereja Latin, ritual itu juga disertai dengan 
+pengurapan minyak, lalu membenamkan Zhou Zhiruo di dalam air sungai itu sebanyak tiga kali berturut-turut, dan dikukuhkan ketika Zhou Zhiruo meletakkan 
+kedua tangannya di atas altar sambil mengikuti doa yang dibacakan oleh Pastor Barsauma. 
+
+[^alopen]: Alopen (阿羅本) adalah misionaris Gereja Timur yang berasal dari berkarya di era Dinasti Tang.
+[^jingjiao-jindian]: Jing Jiao Jing Dian (景教經典) adalah kumpulan tulisan mengenai pekerjaan misionaris Gereje Timur di era Dinasti Tang yang bernama Alopen, seorang Uskup dari Mesopotamia.
+[^jingjing]: Jing Jing (景淨) atau Adam, adalah seorang biarawan Gereja Timur yang lahir dan dibesarkan di Dinasti Tang. Ayahnya adalah Yazedbozid, atau Yisi (伊斯), seorang Syria yang ikut serta dalam peperangan melawan Pemberontakan An Lushan.
+[^jingjiao]: Jing Jiao (景教) adalah sebutan bagi agama Kristen dari Gereja Timur, yang seringkali disebut sebagai 'Gereja Nestorian', dan disalahartikan sebagai penganut Nestorianisme.
+
+"Mulai sekarang, Furen akan dipanggil Ariana," kata Pastor Barsauma sambil tersenyum setelah menyelesaikan rangkaian ritual baptisan itu, yang lebih 
+lama ketimbang acara baptisan Gereja Latin. Ia kemudian menyerahkan beberapa jilid buku kepada Zhou Zhiruo sambil berkata, "Furen, ini adalah Jingjiao Jingdian[^jingjiao-jingdian], 
+yang pasti akan sangat menarik bagi Furen. Tidak perlu dikembalikan, karena ini adalah milikku sendiri. Sayangnya aku belum menemukan terjemahan Kitab Suci kita 
+dalam bahasa Han. Sebagian besar dari kitab-kitab ini ditulis oleh seorang biarawan yang bernama Jingjing[^jingjing], dan oleh beberapa orang kitab-kitab ini disebut 'Sutra Yesus'."
+
+Zhou Zhiruo menerima semua kitab itu dengan penuh hormat sambil berkata, "Pater, kitab-kitab ini tak ternilai harganya. Bagaimana aku bisa menerimanya?"
+
+"Sebenarnya sejarah gereja kita di Zhongyuan bisa dibaca di sebuah prasasti raksasa yang tadinya ada di Chang'an, tapi sekarang prasasti itu hilang," kata Pastor Barsauma 
+sambil tersenyum. "Tulisan di dalamnya juga ditulis oleh Jingjing, tetapi tempat itu jauh dari Ganzhou, dan tentu saja buku-buku ini jauh lebih lengkap. 
+Jika Furen menemui kesulitan untuk memahami isinya, aku siap menjelaskan menurut apa yang kuketahui, kapan pun Furen menanyakannya."
+
+Zhou Zhiruo sekali lagi mengucapkan terima kasih, lalu membungkus semua kitab itu dengan selembar kain tebal, dan mendekapnya erat-erat.
+
+Jing'er dan Lu Xian buru-buru menyelimuti Zhou Zhiruo dengan mantel bulu tebal. Tetapi Zhou Zhiruo sama sekali tidak nampak kedinginan. Ia berkata sambil tersenyum, 
+"Aku tidak apa-apa."
+
+Ia mengganti pakaiannya yang basah kuyup dengan pakaian kering yang telah disiapkan oleh Zhao Min, lalu mengikuti perayaan Natal bersama di Gereja Timur. 
+Karena umat dari Gereja Latin di wilayah itu sedikit, mereka merayakan Natal bersama-sama, dan Pastor Giovanni memimpin perayaan Natal itu, dengan menampilkan 
+sebuah acara drama tentang kelahiran Yesus, yang dimainkan oleh beberapa anak muda. Drama itu tentu saja sangat sederhana, karena sedikitnya umlah pengikut 
+Kristen saat itu.
+
+Di dalam hirarki Gereja Timur, seorang pastor bisa saja menikah, asalkan pernikahan itu sudah terjadi sebelum pentahbisannya sebagai pastor. Pastor Barsauma 
+mengajak keluarganya untuk berkenalan dengan Zhang Wuji setelah ritual pembaptisan itu selesai. Istrinya, Rebqah, berusia tiga puluhan dan berasal dari 
+Karbala. Mereka dikarunia seorang anak laki-laki yang saat ini berusia sepuluh tahun dan seorang anak perempuan yang berusia enam tahun. Kedua anak itu menyapa 
+Zhang Wuji dengan ramah dalam bahasa Han yang sempurna.
+
+Ketika mereka tiba pada liturgi Ekaristi, umat dari Gereja Latin dipisahkan ke dalam kemah tersendiri, yang sudah disiapkan sebelumnya. Gereja Timur 
+memakai Ritual Konstantinopel, dan memakai Roti Beragi, yang tidak sama dengan hosti yang dipakai di dalam Gereja Latin. Untuk pertama kalinya Zhou Zhiruo menerima 
+komuni yang diberikan oleh Pastor Barsauma. Semua anak-anak mereka mengikuti Li Furen untuk menerima tanda salib dari Pastor Giovanni.
+
+Mereka semua merayakan malam Tahun Baru 1361, menurut penanggalan Masehi, dengan lebih akrab, karena tidak ada lagi perbedaan antara umat dari Gereja Timur maupun 
+Latin. Selain itu, acara itu juga bisa diikuti oleh semua orang yang ingin merayakannya.
+
+Zhang Wuji bertemu dengan Yen Shao, yang hadir dalam acara Tahun Baru yang mereka adakan bagi semua warga di sekitar tempat tinggal keluarganya. Ia menyapa 
+semua orang dengan ramah sambil menyalami Li Furen sebagai tuan rumah acara itu. "Zhang Jiaozhu, senang sekali melihatmu di sini!"
+
+Zhang Wuji mengeluarkan beberapa lembar kertas dari dalam sakunya, lalu memberikannya kepada Yen Shao sambil berkata, "Ada titipan surat dari anak-anak 
+Yen Xiansheng dari Xiangyang. Mereka ternyata tidak ikut bersama para anggota kami yang pergi ke Fujian."
+
+Yen Shao sangat gembira, lalu menyerahkan surat-surat itu kepada istrinya. Ia sendiri berkata, "Kami pernah menerima surat-surat mereka dari Ah San sebelum ini.
+Tapi sekarang Jiaozhu membawanya sendiri."
+
+"Aku tidak tahu kau sudah mengenal Yen Xiansheng," kata Zhao Min sambil menawarkan _airag_ untuk Yen Shao dan istrinya. "Yen Xiansheng tinggal tidak jauh 
+dari sini. Anak-anak sudah cukup akrab dengan Yen Furen."
+
+[^mao]: Mao (帽) = topi.
+
+Saat itu Ziwen memang sedang berlari menghampiri istri Yen Shao sambil tertawa riang dan melambai-lambaikan topi kecil hadiah dari neneknya. 
+"Mao[^mao], mao, mao!" katanya. 
+
+[^toortsog]: Topi yang dimaksud itu disebut _toortsog_ dalam bahasa Mongolia. Menurut adat istiadat Mongolia, topi itu memang hanya untuk anak perempuan, jadi Lu Xian menganggapnya istimewa, karena hanya Ziying sendiri anak perempuan dalam keluarga itu.
+
+Lu Xian yang memegangi tangan kanannya memberikan sebuah topi lain kepada Ziying, yang tidak pernah menjauh dari sisi ayahnya. "Ying'er, kau harus 
+berterima kasih kepada Wai Zumu. Topi ini dibuatnya lebih istimewa dari yang lain.[^toortsog]"
+
+Ziying mengacung-acungkan topi itu sambil berseru dengan gembira. Zhao Min memakaikan topi baru itu di atas kepalanya sambil tertawa. "Tentu saja dia sangat 
+istimewa, karena hanya dia satu-satunya anak perempuan di sini," katanya. "Belakangan ini Mama sangat memanjakan dia."
+
+"Karena sebentar lagi kita harus membawanya pergi," kata Zhang Wuji sambil mengangkat Ziying untuk duduk di atas bahunya, yang membuat anak itu berseru-seru 
+kegirangan. Tetapi ayahnya berkata, "Sekarang ucapkan terima kasih kepada Wai Zumu!"
+
+Zhang Wuji membawanya kepada Li Furen, dan menyuruh Ziying mengucapkan terima kasih. Kali ini anak itu mengucapkan terima kasih sambil mencium pipi 
+neneknya dengan manis. Li Furen berkata, "Wuji, kalian harus cepat kembali ke Yinchuan setelah ini. Kau sudah lebih dari seminggu di sini. Tidak boleh 
+menempatkan urusan pribadi di atas kepentingan rakyat."
+
+"Yuemu benar," kata Zhang Wuji. "Kurasa pagi-pagi sekali kami akan berangkat. Wuji akan lebih sering menyuruh Ah Da atau Ah Er datang ke sini membawa kabar 
+dari kami semua. Sepertinya jalan menuju ke sini dari Yinchuan cukup aman."
+
+[^honghao]: Hong Hao adalah seorang diplomat dari Dinasti Song.
+
+Istri Yen Shao berkata, "Zhang Jiaozhu, sayangnya kami belum sempat menunjukkan penemuan yang cukup penting bagi kalian selama kami ada di sini. 
+Hong Hao[^honghao] memang mengatakan bahwa kebanyakan penduduk di sini menganut agama Buddha, tetapi kami menemukan beberapa tulisan di dinding yang 
+mengatakan bahwa sebelumnya kebanyakan penduduk dari suku Uyghur di sini menganut ajaran Ming Jiao!"
+
+Li Furen yang dilahirkan di Xinjiang berkata, "Itu pastilah para penduduk yang nenek moyangnya berasal dari Xinjiang. Sebelumnya memang begitu, tetapi kemudian 
+Xixia menyerang mereka, dan akhirnya semuanya menjadi Buddha."
+
+Dalam perjalanan ke Ganzhou, Zhang Wuji dan Ah Da sempat menemukan beberapa gua yang mirip dengan apa yang mereka temukan di Wuzhong, dan ketika memeriksanya, 
+mereka juga menemukan beberapa petunjuk yang menandakan bahwa para penganut Ming Jiao sempat mengunjungi tempat itu di jaman kuno. Sekarang ia baru mengerti 
+bagaimana peninggalan-peninggalan itu bisa ada di situ.
+
+[^erzong-jing]: Erzong Jing (二宗经) adalah teks yang ditulis oleh pelopor ajaran Manikeisme, atau Ming Jiao, yaitu Mani. Aslinya ditulis dalam bahasa Persia Kuno, berjudul _Shabuhragan_. Tentunya sudah diterjemahkan ke dalam bahasa Han.
+
+"Aku pernah mendengar bahwa Uskup Ming Jiao — Mihr-Ohrmazd — mengikuti pemimpinnya, Mozak, datang ke Zhongyuan di era Dinasti Tang, dan diterima oleh Wu Zetian," kata Zhang Wuji. 
+Dia mempersembahkan sebuah buku yang berjudul Erzong Jing[^erzong-jing], yang akhirnya menjadi sangat terkenal saat itu. Tetapi kelihatannya dalam cerita itu mereka mengajarkan bahwa 
+Mani adalah titisan dari Laozhi, ini bagiku adalah salah. Seperti ketika Han Lin'er dikatakan sebagai titisan Buddha Maitreya, aku kuatir hal samacam ini hanya dipakai untuk 
+menarik banyak pengikut, lalu menyuruh mereka melakukan tindakan yang berbahaya."
+
+Sebenarnya Zhang Wuji mendengar cerita itu dari Xiao Zhao, dan baru diceritakan belakangan ini, setelah mereka menikah dan punya banyak waktu untuk saling bercerita. 
+"Tetapi Ming Jiao di jaman Dinasti Tang, khususnya ketika Kaisar Wuzong berkuasa," kata Li Furen. "Sebenarnya saat itu Wuzong ingin melarang _semua_ ajaran agama asing, 
+termasuk ajaran leluhur Yen Xiansheng. Para penganut Ming Jiao yang paling banyak saat itu adalah suku Uyghur, yang datang dari Xinjiang. Wuzong menyita semua barang dari 
+biara Ming Jiao, kuil-kuil dan kitab-kitab mereka juga dibakar. Para biarawan dan biarawati Ming Jiao dihukum mati, termasuk tujuh puluh biarawati di Chang'an. 
+Para biarawan itu disuruh memakai _hanfu_ — pakaian suku Han — dan disuruh mencukur rambut mereka. Para penganut Ming Jiao lainnya diharuskan kembali ke kampung 
+halaman mereka dan membayar pajak, yang orang asing dipulangkan ke negara asalnya. Jadi pada saat itu mereka _tidak_ melakukan tindakan berbahaya, tetapi 
+malah dianiaya."
+
+Zhang Wuji menganggukkan kepalanya. "Cerita ini Wuji juga pernah mendengarnya," katanya. Ia tidak mengatakan bahwa dirinya ikut mendorong orang melakukan 
+pemberontakan melawan Dinasti Yuan, sedangkan para imam dan biarawan Ming Jiao di masa lalu itu tidak. Tetapi tanpa sadar ia lalu menghela nafas.
+Ia berkata, "Yuemu, Wuji tahu apa yang harus dilakukan di Yinchuan, tetapi tidak pasti mengenai tempat lain." 
+
+"Lakukan satu per satu," kata Li Furen. "Jangan terburu-buru, karena hal semacam ini tidak bisa dibereskan dalam waktu singkat. Ajaran yang mendorong mereka 
+ke arah itu memang sudah ada sejak sebelum kau sendiri dilahirkan, dan mereka hanya memanfaatkan nama besarmu untuk menarik banyak peminat. Yang terjadi kemudian 
+memang tidak mungkin kau kendalikan."
+
+Zhou Zhiruo menggandeng tangan Zihan dan Ziwen mendekat, lalu mengeluarkan selembar kertas dari sakunya. Ia berkata kepada Rebqah, "Furen, aku beberapa hari ini 
+mengutip tulisan dari salah satu buku yang diberikan Pater itu, kurasa ini cukup penting, semoga Pater tidak keberatan."
+
+Saat itu Pastor Barsauma sedang bercakap-cakap dengan beberapa orang lain agak jauh dari tempat mereka mengobrol. Rebqah tersenyum sambil berkata, 
+"Tentu saja boleh. Apa yang kau kutip?"
+
+"Buku itu mengatakan bahwa ada prasasti seperti yang sempat dikatakan Pater — di sekitar Chang'an — yang berisi banyak tulisan tentang Jingjiao[^jingjiao], 
+dan saat ini prasasti itu hilang," kata Zhou Zhiruo. "Aku hanya ingin menitipkan hal ini, jika Wuji Gege kebetulan lewat di sekitar situ, barangkali saja 
+menemukan sesuatu yang berkaitan dengan hal ini. Buku itu juga menyebutkan salah satu peninggalan Dinasti Tang lainnya, yang ada di sekitar Luoyang, 
+dan sekarang ini juga dipindahkan ke tempat lain, tetapi tidak disebutkan ke mana."
+
+"Oh, itu memang penting," kata Rebqah. "Kau benar. Jika kebetulan lewat di sekitar Chang'an dan Luoyang, kita bisa saja mencarinya. Tapi kami sendiri 
+cukup ragu apakah kita akan menemukannya, karena tampaknya barang-barang itu sengaja disembunyikan dari pemerintah saat itu. Kaisar Wuzong melarang _semua_ 
+ajaran asing, jadi agama Kristen juga termasuk di dalamnya. Buku itu sendiri ditulis berdasarkan cerita warisan dari generasi ke generasi, untuk mengingatkan 
+kita bahwa sebelumnya ada benda-benda ini, dan juga peninggalan-peninggalan penting lainnya, khususnya terjemahan dari kitab-kitab yang sangat berharga. 
+Ayah Jingjing adalah orang Syria yang ikut membantu melawan Pemberontakan An Lushan, tetapi Jingjing sendiri lahir dan dibesarkan di sini, jadi dia pasti 
+menulis banyak kitab dalam bahasa Han untuk diwariskan kepada kita semua, dan anak-cucu kita."
+
+Yen Shao berkata, "Hal semacam ini juga banyak di sekitar kita, karena di sini banyak gua-gua kuno yang saat ini disegel. Kita tidak bisa memasukinya. 
+Aku sangat yakin di dalam situ kita pasti akan menemukan banyak sekali peninggalan yang tak ternilai harganya. Bukan tidak mungkin ada juga yang menceritakan 
+tentang nenek moyang kami."
+
+Zhang Wuji menerima catatan Zhou Zhiruo dan menyimpannya di dalam saku jubahnya, lalu berkata kepada Yen Shao, "Dalam perjalanan dari Xianyang ke Yinchuan, 
+kami juga menemukan gua-gua seperti itu di Xihaigu, tetapi tidak disegel. Aku pasti akan menyelidiki semuanya. Mungkin saja kita menemukan sesuatu yang 
+sangat penting di situ."
+
+Sementara itu, di Kaifeng, Jendral Chaghan Temur berkali-kali mengamati kekalahan pasukan Dinasti Yuan di Shandong, dan belum bertindak sama sekali. 
+Ia sedang berusaha membaca apa yang sedang terjadi di istana dari laporan-laporan Yin Li dan Wang Baobao. Perintah tegas dikirimkan kepada Ah Xiu dan 
+Zhang Wuji supaya mereka juga tidak bergerak ke arah Shandong.
+
+Mendengar kabar ini, Ah Xiu menghabiskan lebih banyak waktu untuk memata-matai wilayah Fujian seperti sebelumnya, dan memerintahkan Wei Yixiao yang 
+sempat disuruhnya pergi ke Shandong untuk kembali ke Xiangyang. Ah Xiu menemukan banyak fakta menarik melalui mata-mata yang ditempatkanya di Hangzhou 
+dan Nanjing. Ma Xiuying, yang sebelumnya selalu berkirim surat dengan Zhou Zhiruo atau Zhao Min, sekarang mengalihkan surat-suratnya ke Xiangyang, dan 
+hanya bisa berkomunikasi dengan Zhou Zhiruo melalui Ah Xiu.
+
+Setelah membaca semua surat Ma Xiuying yang dikirimkan melalui burung merpati, Ah Xiu hanya tersenyum samar sambil menyerahkan surat-surat itu untuk dibaca 
+ibunya dan semua orang yang mengikuti rapatnya.
+
+"Beberapa kabar ini sia-sia saja jika dikirimkan kepada Zhou Zhiruo," katanya. "Sekarang ini dia hanya sibuk berdoa menurut agama Kristen dan membaca kiab-kitab. 
+Sisa waktunya dihabiskan untuk menemani para pengungsi yang ada di Ganzhou bersama Li Mama, dan juga mengurus anak-anaknya yang tinggal bersama mereka. 
+Mereka berdua tidak tertarik membicarakan urusan politik, apalagi perang."
+
+Bei Jinyi berkata setelah membaca surat-surat itu, "Lagipula, Zhiruo memang tidak memahami urusan pajak ini. Aku ikut bahagia untuk Zhiruo. Sejak aku mengenalnya, 
+tak pernah kulihat Shifu membiarkan dia menjalani kehidupan yang diinginkannya seperti sekarang ini. Memang betul dia sendiri berbakat untuk mempelajari kungfu 
+Emei Pai, tetapi Shifu memaksanya, dan membuatnya berlatih lebih keras ketimbang kami semua. Dia tidak ingin menjadi ketua Emei, tapi Shifu juga memaksanya."
+
+Yu Daiyan berkata, "Tapi isi surat ini penting. Zhu Yuanzhang sekarang ini melibatkan dua orang penting yang dulunya adalah pejabat Dinasti Yuan, yaitu 
+Song Lian dan Liu Bowen. Sepertinya kebijakannya untuk mencetak uang sendiri juga adalah ide salah satu dari mereka. Dengan langkah ini semakin jelas bahwa 
+Zhu Yuanzhang bermaksud melepaskan diri dari kelompok kita. Dia sudah pasti tidak tertarik untuk meneruskan ide-ide Hongjin Qiyi, tetapi masih tetapi menghargai 
+kepemimpinan Wuji di dalam Ming Jiao."
+
+"Tiga," kata Zhang Songxi. "San Ge jangan lupa, masih ada Li Shanchang. Dia sebelumnya adalah tuan tanah di Dingyuan, yang akhirnya ditaklukkan Zhu Yuanzhang. 
+Coba kita telusuri baik-baik langkah mereka. Setiap kali Zhu Yuanzhang menaklukkan wilayah baru, pastilah Li Shanchang juga menarik birokrat baru untuk 
+menangani wilayah itu. Mereka mencontoh apa yang kita kerjakan di Kaifeng dan Xiangyang ini, khususnya Kaifeng. Mereka bukan memakai ide dasar Hongjin Qiyi 
+untuk menerbitkan sejumlah hukum baru — seperti yang dilakukan oleh Liu Futong, dan gagal. Mereka pada dasarnya memakai hukum yang berdasarkan ajaran Kongzi, 
+seperti yang diterapkan oleh Kaisar, tetapi dengan sedikit perubahan dalam penerapannya. Di lain pihak, dia masih tetap memperlakukan Liu Futong dan Han Lin'er 
+dengan baik di wilayahnya. Ini sangat cerdik."
+
+Bei Jinyi mendecakkan lidah dengan kesal, lalu berkata, "Mengenai Liu Bowen itu, Huanghou sudah sangat lama mengatakan supaya Wuji menariknya ke pihak kita, 
+tapi sampai sekarang dia masih dibiarkan di Nanjing."
+
+"Jangan kuatir," kata Ah Luo sambil tersenyum. "Liu Bowen kadang-kadang sembrono, dan terlalu banyak bicara. Dia suka meramal, dan seringkali ramalannya 
+benar. Dengan begitu lama kelamaan Zhu Yuanzhang akan tidak menyukainya jika dia mengatakan sesuatu yang tidak baik mengenai Zhu Yuanzhang sendiri. 
+Surat itu menceritakan bahwa Zhu Yuanzhang baru mendapat seorang anak dari wanita yang sangat cantik — putri dari Sun Heqing, yang adalah pejabat Dinasti Yuan. 
+Sun Heiqing sendiri tewas dalam perang, setelah mereka sekeluarga pindah dari Henan ke Jiangsu. Kelihatannya hal-hal semacam ini sering diceritakan 
+oleh Ma Xiuying kepada Zhou Zhiruo dan Minmin sejak dulu. Liu Bowen banyak mulut jika mengangkut gosip-gosip seperti ini. Orang yang suka meramal 
+seperti dia pasti sangat disukai Ma Xiuying. Kurasa Ma Xiuying juga akan minta pendapatnya mengenai anak yang baru lahir itu, dan juga ibunya."
+
+"Kadang-kadang Mama juga banyak mulut," kata Ah Xiu dengan nada datar.
+
+"Anak itu perempuan, diberi nama Yufeng," lanjut Ah Luo, mengabaikan komentar Ah Xiu. "Sepertinya dia lahir sebelum Zhu Di — anak laki-laki Zhu Yuanzhang yang keempat, 
+tapi rupanya Ma Xiuying menutupi berita tentang kelahirannya sebelum ini. Baru sekarang dia mengirim kabar ini kepada kita — sebetulnya untuk Zhiruo, tapi boleh kita baca. 
+Ini karena sekarang wanita itu sudah secara resmi diterima sebagai selir Zhu Yuanzhang. Menurut kalian mengapa sekarang Ma Xiuying rela membagi hal semacam ini, 
+sedangkan sebelumnya dia merahasiakannya?"
+
+"Ma Xiuying tahu bahwa Zhu Yuanzhang ingin melepaskan diri dari kita, tetapi Ma Xiuying sendiri _tidak_," jawab Ah Xiu dengan mantap. "Bagiku ini menandakan 
+bahwa Ma Xiuying bermaksud menjodohkan anak perempuan itu dengan salah satu anak laki-laki Wuji Gege, sebagai tanda persekutuan abadi."
+
+Wei Yixiao menepuk lututnya sendiri sambil berseru, "Wow, mengapa aku tidak memikirkan hal ini!"
+
+Zhang Songxi bergumam sendiri, "Mengapa dia bukan menjodohkan Zhu Biao dengan Ziying?"
+
+"Paman Zhang, pikiran kita sama!" kata Ah Xiu sambil tersenyum lebar. "Jika menjodohkan kedua anak itu, pastilah dia tidak usah membuka rahasia yang bagi 
+mereka memalukan itu."
+
+Ah Luo berkata. "Tentu saja tadinya dia bermaksud begitu, tapi kurasa Zhu Yuanzhang tidak setuju."
+
+"Mengapa?" tanya Yu Daiyan dan Bei Jinyi hampir bersamaan, mereka sangat heran. Saat ini hampir semua orang tahu bahwa meskipun baru berusia dua tahun, tetapi 
+Ziying memiliki kecantikan ibunya. Dari cerita Ah Da, Ah Er atau Ah San yang sering mengunjungi Xiangyang untuk bertukar berita, mereka semua tahu bahwa putri 
+tunggal Zhang Wuji itu sangat cerdas, pemberani, dan bisa menulis dalam bahasa Latin maupun bahasa Han di usia yang masih sangat kecil. Bakat dan kecantikan 
+semacam ini sungguh jarang ada di dunia ini. 
+
+"Aku sudah bilang, di Nanjing ada seorang Liu Bowen, yang pandai meramal," jawab Ah Luo dengan tenang. "Pasti Ma Xiuying pernah menanyakan hal-hal 
+semacam ini tentang anak-anak Zhang Wuji, dan ketika Liu Bowen mengatakan pendapatnya, Ma Xiuying bisa jadi sangat senang, tetapi Zhu Yuanzhang _justru_ tidak. 
+Dari kelima anak itu, Ziying adalah yang paling menonjol. Selain pintar dan cantik, dia juga sangat berani. Ini pertanda dia juga ambisius. Inilah yang tidak 
+disukai oleh Zhu Yuanzhang. Jika salah satu putranya menikah dengan Ziying, bukan tidak mungkin akhirnya putranya akan 'ditundukkan' oleh anak itu. Bukan hanya 
+itu, kemungkinan besar Ziying juga tidak akan takut melawan Zhu Yuanzhang sendiri."
+
+Ruangan itu seolah-olah meledak oleh gelak tawa, ketika semua orang menyadari bahwa apa yang dkatakan oleh Ah Luo memang masuk akal. 
+
+Zhang Songxi berkata, "Kalau begitu Ziying adalah jodoh yang paling tepat untuk anak-anak Zhu Yuanzhang yang mana pun. Tapi jika Ma Xiuying mengajukan anak 
+yang bernama Yufeng itu untuk menjadi istri salah satu anak laki-laki Wuji, aku cenderung tidak sependapat. Lebih baik kita pura-pura tidak tahu, dan mengabaikannya." 
+
+"Zhang Sixia tidak usah memusingkannya," kata Ah Luo lagi. "Mungkin saja saat ini Zhu Yuanzhang sendiri menyetujui keinginan Ma Xiuying itu, yang bagiku 
+sungguh-sungguh setulus hati ingin mengikat hubungan lebih erat dengan pihak kita. Tetapi nantinya Zhu Yuanzhang juga akan sadar, jika saat ini dia beranggapan 
+bahwa salah satu dari anak laki-laki itu lebih tidak berbahaya dibandingkan Ziying, maka dia sungguh _keliru_."
+
+Zhang Songxi tertawa. Sebelumnya Ah Luo sudah menceritakan kepada semua orang, bagaimana cara Zijian dan Ziwu mencoba mengambil pisau kakek mereka. 
+"Dari ceritamu, semua keponakanku ini sangat berbahaya, dan harus kita didik baik-baik, supaya mereka tidak tersesat," katanya. "Nenek mereka sungguh 
+pintar dan bijaksana, mengganti nama mereka sejak sangat dini."
+
+Yu Daiyan berkata. "Apa yang kalian bicarakan itu masih terlalu pagi. Anak-anak itu masih kecil."
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 

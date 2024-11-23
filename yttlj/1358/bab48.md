@@ -185,7 +185,7 @@ maksud?"
 
 "Tulis saja semuanya seperti itu," jawab Ki Seung Nyang dengan tenang.
 
-Permaisuri Bayan membutuhkan waktu sedikit lebih lama untuk menulis alimat-kalimat yang baginya sangat kaca itu dengan setepat-tepatnya, lalu 
+Permaisuri Bayan membutuhkan waktu sedikit lebih lama untuk menulis alimat-kalimat yang baginya sangat kacau itu dengan setepat-tepatnya, lalu 
 meniup-niup kertas itu untuk mengeringkan tinta, dan menyodorkannya untuk dibaca Ki Seung Nyang.
 
 "Hm, bagus sekali," kata Ki Seung Nyang sambil tersenyum. Ia kemudian mengambil sepotong kertas kecil dan menggambar sebuah kotak dengan huruf 
@@ -196,7 +196,7 @@ kertas di mejanya. "Sekarang kita bisa menyuruh Chunhua menyampaikannya kepada i
 
 "Ya," kata Ki Seung Nyang sambil tersenyum. "Siang ini juga putrimu tercinta sudah bisa membacanya."
 
-Permasirusi Bayan bertanya, "Karakter terakhir yang kau tulis di dalam kotak itu artinya apa?"
+Permaisuri Bayan bertanya, "Karakter terakhir yang kau tulis di dalam kotak itu artinya apa?"
 
 "Itu angka empat dalam huruf latin," jawab Ki Seung Nyang. "Semua anak-anak di Kaifeng yang membantu Ah Li sudah menguasai semua ini. Mereka akan 
 menerjemahkan semua isi lembaran yang terakhir itu menurut aturan ini. Semuanya ini sangat rumit, kau tidak perlu memusingkannya. Anak-anak itu 

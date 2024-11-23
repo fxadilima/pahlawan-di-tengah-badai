@@ -460,12 +460,11 @@ memang hanya Ah Li dan Lihua, tapi itu sudah cukup untuk membuatnya menjadi sung
 
 "Ada seorang lagi," kata Wang Baobao. "Adikku, Minlie sedang berada di sini. Aku akan memanggilnya sekarang juga."
 
-Tanpa menunggu jawaban Zhang Wuji ia segera keluar, lalu kembali lagi bersama seorang gadis yang kurang lebih seusia Zhao Min, tetapi tampak jauh 
-lebih lembut dan mengenakan pakaian khas suku Naiman.
+Tanpa menunggu jawaban Zhang Wuji ia segera keluar, lalu kembali lagi bersama seorang gadis kecil yang kurang lebih berusia enam tahun.
 
 Malam itu juga mereka meresmikan pernikahan Zhang Wuji dan Xiao Zhao dengan adat suku Han, yang sangat sederhana, bahkan tidak ada yang mengenakan 
-pakaian khusus sebagai pengantin. Lihua, Wang Minlie dan Yin Li menyaksikan peristiwa itu dengan senang. Bagi mereka pernikahan seperti ini 
-lebih menarik ketimbang pesta pernikahan mewah yang dihadiri oleh seluruh penduduk kota.
+pakaian khusus sebagai pengantin. Lihua dan Yin Li menyaksikan peristiwa itu dengan senang. Bagi mereka pernikahan seperti ini lebih menarik ketimbang 
+pesta pernikahan mewah yang dihadiri oleh seluruh penduduk kota.
 
 Setelah upacara sederhana itu selesai, Zhang Wuji merasa telapak tangan Xiao Zhao yang sedang digenggamnya sangat dingin. Ia berkata, "Tanganmu 
 dingin. Ini memang sudah larut malam, mungkin kau harus memakai mantel lebih tebal."
@@ -890,6 +889,8 @@ Dajie juga tidak berminat, karena itu dia pergi mencari Jiangjun di Xiangyang."
 Tetapi hampir semua orang sependapat dengan Zhang Wuji. Pastor Gabriele dan kelima biarawan lain mencatat penemuan itu baik-baik, berikut nama lokasi 
 dan cerita rakyat setempat. Zhang Wuji dan Xiao Zhao juga menyuruh Ah Zhu, Shangguan Wu dan adiknya untuk membuat catatan mereka sendiri mengenai 
 tempat ziarah itu.
+
+Frater Andre berkata, "Sayangnya tempat ini agak kering. Jika lama tidak turun hujan, kehidupan di sini pasti sulit."
 
 Karena mereka harus melalui jalan pegunungan yang dipenuhi batu-batu cadas dan cenderung gersang, maka mereka baru mencapai Wuzhong setelah berjuang 
 kurang lebih seminggu. Mereka beristirahat di luar kota itu agak lama, dan Zhang Wuji memberi kesempatan kepada semua orang untuk berjalan-jalan 
