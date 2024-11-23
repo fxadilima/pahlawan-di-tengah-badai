@@ -1036,7 +1036,7 @@ di depan batu nisannya.
 
 Setelah berjalan sekitar seratus meter dari situ, mereka tiba di depan makam yang besar. Di situ ada batu nisan dengan 
 kalimat yang agak panjang, dan mengandung sebuah syair tentang Yitian Jian dan Tulong Dao yang sudah akrab bagi mereka.
-Zhang Sanfeng telah menambahkan syair itu untuk mengenang Zhang Cuisan dan Yin Soso, yang lebih rela mati ketimbang
+Zhang Sanfeng telah menambahkan syair itu untuk mengenang Zhang Cuishan dan Yin Susu, yang lebih rela mati ketimbang
 mengatakan keberadaan Xie Xun dan Tulong Dao.
 
 Tanpa terasa air mata mengalir membasahi pipi mereka bertiga. Lalu mereka berlutut di hadapan batu nisan itu, dan 
@@ -1049,17 +1049,17 @@ Dari situ mereka beranjak ke perguruan yang didirikan oleh Zhang Sanfeng, dan di
 berlatih kungfu. Ming Yue bergegas melaporkan kedatangan mereka kepada Zhang Sanfeng. Setelah menyapa semua paman gurunya,
 Zhang Wuji mengajak Zhou Zhiruo dan Zhao Min ke ruang meditasi kakek gurunya, diiringi Ming Yue.
 
-Zhang Sanfeng tampak sangat sehat di usianya yang sudah melampaui seratus sepuluh tahun itu. Tidak tampak tanda-tanda
-pikun. Suaranya masih nyaring dan lantang seperti sebelumnya. Punggungnya masih tegak. Rupanya ia sedang menikmati teh
-hangat di pendopo, di luar ruang meditasinya yang sederhana, sambil memandang alam liar di sekitarnya dan membaca sebuah
-kitab.
+Zhang Sanfeng tampak sangat sehat di usianya yang sudah melampaui seratus tahun itu. Tidak tampak tanda-tanda pikun. Suaranya 
+masih nyaring dan lantang seperti sebelumnya. Punggungnya masih tegak. Rupanya ia sedang menikmati teh hangat di pendopo, 
+di luar ruang meditasinya yang sederhana, sambil memandang alam liar di sekitarnya dan membaca sebuah kitab.
 
 Melihat kedatangan mereka, ia sangat gembira. Ia menyimpan kitab yang sedang dipegangnya ke dalam saku jubahnya, lalu
 memberi isyarat kepada mereka yang sedang berlutut untuk segera bangkit.
 
-Tetapi Zhao Min buru-buru berkata, "Beberapa tahun sebelumnya [Xiao Nuzi](../daftar-istilah#xiao-nuzi "Xiao Nuzi (小女子) adalah sebutan bagi diri sendiri, yang diungkapkan oleh seorang perempuan muda, untuk merendahkan diri di hadapan orang lain.")
-telah bersikap kurang ajar dan terlalu berani di hadapan Zhang Zhenren. Xiao Nuzi sungguh tidak bisa membedakan apa yang 
-baik, dan secara sembrono dan tak tahu diri mencoba mengguncangkan Gunung Tai."
+[^xiao-nuzi]: Xiao Nuzi (小女子) adalah sebutan bagi diri sendiri, yang diungkapkan oleh seorang perempuan muda, untuk merendahkan diri di hadapan orang lain.
+
+Tetapi Zhao Min buru-buru berkata, "Beberapa tahun sebelumnya Xiao Nuzi[^xiao-nuzi] telah bersikap kurang ajar dan terlalu berani di hadapan Zhang Zhenren. 
+Xiao Nuzi sungguh tidak bisa membedakan apa yang baik, dan secara sembrono dan tak tahu diri mencoba mengguncangkan Gunung Tai."
 
 Mendengar hal ini, Zhang Sanfeng tertawa terbahak-bahak dan mengatakan bahwa ia tidak pernah menyimpan masalah itu 
 di dalam hatinya. Ketika Zhang Wuji menceritakan bahwa Zhao Min telah meninggalkan keluarganya, dan sekarang mengikutinya,
@@ -1079,22 +1079,19 @@ Mereka bertiga melihat karakter yang ditulis Zhang Sanfeng itu adalah '空', ali
 
 [^kong]: Kosong, atau dalam bahasa mandarin 'Kong' (空), seringkali dipakai oleh para pendeta Tao sepanjang masa sebagai bahan renungan. 
 
-Zhao Min merenungkannya sejenak, lalu membenturkan dahinya di atas tanah tiga kali sambil berkata, "Xiao Nuzi untuk
-selama-lamanya akan mengingat pengajaran Zhang Zhenren ini."
+Zhao Min merenungkannya sejenak, lalu membenturkan dahinya di atas tanah tiga kali sambil berkata, "Xiao Nuzi untuk selama-lamanya akan 
+mengingat ajaran Zhang Zhenren ini."
 
-Zhang Sanfeng bertanya lagi, "Kudengar saat ini situasi di luar sangat kacau. Peperangan terjadi di mana-mana. Apa
-yang akan kau lakukan mengenai hal ini?"
+Zhang Sanfeng bertanya lagi, "Kudengar saat ini situasi di luar sangat kacau. Peperangan terjadi di mana-mana. Apa yang akan kau lakukan mengenai hal ini?"
 
-Zhao Min menjawab, "Entah kubu pemerintah, atau kubu pemberontak, selain saling berperang, ternyata mereka juga berperang
-sendiri di dalam kubu masing-masing. Xiao Nuzi sudah memutuskan untuk tidak membela kubu mana pun. Jika sebuah peristiwa
-terjadi di depan mata, baru saat itulah Xiao Nuzi akan tahu bagaimana harus bertindak."
+Zhao Min menjawab, "Entah kubu pemerintah, atau kubu pemberontak, selain saling berperang, ternyata mereka juga berperang sendiri di dalam kubu masing-masing. 
+Xiao Nuzi sudah memutuskan untuk tidak membela kubu mana pun. Jika sebuah peristiwa terjadi di depan mata, baru saat itulah Xiao Nuzi akan tahu bagaimana harus bertindak."
 
-Sekali lagi Zhang Sanfeng menatap Zhao Min lekat-lekat dengan penuh perhatian setelah mendengar jawaban itu. Beberapa
-saat kemudian barulah ia berkata, "Nona, usiamu masih sangat muda, tetapi kau bisa melihat hal semacam ini. Wanita
-seperti dirimu sungguh jarang ada di dunia ini."
+Sekali lagi Zhang Sanfeng menatap Zhao Min lekat-lekat dengan penuh perhatian setelah mendengar jawaban itu. Beberapa saat kemudian barulah ia berkata, "Nona, usiamu masih 
+sangat muda, tetapi kau bisa melihat hal semacam ini. Anak perempuan seperti dirimu sungguh jarang ada di dunia ini."
 
-Zhou Zhiruo yang berlutut di sisi Zhao Min berkata, "Zhiruo telah melakukan banyak kejahatan, dan melupakan budi baik
-Zhang Zhenren selama ini. Zhiruo mengecewakan Zhang Zhenren, dan sekarang siap menerima hukuman."
+Zhou Zhiruo yang berlutut di sisi Zhao Min berkata, "Zhiruo telah melakukan banyak kejahatan, dan melupakan budi baik Zhang Zhenren selama ini. Zhiruo mengecewakan 
+Zhang Zhenren, dan sekarang siap menerima hukuman."
 
 Zhang Sanfeng memandangnya sambil mengerutkan dahinya. "Mengapa aku harus menghukummu?" tanyanya.
 
@@ -1142,12 +1139,13 @@ melihat rahasia yang tersimpan di dalam kedua senjata itu, ternyata bisa mendeng
 makna terdalam dari rahasia itu sendiri. Tidak sia-sia aku hidup di dunia ini sampai lebih dari seratus tahun.
 Kau masih muda, tapi bisa menarik kesimpulan seperti ini, betul-betul tidak sederhana."
 
+[^pindao]: Pindao (贫道) adalah sebutan seorang Pendeta Tao bagi dirinya sendiri.
+
 Ia kemudian berpaling kepada Zhou Zhiruo dan berkata, "Peristiwa di dunia ini saling berkaitan. Yang sudah berlalu,
-biarlah berlalu, tidak usah kau sesali sampai menyiksa diri. Tapi 
-[Pindao](../daftar-istilah#pindao "Pindao (贫道) adalah sebutan seorang Pendeta Tao bagi dirinya sendiri.") 
-tetap harus mengatakan sesuatu kepadamu. Jika kau mau berusaha untuk menyingkirkan segala dendam yang ada di hatimu,
-maka kau akan terhindar dari banyak masalah yang sebelumnya sudah terjadi. Jiu Yin Zhen Jing tidak bisa dilatih dengan
-terburu-buru. Kau melatihnya karena ingin membalas dendam, karena itu akhirnya kau tersesat."
+biarlah berlalu, tidak usah kau sesali sampai menyiksa diri. Tapi Pindao[^pindao] tetap harus mengatakan sesuatu kepadamu. 
+Jika kau mau berusaha untuk menyingkirkan segala dendam yang ada di hatimu, maka kau akan terhindar dari banyak masalah 
+yang sebelumnya sudah terjadi. Jiu Yin Zhen Jing tidak bisa dilatih dengan terburu-buru. Kau melatihnya karena ingin membalas dendam, 
+karena itu akhirnya kau tersesat."
 
 Zhou Zhiruo sangat terharu, dan bermaksud bangkit dari tempat duduknya untuk berlutut, tetapi Zhang Sanfeng memberi
 isyarat dengan tangannya supaya ia tetap duduk. Dengan berlinang air mata Zhou Zhiruo berkata, "Zhiruo pasti akan
@@ -1156,7 +1154,7 @@ menjabat sebagai ketua Emei Pai. Zhiruo mohon petunjuk dari Zhang Zhenren."
 
 Zhang Sanfeng menggelengkan kepalanya. "Pindao sekarang sudah terlalu tua. Sebagai gantinya Wuji akan membimbingmu
 untuk mempelajari Jiu Yin Zhen Jing dengan benar." Ia kembali berpaling kepada Zhang Wuji sambil berkata, "Tai Shifu
-mendengar bahwa saat ini di Haozhou kita punya seorang kaisar, dan di utara kita juga punya seorang kaisar. Sebetulnya
+mendengar bahwa saat ini di Bozhou kita punya seorang kaisar, dan di utara kita juga punya seorang kaisar. Sebetulnya
 apa yang terjadi?"
 
 Zhang Wuji dengan sedih menceritakan semua yang mereka alami setelah peperangan di Shaolin. Ia juga menceritakan
@@ -1177,11 +1175,11 @@ Zhao Min dan bertanya, "Nona kecil, apa yang kau lihat mengenai masalah Ming Jia
 Zhao Min agak terkejut mendengar pertanyaan itu, tetapi ia menjawab, "Xiao Nuzi tahu saat ini pemerintah sedang 
 sibuk berperang dengan Zhang Shicheng, dan meskipun kelihatannya Toqto'a unggul, tetapi kemenangannya masih 
 belum pasti, karena Xiao Nuzi tahu bahwa di dalam istana sekarang ini sedang terjadi kemelut. Bukan tidak mungkin
-situasi akan berubah drastis. Sepertinya saat ini ayah yang diutus untuk menangani masalah Zhang Shicheng.
-Sebaliknya, di wilayah Xu Shouhui saat ini ada seorang Chen Youliang yang menurut Xiao Nuzi pasti akan menghasut
-Ni Wenjun untuk memberontak melawan Xu Shouhui. Setelah itu, dia justru akan membunuh Ni Wenjun dengan tangannya
-sendiri, dengan alasan bahwa Ni Wenjun bermaksud memberontak, dengan begitu dia akan dianggap sebagai pahlawan.
-Tetapi berikutnya dia sendiri yang akan memberontak melawan Xu Shouhui, dan merebut tahtanya. Xiao Nuzi berani
+situasi akan berubah drastis. Sepertinya saat ini ayah yang diutus untuk menangani masalah Zhang Shicheng. 
+Sebaliknya, di wilayah Xu Shouhui saat ini ada seorang Chen Youliang yang menurut Xiao Nuzi pasti akan menghasut 
+Ni Wenjun untuk memberontak melawan Xu Shouhui. Setelah itu, dia justru akan membunuh Ni Wenjun dengan tangannya 
+sendiri, dengan alasan bahwa Ni Wenjun bermaksud memberontak, dengan begitu dia akan dianggap sebagai pahlawan. 
+Tetapi berikutnya dia sendiri yang akan memberontak melawan Xu Shouhui, dan merebut tahtanya. Xiao Nuzi berani 
 menduga seperti ini berdasarkan pengalaman sebelumnya di Pulau Ular, ketika bertemu dengan Chen Youliang."
 
 Zhang Wuji sangat terkejut mendengar betapa detilnya analisa Zhao Min. Tetapi saat itu ia melihat kakek gurunya
@@ -1190,8 +1188,8 @@ menganggukkan kepala dengan gembira, lalu bertanya, "Wuji, sudah mengertikah apa
 Sebetulnya Zhang Wuji masih bingung, dan ingin bertanya, tetapi saat itu Zhang Sanfeng sudah mengalihkan perhatian
 kembali kepada Zhao Min dan bertanya, "Dan bagaimana dengan Ming Jiao di sebelah timur itu?"
 
-Saat itu Zhou Zhiruo menyela, "Zhang Zhenren, menurut Zhiruo masalah Dinasti Song yang baru itu untuk sementara
-masih aman, karena kita saat ini punya sekutu yang baik."
+Saat itu Zhou Zhiruo menyela, "Zhang Zhenren, menurut Zhiruo masalah Dinasti Song yang baru itu untuk sementara masih aman, 
+karena kita saat ini punya sekutu yang baik."
 
 "Oh?" Zhang Sanfeng heran, lalu kembali bertanya, "Sekutu?"
 
@@ -1213,7 +1211,11 @@ Guo Zixing secara keseluruhan, maka sasaran berikutnya adalah menggulingkan Liu 
 Zhu Yuanzhang masih akan tunduk kepada Liu Futong dan Han Lin'er, karena dia ingin terlihat sebagai orang baik.
 Selain itu, kau baru saja mengampuninya, jadi untuk sementara dia tidak akan berani melakukan kesalahan yang
 sama. Selanjutnya Liu Futong pasti akan memerintahkannya untuk menaklukkan wilayah yang saat ini dianggap penting,
-misalnya, wilayah yang tadinya adalah milik Song Selatan, seperti [Bianliang](/parts/nama-wilayah.md#bianliang "Mulai dari era Dinasti Song Selatan, sebenarnya nama Bianliang ini sudah diganti menjadi Kaifeng, tetapi masih tetap banyak yang menyebutnya Bianliang dalam percakapan sehari-hari.")."
+misalnya, wilayah yang tadinya adalah milik Song Selatan, seperti Kaifeng."
+
+"Kurasa belum tentu Zhu Yuanzhang mau mendengarkan perintah Liu Futong," kata Zhang Wuji. "Aku merasa saat ini dia memandang dirinya 
+_sama_ seperti Liu Futong, atau bahkan Han Lin'er, yaitu bebas dari kewajiban tunduk kepada siapa pun. Sebelumnya Guo Zixing juga 
+tidak mau tunduk kepada perintah siapa pun."
 
 Zhang Sanfeng mengangguk-anggukkan kepalanya sambil berkata, "Bagus, sekarang ini Tai Shifu ingin melihat bagaimana
 kalian bertiga bisa bekerja sama untuk mengurangi penderitaan yang harus dialami rakyat jelata akibat perang, karena
@@ -1226,7 +1228,7 @@ bertempur di medan perang. Tugas kita adalah membantu rakyat, dan menciptakan ke
 Ia lalu berkata kepada Zhao Min, "Masalahmu yang terbesar sebelumnya adalah gurumu tidak mengajarkan tenaga dalam
 dan qinggong sama sekali. Itu karena dia memandangmu sebagai ancaman bagi perjuangannya. Tapi kalau kau sungguh
 rajin merenungkan makna karakter yang kusebutkan tadi, maka bimbingan dari Wuji pasti akan membuatmu maju pesat,
-karena sebetulnya kau sangat berbakat. Kalau Zhiruo melatih ilmu yang didapat dari Jiu Ying Zhen Jing dengan benar,
+karena sebetulnya kau sangat berbakat. Kalau Zhiruo melatih ilmu yang didapat dari Jiu Ying Zhen Jing dengan benar, 
 maka kau akan bisa melatih Taiji dan Jiu Yang Shen Gong dengan bimbingan Wuji. Dengan begini kalian pasti akan bisa
 bekerja sama dengan baik demi menolong rakyat dari kesusahan besar akibat perang. Kalau kau menghubungkan makna 
 karakter 'Kong' itu dengan keadaanmu saat ini, maka kau akan mengerti bahwa karena kau belum pernah diajari ilmu
@@ -1249,9 +1251,9 @@ murid Wudang dan keluarga sendiri.
 
 Dengan berlinang air mata mereka bertiga berpamitan, lalu bergegas meninggalkan Wudang untuk menuju ke selatan.
 
-Zhang Sanfeng mengawasi punggung ketiga anak muda itu sampai menghilang di balik dinding. Ia bisa melihat bahwa Zhang
-Wuji memang punya kungfu yang sangat tinggi, bahkan lebih tinggi dibanding apa yang bisa dicapainya di usia yang sama.
-Tetapi cucu muridnya itu tidak mewarisi ketegasan kedua orang tuanya, sedangkan kedua gadis itu _justru_ memilikinya.
+Zhang Sanfeng mengawasi punggung ketiga anak muda itu sampai menghilang di balik dinding. Ia bisa melihat bahwa Zhang Wuji 
+memang punya kungfu yang sangat tinggi, bahkan lebih tinggi dibanding apa yang bisa dicapainya di usia yang sama. Tetapi 
+cucu muridnya itu tidak mewarisi ketegasan kedua orang tuanya, sedangkan kedua gadis itu _justru_ memilikinya.
 
 Dengan segudang pengalamannya sebagai orang yang hidup lebih dari seratus tahun, dan mengalami era terakhir Dinasti Song,
 lalu sempat dipandang sebagai calon kuat untuk menduduki jabatan tinggi di jajaran Kubilai Khan, tetapi dia kemudian 
@@ -1263,9 +1265,8 @@ lemah lembut dan sabar, dalam situasi terdesak ternyata sanggup melakukan tindak
 resiko bersalah. Jika ketiga anak muda ini bisa bekerja sama dengan baik, maka mereka akan bisa berperan penting bagi 
 rakyat jelata dan dunia persilatan di tengah kekacauan besar yang pasti akan terjadi dalam waktu singkat ini.
 
-Perang memang tidak bisa dihindari lagi. Dalam hal ini negara memang membutuhkan seorang kaisar, tetapi seorang kaisar
-bengis tetap harus diberi peringatan. Zhang Sanfeng berharap bahwa ketiga anak muda itu akan kembali ke Wudang
-dengan membawa kabar baik.
+Perang memang tidak bisa dihindari lagi. Dalam hal ini negara memang membutuhkan seorang kaisar, tetapi seorang kaisar 
+bengis tetap harus diberi peringatan. Zhang Sanfeng berharap bahwa ketiga anak muda itu akan kembali ke Wudang dengan membawa kabar baik.
 
 ### Doa Ming Jiao
 
