@@ -5,36 +5,32 @@
 [^hongjin-qiyi]: Hongjin Qiyi (紅巾起義) = Pemberontakan Ikat Kepala Merah. 
 [^tianwan]: Tian Wan (天完) secara literal berarti 'Surga Telah Terwujud'.
 
-Ketika di Gunung Shaoshi Zhou Zhiruo mengatakan bahwa Peng Yingyu sedang mencari-cari Zhang Wuji, mereka bertiga 
-bergegas berangkat, dan setelah berjalan cepat beberapa waktu, mereka tiba di perkemahan Ming Jiao. Yang Xiao, 
-Fan Yao, Peng Yingyu dan yang lain baru hendak mengutus orang untuk mencari ketua mereka. Semua orang tampak gembira 
-dan lega ketika melihat Zhang Wuji. Tetapi ketika melihat Zhou Zhiruo dan Zhao Min ikut kembali bersamanya, mereka 
-tampak terkejut dan heran.
+Ketika Zhou Zhiruo mengatakan bahwa Peng Yingyu sedang mencari-cari Zhang Wuji, mereka bertiga bergegas berangkat, dan setelah berjalan cepat beberapa 
+waktu, mereka tiba di perkemahan Ming Jiao. Yang Xiao, Fan Yao, Peng Yingyu dan yang lain baru hendak mengutus orang untuk mencari ketua mereka. 
+Semua orang tampak gembira dan lega ketika melihat Zhang Wuji. Tetapi ketika melihat Zhou Zhiruo dan Zhao Min ikut kembali bersamanya, mereka tampak 
+terkejut dan heran.
 
-Zhang Wuji memperhatikan bahwa mereka semua lesu, dengan segera ia tahu bahwa ada sesuatu yang salah. "Peng Dashi,
-kau mencariku?" tanyanya.
+Zhang Wuji memperhatikan bahwa mereka semua lesu, dengan segera ia tahu bahwa ada sesuatu yang salah. "Peng Dashi,kau mencariku?" tanyanya.
 
-Sebelum Peng Yingyu menjawab, Zhou Zhiruo menarik tangan Zhao Min menjauh sambil berkata, "Ayo kita pergi dan duduk 
-di situ." Mereka keluar dari kemah besar itu sambil bergandengan tangan. 
+Sebelum Peng Yingyu menjawab, Zhou Zhiruo menarik tangan Zhao Min menjauh sambil berkata, "Ayo kita pergi dan duduk di luar." Mereka keluar dari kemah besar 
+itu sambil bergandengan tangan. 
 
-Zhao Min mengerti, Zhou Zhiruo berusaha untuk menghindari kecurigaan. Ia tidak berminat mendengarkan urusan dalam
-Ming Jiao. Karena itu Zhao Min menemaninya keluar. Yang Xiao, Fan Yao dan yang lain tampak lebih heran lagi.
-Mereka semua berpikir, "Di hari perkawinan Jiaozhu di Haozhou saat itu, kedua perempuan ini berkelahi seperti dua
-ekor singa betina, tapi sekarang mereka tampak rukun seperti saudara kandung. Entah bagaimana cara Jiaozhu mendamaikan 
-mereka. Dia betul-betul mampu melakukan hal-hal yang mustahil dilakukan orang. Qian Kun Da Nuo Yi benar-benar mengagumkan."
+Zhao Min mengerti, Zhou Zhiruo berusaha untuk menghindari kecurigaan. Ia tidak berminat mendengarkan urusan dalam Ming Jiao. Karena itu Zhao Min menemaninya keluar. 
+Yang Xiao, Fan Yao dan yang lain tampak lebih heran lagi. Mereka semua berpikir, "Di hari perkawinan Jiaozhu di Haozhou saat itu, kedua perempuan ini berkelahi 
+seperti dua ekor singa betina, tapi sekarang mereka tampak rukun seperti saudara kandung. Entah bagaimana cara Jiaozhu mendamaikan mereka. Dia betul-betul mampu 
+melakukan hal-hal yang mustahil dilakukan orang. Qian Kun Da Nuo Yi benar-benar mengagumkan."
 
-Peng Yingyu menunggu sampai kedua wanita itu pergi, lalu berkata, "Lapor, Jiaozhu. Kita baru menerima kabar buruk dari Haozhou, Han Shantong 
-tertangkap, dan sudah dieksekusi oleh pemerintah. Kita tidak lagi punya kekuatan di wilayah selatan Henan."
+Peng Yingyu menunggu sampai kedua wanita itu pergi, lalu berkata, "Lapor, Jiaozhu. Kita baru menerima kabar buruk dari Haozhou, Han Shantong tertangkap, dan sudah 
+dieksekusi oleh pemerintah. Kita tidak lagi punya kekuatan di wilayah selatan Henan."
 
-"Aduh!" keluh Zhang Wuji. Ia sangat berduka. Baginya Han Shantong adalah orang baik, meskipun ia selalu merasa terganggu ketika teringat cara 
-Han Lin'er memaki-maki para penduduk kota yang membela Kaisar Toghon Temur atau Chaghan. Ia bertanya dengan nada cemas, "Sekarang ini Han Lin'er 
-ada di mana?"
+"Aduh!" keluh Zhang Wuji. Ia sangat berduka. Baginya Han Shantong adalah orang baik, meskipun ia selalu merasa terganggu ketika teringat cara Han Lin'er memaki-maki 
+para penduduk kota yang membela Kaisar Toghon Temur atau Chaghan. Ia bertanya dengan nada cemas, "Sekarang ini Han Lin'er ada di mana?"
 
 Peng Yingyu melanjutkan, "Saat ini, urusan militer di sekitar Sungai Huai ada di bawah kendali Zhu Yuanzhang. Segera setelah Xu Da dan Chang Yuchun 
 mendengar kabar itu, mereka mengirim pasukan untuk mendukung. Han Lin'er juga ikut bersama mereka. Situasinya sangat mendesak, Liu Futong berhasil 
 meloloskan diri ke Yingzhou membawa Han Lin'er dan ibunya. Rencananya sebentar lagi Han Lin'er akan diumumkan sebagai kaisar untuk menggantikan Han Shantong."
 
-Zhang Wuji mengerutkan keningnya sebagai tanda tidak senang. Ia sebelumnya membiarkan pengangkatan diri Han Shantong sebagai kaisar, karea hal itu memang 
+Zhang Wuji mengerutkan keningnya sebagai tanda tidak senang. Ia sebelumnya membiarkan pengangkatan diri Han Shantong sebagai kaisar, karena hal itu memang 
 sudah terjadi sebelum ia sendiri menjadi ketua Ming Jiao. Sebenarnya sangat banyak kebijakan yang diambil oleh Yang Xiao dan jajarannya, yang sekarang 
 ini terasa sangat sulit untuk diterimanya. Ia berkata dengan nada tajam, "Han Lin'er masih berusia lima belas tahun. Untuk apa mereka menyeretnya ke dalam 
 politik — bukankah dia hanya akan menjadi _boneka_ Liu Futong?"
@@ -46,7 +42,7 @@ umum sebagai pewaris tahta Dinasti Song untuk meneruskan perjuangan. Saat ini ya
 bahwa Han Shantong adalah keturunan dari Kaisar Huizong dari Song. Selain itu mereka percaya bahwa Han Shandong adalah titisan Mingwang[^mingwang]."
 
 Ketika mereka sedang membicarakan urusan militer, Yin Yewang bergegas masuk dan berkata, "Lapor, Jiaozhu, Kai Pang mengirim orang untuk memberitahu 
-kita bahwa keberadaan si pengkhianat, Chen Youliang itu, sudah berhasil ditemukan."
+kita bahwa keberadaan si pengkhianat — Chen Youliang itu — sudah berhasil ditemukan."
 
 "Di mana dia?" tanya Zhang Wuji.
 
